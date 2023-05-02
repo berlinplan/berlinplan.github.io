@@ -30,15 +30,18 @@ to be answered by you. consider the information under questions as a resource.
 
 > <sub> Pablo Escobar Colombian drug lord and leader of the Medellin Cartel which controlled as much as 80% international Cocaine. Helped community with building schools and sports fields, donating vast sums to charity, and constructing housing.(187) </sub>
 
+<sub> #### acceptable Argument? Drug Dealer : make drugs legal. right Drug & dosage cures.  </sub> 
+> medical use of opium. [208] (https://www.unodc.org/unodc/en/data-and-analysis/bulletin/bulletin_1953-01-01_3_page008.html)
+
+Others are their own fault, wrong goods, wrong dose.Buy from me, I have good stuff.
+
 #### are social Media harmful for societies?
 
 > <sub> multiple studies found strong risk for depression, anxiety, loneliness, self-harm, and even suicidal thoughts, rise on inequality, polarization, tribalism, sexism, mental health issues[207](https://www.helpguide.org/articles/mental-health/social-media-and-mental-health.htm#:~:text=Since%20it's%20a%20relatively%20new,harm%2C%20and%20even%20suicidal%20thoughts.)</sub>
 
  Legit Against Argument?-> its people own fault, people have to Know What they consumpt. Not EveryThing in social Media is Bad. 
 Onlyfans creator Argument legit?-> porn addiction is people's own fault, you have to know what you are consuming.
-If 1&2 legit Then : Drug dealer argue: opium ->right dosage: cure. 10,000 consumers->20 benefits.
-Others are their own fault, wrong goods, wrong dose.Buy from me, I have good stuff.
-
+If 1&2 legit 
 ## Nursing Assistant earns 1339.31€ per month (1)(4) vs Onlyfans star earns 270 morr(5)
 Activity on onlyfans is harmful for society(7). Nurses help individuals, families, and entire groups to identify and realize their physical, psychological, and social potential (4)(7)
 -So far, there are over 85 studies that link poor mental and emotional health to porn use (7) Pornography addiction was cited as a factor in 56 percent of divorces according to a recent study (29)
