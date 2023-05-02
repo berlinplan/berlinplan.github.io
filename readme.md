@@ -18,7 +18,7 @@ to be answered by you. consider the information under questions as a resource.
 
 > worrines after Fukushima accident [206](https://www.bfs.de/DE/themen/ion/notfallschutz/notfall/fukushima/unfall.html)
 
-## should drug dealers be punished or should they be rewarded?
+## why do all societies need laws Against drug dealers?
 Damages of Drug abuse: Addiction, Mental Health Disorder, Violence, Individual Health Problems, and Causes high Costs to Social Health system, Social Economy and Family pushes societies to collapse (8) Drug users cannot be treated as criminals (169) they suffer from  something out of their control (170) £10000 a week trade of drug dealers (171)
 #### Donating to charities with the money from Drug selling. morally right?
 
