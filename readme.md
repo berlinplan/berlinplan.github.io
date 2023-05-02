@@ -5,22 +5,25 @@ to be answered by you. consider the information under questions as a resource.
 -all this Content can be changed by you. 
 ## How many Generations lived in past 2000 years?
 > ~70 Generation from jesus to now [202](https://answersingenesis.org/bible-timeline/genealogy/how-many-human-generations-are-there-from-adam-until-today/)
+
 #### How many Future Generations has to deal with Atom waste?
 > ~33000 Generations[201](https://www.base.bund.de/DE/themen/kt/ausstieg-atomkraft/ausstieg_node.html)
+
 #### one Generation damage 33000 in Future.Moraly ok?
 > Germany switched off all its Nuclear PP [201]
 
 > NPP switch off had for German people heavy Costs , Power crisis & Economic loss. [203](https://amp2.wiwo.de/unternehmen/energie/energiewende-der-wirtschaftliche-schaden-eines-schnellen-atomausstiegs/5154328.html)
 #### While many countries investing heavy in NPP, why Germans switched off?
+
 > awareness [204](https://www.greenpeace.de/klimaschutz/energiewende/atomausstieg#:~:text=Am%20Samstag%2C%2015.,Der%20Atomausstieg%20ist%20vollzogen.)
 
 > ethically unacceptable [205](https://www.deutschlandfunk.de/atomenergie-ist-per-se-ethisch-nicht-vertretbar-100.html)
 
 > worrines after Fukushima accident [206](https://www.bfs.de/DE/themen/ion/notfallschutz/notfall/fukushima/unfall.html)
 
-## why do all societies need laws Against drug dealers?
-Damages of Drug abuse: Addiction, Mental Health Disorder, Violence, Individual Health Problems, and Causes high Costs to Social Health system, Social Economy and Family pushes societies to collapse (8) Drug users cannot be treated as criminals (169) they suffer from  something out of their control (170) £10000 a week trade of drug dealers (171)
-#### Donating to charities with the money from Drug selling. morally right?
+### why societies need laws Against drug dealers?
+
+Drug abuse: Addiction, Mental Health Disorder, Violence, Society collapse , high Costs to Social Health, Economy & Family.(8) Drug users cannot be treated as criminals (169) they suffer from  something out of their control (170) £10000 a week trade of drug dealers (171)#### Donating to charities with the money from Drug selling. morally right?
 
 Pablo Escobar Colombian drug lord and leader of the Medellin Cartel which controlled as much as 80% international Cocaine. Helped community with building schools and sports fields, donating vast sums to charity, and constructing housing. (187)
 
