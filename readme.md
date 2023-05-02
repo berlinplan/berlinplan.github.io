@@ -67,16 +67,17 @@ porn addiction, or problematic pornography use, affects approximately 3% to 6% o
 
 > <sub> in Germany: *bibisbeautypalace *Julienco *Lisa und Lena mantler *Montana Black *Pia wurzbach *Pamela reif *dagibee *youneszarou </sub>
  
-## Does Instagram Lead to Ageing Population?
-Instagram sexualizes society (10) Children use Instagram (11) Children who used to be sexually active have unstable relationships and marriages when grew up. (12) Unstable relationships lead to lower birth rates (13) Lower fertility rate create aging population (14)
+#### Does Instagram Lead to Ageing Population?
 
-#### Does Aging population and lack of labor leads to exploitation?
+> <sub> Instagram sexualizes society (10) Children use Instagram (11) Children who used to be sexually active have unstable relationships and marriages when grew up. (12) Unstable relationships lead to lower birth rates (13) Lower fertility rate create aging population(14) </sub>
 
-Aging population brings the economy to collapse, there is a lack of workers and skilled workers. (15) most of Migrants come from poor Third World countries (16) Consequences for countries of origin: Economic disadvantage due to the loss of young workers• Loss of highly qualified personnel, especially health workers• Social problems for children who have been left behind or who have not grown up with a large family (17) with remittances could Countries of origin buy products from abroad again, money transfers are still to countries like Iran, banned by UN sanctions (18) most of third world countries have negative trade balance with Industrial countries (19) A negative trade balance (more imports than exports) results in unemployment and capital outflow abroad ( 20) Definition of exploitation: inappropriate use (especially of manpower, resources) It was more precisely defined in Marxist theories as the appropriation of someone else's labor (21)
+#### Why Aging population & lack of labor leads to exploitation?
+
+> <sub> Aging population brings the economy to collapse, there is a lack of workers and skilled workers. (15) most of Migrants come from poor Third World countries (16) Consequences for countries of origin: Economic disadvantage due to the loss of young workers• Loss of highly qualified personnel, especially health workers• Social problems for children who have been left behind or who have not grown up with a large family (17) remittances/ money transfers are blocked & under UN sanctions (18) poor countries have negative trade balance with Industrial countries (19) A negative trade balance (more imports than exports) results in unemployment and capital outflow abroad ( 20) Definition of exploitation: inappropriate use (especially of manpower, resources) It was more precisely defined in Marxist theories as the appropriation of someone else's labor (21)</sub>
 
 #### Does exploitation lead to international inequality?
 
-Exploitation increases the international inequality (22) Tracing the global history of inequality from the Stone Age to today, Walter Scheidel shows that it never dies peacefully. violent shocks reduce inequality. Blanket bombing from the American air fleet and two devastating atomic bombs. led to a decline in social inequality (23)
+> <sub> Exploitation increases the international inequality (22) Tracing the global history of inequality from the Stone Age to today, Walter Scheidel shows that it never dies peacefully. violent shocks reduce inequality. Blanket bombing from the American air fleet and two devastating atomic bombs. led to a decline in social inequality (23)</sub>
 
 #### International Violent Shock Solution for International Inequality?
 
