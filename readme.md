@@ -79,11 +79,15 @@ porn addiction, or problematic pornography use, affects approximately 3% to 6% o
 
 > <sub> Exploitation increases the international inequality (22) Tracing the global history of inequality from the Stone Age to today, Walter Scheidel shows that it never dies peacefully. violent shocks reduce inequality. Blanket bombing from the American air fleet and two devastating atomic bombs. led to a decline in social inequality (23)</sub>
 
-#### International Violent Shock Solution for International Inequality?
+####  reduce of International Inequality only by Violent shock? (book: Great Leveler )
 
-French colonization only ended when the slaves in Haiti rebelled. 75000 white French and 350000 Haitian killed in Hiaitan Masacar (24) Slavery in USA ended after First Uprisings and because of economic interests (25) World War II sharply reduced income and wealth inequality in many countries (26)
-What tangible International Violent Shock would there be for countries like Iran and North Korea, against which the toughest sanctions are in place?
-Iran has enough enriched uranium to build ‘several’ nuclear weapons, UN says (30)
+> <sub> French colonization only ended when the slaves in Haiti rebelled. 75000 white French and 350000 Haitian killed in Hiaitan Masacar (24) </sub>
+
+> <sub> Slavery in USA ended after First Uprisings and because of economic interests (25) World War II sharply reduced income and wealth inequality in many countries (26) </sub>
+
+> **End of inequality , sanctions etc after Atomic war?**
+
+> <sub> North Korea 100 Kiloton Atomic bomb.[209](https://www.bbc.com/news/world-asia-41174689.amp) Iran has enough enriched uranium to build ‘several’ nuclear weapons, UN says (30)</sub>
  
 
 **Take Benefits by damaging others,psychopathy?**
