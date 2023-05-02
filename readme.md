@@ -1,10 +1,10 @@
-##Berlinplan
+## Berlinplan
  
 to be answered by you. consider the information under questions as a resource.
 
 -all this Content can be changed by you. 
 
-#can awareness avoid a catastrophe? (nuclear phase-out)
+# can awareness avoid a catastrophe? (nuclear phase-out)
 15.04.2023 Germany switched off all their nuclear power plants. Although it has caused very expensive electricity prices. 
 Although it had huge economic disadvantages and triggered a power crisis, although many countries still invest heavily in their nuclear program. People in germany decided Against letting the consequences of nuclear waste to be carried by more than 33,000 generations in Future and avoided a possible nuclear catastrophe.(201)
 
