@@ -27,7 +27,7 @@ Activity on onlyfans is harmful for society(7). Nurses help individuals, familie
 Onlyfans is a Platform which produce Pornography content (28) (3) OnlyFans stars make 270 times more than the average worker (5) Iggy Azalea’s OnlyFans Earns $307K In 24 Hours (2) Average Earnings from OnlyFans including deactivate accounts or side-job account is $180/month (6)
      
 
-#### Agree? drug dealing is a valuable activity especially for people from socially disadvantaged backgrounds? is it a chance for self-empowerment, and is there potential for emancipation, financial independence?
+#### Agree? drug dealing is a valuable because of self-empowerment, emancipation & financial independency for poors?
 
 “The cultural scientist and feminist: Madita Oeming sees Onlyfans as a new opportunity for self-empowerment. Women and men on Onlyfans are independent of studios or producers and have full control over their content and prices. And there is also emancipatory potential in profit. "Making that amount of money on your own can also save you from financial dependency and toxic relationships."(9)
 porn addiction, or problematic pornography use, affects approximately 3% to 6% of the adult population. Up to 65% of young adult men and 18% of Young Woman Report watching Pornography at least once a Week (35) Addicts are not to blame for their addiction, it is a problem for society as a whole and we are talking about shared responsibility (36)
