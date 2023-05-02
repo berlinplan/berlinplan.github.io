@@ -8,7 +8,8 @@ to be answered by you. consider the information under questions as a resource.
 #### How many Generations has to handle Atom waste?
 > ~33000 Generations in Future [201](https://www.base.bund.de/DE/themen/kt/ausstieg-atomkraft/ausstieg_node.html)
 #### one Generation decide for 33000 in Future.Moraly ok?
->~ Germany switched off all its Nuclear PP [201]
+> Germany switched off all its Nuclear PP [201]
+
 > NPP switch off had for German people heavy Costs , Power crisis & Economic loss. [203](https://amp2.wiwo.de/unternehmen/energie/energiewende-der-wirtschaftliche-schaden-eines-schnellen-atomausstiegs/5154328.html)
 ## can awareness avoid a catastrophe? (nuclear phase-out)
 15.04.2023 Germany switched off all their nuclear power plants. Although it has caused very expensive electricity prices. 
