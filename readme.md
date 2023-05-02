@@ -19,8 +19,7 @@ If 1&2 legit Then : Drug dealer argue: opium ->right dosage: cure. 10,000 consum
 Others are their own fault, wrong goods, wrong dose.Buy from me, I have good stuff.
 
 ## Nursing Assistant earns 1339.31€ per month (1)(4) vs Onlyfans star earns x270(5)
-    > Activity on onlyfans is harmful for society(7) 
-Nurses help individuals, families, and entire groups to identify and realize their physical, psychological, and social potential (4)(7)
+> Activity on onlyfans is harmful for society(7). Nurses help individuals, families, and entire groups to identify and realize their physical, psychological, and social potential (4)(7)
 -So far, there are over 85 studies that link poor mental and emotional health to porn use (7) Pornography addiction was cited as a factor in 56 percent of divorces according to a recent study (29)
 Onlyfans is a Platform which produce Pornography content (28) (3) OnlyFans stars make 270 times more than the average worker (5) Iggy Azalea’s OnlyFans Earns $307K In 24 Hours (2) Average Earnings from OnlyFans including deactivate accounts or side-job account is $180/month (6)
      
