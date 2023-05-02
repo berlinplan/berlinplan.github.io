@@ -13,6 +13,7 @@ to be answered by you. consider the information under questions as a resource.
 > Germany switched off all its Nuclear PP [201]
 
 > NPP switch off had for German people heavy Costs , Power crisis & Economic loss. [203](https://amp2.wiwo.de/unternehmen/energie/energiewende-der-wirtschaftliche-schaden-eines-schnellen-atomausstiegs/5154328.html)
+
 #### While many countries investing heavy in NPP, why Germans switched off?
 
 > awareness [204](https://www.greenpeace.de/klimaschutz/energiewende/atomausstieg#:~:text=Am%20Samstag%2C%2015.,Der%20Atomausstieg%20ist%20vollzogen.)
