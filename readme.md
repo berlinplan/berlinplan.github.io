@@ -250,58 +250,88 @@ instead of fixed wages, percentage Participation in loss & Win.
 
 > <sub> Example 1: approximately 30,000 fighters from at least 85 countries had joined the Islamic State of Iraq and Syria (ISIS) (85) ISIS had very Clear defined religious Values (86) around 6.6 Milion Syrian (87) 1.5 from Iraq (88) many from Lebanon, Jordan etc. Flee, approaximately 90% Young Muslim Men (89) According to the Qur'an and hadith, to flee from Jihad (war) is a Greater Sin. It is the twenty-seventh sin. (90) added to this, prophet of Islam said: “I disown every Muslim who settles among the mushrikeen” (Christians, Jews) (91) can someone say i am vegan(92) and eat meat everyday? </sub>
 
-ISIS Terrorists from 85 countries ->defined value->society. 
-And Million Group of people without 1 same Value to fight for it - > society? 
-Example 2: US and West spent 20 years and $145 billion in Afghanistan, security forces, civilian government institutions (93) Afghan republic, with all the Weapons, money and Support, fell as soon as US troop left, President Ashraf Ghani fled the capital city by helicopter to neighboring Uzbekistan. Just days earlier, he had sworn never to leave and said that he would die before abandoning his people. because societal values were incompatible with democracy (94) more than 1 million Afghans have fled their country since the Taliban's return (95)
-Legit? Taliban Society beated big Group of people without any similar values. 
-After Collapse of Soviet Union in 1991, Ukraine became an independent state. (96) In 2012 Ernst & Young put Ukraine among the three most-corrupt nations from 43 surveyed, alongside Colombia and Brazil In 2015 The Guardian called Ukraine "the most corrupt nation in Europe “. (97) United States diplomats described Ukraine under Presidents Kuchma and Yushchenko as a kleptocracy according to WikiLeaks cables (98) Prominent Ukrainian economist Oleh Havrylyshyn research estimated the level of the corruption in Ukraine as comparable to countries of Sub-Saharan Africa with Uganda as the closest counterpart. (99) Ukraine's population spends most of its income on cosmetic products (100) The beauty industry is booming and is one of the fastest growing consumer markets, driven in particular by the cosmetics and skincare segments. largest industries and sectors in Ukraine in 2022 from the Datantify database: · 1. Bank · 2. Cafe · 3. Grocery … 10. Beauty 11. Clothing Stores (101) it is forbidden for men aged 18-60, Ukraine citizens, to leave the borders of Ukraine (102) Still, The UNHCR records 8,167,986 refugees from Ukraine across Europe as of 10 April 2023. This amounts to around 20% of the Ukrainian population (103) Per R. Klitgaard Since a high degree of monopoly and low degree of transparency does not automatically lead to corruption, a fourth variable of "morality" or "integrity" has been introduced by others. The moral dimension has an intrinsic component and refers to a "mentality problem" (104) by Martial law Ukrainian Man are force to Participate war, while Russian Army is a Mix of contract und volunteers (105)
-Since 8167986 Ukrainian fled, how many would have left the Country if it was not Forbidden for men aged 18-60?
+**if ISIS Terrorists from 85 countries ->defined value->society**
+
+#### are Monopols of people without 1 same Value to fight for it - > society? 
+
+> <sub> Example 2: US and West spent 20 years and $145 billion in Afghanistan, security forces, civilian government institutions (93) Afghan republic, with all the Weapons, money and Support, fell as soon as US troop left, President Ashraf Ghani fled the capital city by helicopter to neighboring Uzbekistan. Just days earlier, he had sworn never to leave and said that he would die before abandoning his people. because societal values were incompatible with democracy (94) more than 1 million Afghans have fled their country since the Taliban's return (95)
+Legit? Taliban Society beated big Group of people without any similar values. </sub>
+
+> <sub> Example 3: After Collapse of Soviet Union in 1991, Ukraine became an independent state. (96) In 2012 Ernst & Young put Ukraine among the three most-corrupt nations from 43 surveyed, alongside Colombia and Brazil In 2015 The Guardian called Ukraine "the most corrupt nation in Europe “. (97) United States diplomats described Ukraine under Presidents Kuchma and Yushchenko as a kleptocracy according to WikiLeaks cables (98) Prominent Ukrainian economist Oleh Havrylyshyn research estimated the level of the corruption in Ukraine as comparable to countries of Sub-Saharan Africa with Uganda as the closest counterpart. (99) Ukraine's population spends most of its income on cosmetic products (100) The beauty industry is booming and is one of the fastest growing consumer markets, driven in particular by the cosmetics and skincare segments. largest industries and sectors in Ukraine in 2022 from the Datantify database: · 1. Bank · 2. Cafe · 3. Grocery … 10. Beauty 11. Clothing Stores (101) it is forbidden for men aged 18-60, Ukraine citizens, to leave the borders of Ukraine (102) Still, The UNHCR records 8,167,986 refugees from Ukraine across Europe as of 10 April 2023. This amounts to around 20% of the Ukrainian population (103) Per R. Klitgaard Since a high degree of monopoly and low degree of transparency does not automatically lead to corruption, a fourth variable of "morality" or "integrity" has been introduced by others. The moral dimension has an intrinsic component and refers to a "mentality problem" (104) by Martial law Ukrainian Man are force to Participate war, while Russian Army is a Mix of contract und volunteers (105) </sub> 
+
+> <sub> Since 8167986 Ukrainian fled, how many would have left the Country if it was not Forbidden for men aged 18-60? </sub>
+
+#### Psychopathical Systems catch Sociopaths from all around the World?
+
+Suprise: London; most Indians, Pakistanis & Asian  in uk voted pro brexit!
+
+> euroscepticism within the British South Asian population was stronger than previously anticipated.(197) 
 
 
-Psychopathical Systems like Sociopaths from all around the World?
-Suprise :London : Indians, Pakistanis etc in uk voted for brexit!
+#### residents of Germany are one Society? any common values?
 
-euroscepticism within the British South Asian population was stronger than previously anticipated.(197) 
+> <sub> “human rights” are non-negotiateable Value of EU, BUT: German football team participated World Cup 2022 in Qatar, without wearing “one love” band? (106) </sub>
 
+> <sub> While EU Participating Sanctions because of Abusing Human rights Against many countries (107) How Can Saudi-Arabia be Germany's most important Partner in the MENA region (108) </sub>
 
-People in Germany: Society? which values they share together?
-“human rights” are non-negotiateable Value of EU, BUT: German football team participated World Cup 2022 in Qatar, without wearing “one love” band? (106)
-While EU Participating Sanctions because of Abusing Human rights Against many countries (107) How Can Saudi-Arabia be Germany's most important Partner in the MENA region (108)
-Europe and Germany seem to have no problem in lecturing to countries like India about democracy, environmentalism, human rights, and demanding their support for Ukraine and other noble causes – and at the same time, deepen business ties with China despite its adventurism in the region and terrible record on human rights and animal welfare. This is not only hypocrisy, it is self-defeating hypocrisy (153)
- Multi-cultirism Leads to tolerant open minded society or paralized parallel societies?
-It claims that multi-Culturism is biggest benefit of Migration, leads to Cultural exchange, Tolerance is strengthened, you can learn from each other, Openness to other cultures, new influences - new ideas (110) many studies prove the opposite. Cbm- Two individuals are able to influence each other only if the Distance between their opinion is below a given distance. A bounded confidence model is a model of consensus- like opinion dynamics in which the agents interact with each other only when their opinions are close enough. (111) free circulation of information, social media, political and religious Debates just Push different group to polarization (112) (113) at the Same time people with similar point of view follow, share and comment each other. Liberals follow liberals, conservative follows conservative. (114) discussion of the racial attitude items with others having similar attitudes significantly increased the gap between high- and low-prejudice groups. (115) based on that, extremists who meet and interact between themselves in a mosque, get even more extremist comparing to rising number of mosques in Germany, multi-culturism, raise the gap of Parallel Societies. (116)
+> <sub> India critics on Eu and Germany because of Double Standards(153)
 
-Leads Multi-Culturism to International inequality?
-(Migration) Multi-Culturism, has Economic benefits, and is necessary for Survival of Western Economy.  2013 Brücker: Germany is biggest winner. Without immigration, the labor force potential in Germany, which currently has 45 million people, would fall by around 40 percent by 2050 (117)
-But It seems that people of Country of origins, are biggest loser. Iran Migration Observatory: The migration of every Iranian means the departure of 120,000 dollars from the country. (118) IQ in Origin Country decrease by immigration. SCOTLAND is the least intelligent part of the UK and performs poorly on average IQ against most of Europe, an academic has claimed. (119) Iran Job Vision conducted a survey of "working people" about migration and the result of 6000 valid data is 77% willing to migrate. (120) more than 80% of intelligent Students of Iranian Top University migrate to Western Countries (121)
+## Multi-cultirism Leads to tolerant open minded society or paralized parallel societies?
 
-Per Definition, is multi-Culturism Side effect of a Psychopathic Economy/ pathoconomics?
+It claims that multi-Culturism is biggest benefit of Migration, leads to Cultural exchange, Tolerance is strengthened, learn from each other, Openness to other cultures, new influences - new ideas (110) 
+
+many studies prove the opposite. Cbm- Two individuals are able to influence each other only if the Distance between their opinion is below a given distance. A bounded confidence model is a model of consensus- like opinion dynamics in which the agents interact with each other only when their opinions are close enough. (111) free circulation of information, social media, political and religious Debates just Push different group to polarization (112) (113) at the Same time people with similar point of view follow, share and comment each other. Liberals follow liberals, conservative follows conservative. (114) discussion of the racial attitude items with others having similar attitudes significantly increased the gap between high- and low-prejudice groups. (115) based on that, extremists who meet and interact between themselves in a mosque, get even more extremist comparing to rising number of mosques in Germany, multi-culturism, raise the gap of Parallel Societies. (116)
+
+#### Leads Multi-Culturism to International inequality?
+
+> <sub> (Migration) Multi-Culturism, has huge Economic benefits, it is necessary for Survival of Western Economy.  2013 Brücker: Germany is biggest winner. Without immigration, the labor force potential in Germany, which currently has 45 million people, would fall by around 40 percent by 2050 (117) </sub>
+
+#### Win for Country of origin too?
+
+>Iran Migration Observatory: The migration of every Iranian means the departure of 120,000 dollars from the country. (118) IQ in Origin Country decrease by immigration. SCOTLAND is the least intelligent part of the UK and performs poorly on average IQ against most of Europe, an academic has claimed. (119) Iran Job Vision conducted a survey of "working people" about migration and the result of 6000 valid data is 77% willing to migrate. (120) more than 80% of intelligent Students of Iranian Top University migrate to Western Countries (121)
+
+#### Per Definition, is multi-Culturism Side effect of a Psychopathic Economy/ pathoconomics?
+
 Multi-Cluturism :polarization & inequality for societies. Big Economic benefits for Companies. 
-Benefits of Multi -Culturism: lie?  
- Migration / Slavery / colonization ->  huge Benefits for Psychopathical  Economic.
 
-Has integration really failed in Western Countries?
-Sweden: “Integration of migrants has failed” (166)
-What is Integration? 
-Integration: the act of combining into an integral whole (167)
+#### Benefits of Multi -Culturism: lie?  
+ 
+Migration / Slavery / colonization ->  huge Benefits for Psychopathical  Economic.
+
+#### Has integration really failed in Western Countries?
+
+> Sweden: “Integration of migrants has failed” (166)
+
+## What is Integration? 
+
+> <sub>Integration: the act of combining into an integral whole (167)
 Combine: implies some merging or mingling with corresponding loss of identity of each unit (168)
-80% of top intelligent Students from poor countries ends in big companies in the West. U.S Army is the biggest employer in U.S., Most of Projects and Hi-tech products used or ordered by us Army. (179) operations mostly done in countries like Libya, Iraq, Iran, Afghanistan, Syria, Somalia, Pakistan, Sudan (180)
-Is a student that leaves his Country to work in a Country, where the Produce of his work, will be Used in his own country not Integrated in the Psychopathic Economics?
-A refugee from Pashganistan, flee to Germany, Against the values of Islam, to support the biggest partner of USA. Is he not integrated in the Psychopathic Economics?
+80% of top intelligent Students from poor countries ends in big companies in the West. U.S Army is the biggest employer in U.S., Most of Projects and Hi-tech products used or ordered by us Army. (179) operations mostly done in countries like Libya, Iraq, Iran, Afghanistan, Syria, Somalia, Pakistan, Sudan (180) </sub>
+
+** Pashganistan student Migrant, who now work in a Country, its production will be Used Against Pashganistan?is not Integrated in the Psychopathic Economics?**
+
+**A Pashganistani refugee, flee, Against islamic rules, to work for the past attacker. Is he not integrated in the Psychopathic Economics?**
  
-In a World that it makes 0 Economic difference, if You live and work in pashganista , or in Germany, Would Anyone leave His home, father, mother spend 11000€ and come as refugee to Germany?
-Of course, yes 1 who don’t like the pashganistan culture, values, laws, and prefer Western culture-> Would  leave the country. 
-But he need Integration? Or already Integrated?
+> <sub> **In a World that it makes 0 Economic difference, if You live and work in pashganista , or in Germany, Would Anyone leave His home, father, mother spend 11000€ and come as refugee to Germany?** </sub>
+
+#### 1 who don’t like the pashganistan culture & prefer Western need Integration? 
  
-How is Cultural Inspiration possible?
-political, legal, religious, cultural, social, and economic policy changes Westernizing reforms were achieved under Atatürk's rule (182) In 1698, Tsar Peter I of Russia instituted a beard tax as part of an effort to bring Russian society in line with Western European models. (181) One of many Westernizing actions of Iranian Reza Shah was forcing men to wear Western suits and hats. (183)  Japan Early Westernization & Modernization in Japan. (184)
-Why did countries like Russia Turkey, China, iran, Japan etc. made reforms to looks likes western?
-Comparisons are a normal part of human cognition and can be good for the self-improvement process. (185)
-As the only Value of Psychopathically System is get power and get rich, can we say foreigners are already perfect integrated?
-As Western Population, Cultures and Values are vanishing. (186) why should migrants accept German traditions? Would you follow someone who is falling down to valley?
- 
- Any  Benefits of Dialogue between different cultures inside one society?
+#### How is Cultural Inspiration possible?
+
+> <sub> political, legal, religious, cultural, social, and economic policy changes Westernizing reforms were achieved under Atatürk's rule (182) In 1698, Tsar Peter I of Russia instituted a beard tax as part of an effort to bring Russian society in line with Western European models. (181) One of many Westernizing actions of Iranian Reza Shah was forcing men to wear Western suits and hats. (183)  Japan Early Westernization & Modernization in Japan. (184) </sub>
+
+#### Why did countries like Russia Turkey, China, iran, Japan etc. made reforms to looks likes western?
+
+> <sub> Comparisons are a normal part of human cognition and can be good for the self-improvement process. (185) <sub>
+
+#### why should migrants accept German traditions?
+
+> Western Population, Cultures and Values are vanishing. (186)  Would you follow someone who is falling down to valley?
+ 
+#### Any  Benefits of Dialogue between different cultures inside one society?
+
 -Debattes-> polarization 
+
 free Information Exchange -> polarization
 Dialoge -> polarization 
 
