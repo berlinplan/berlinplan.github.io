@@ -96,11 +96,13 @@ porn addiction, or problematic pornography use, affects approximately 3% to 6% o
 **Taking Benefits by damaging others, Psychopathy?**
 
 ## What is psychopathy? 
-Psychopathy is a serious personality disorder characterized by antisocial behavior, untruthfulness, irresponsibility, and lack of remorse or empathy. (172)
+> Psychopathy is a serious personality disorder characterized by antisocial behavior, untruthfulness, irresponsibility, and lack of remorse or empathy. (172)
 
-#### Are current political and Economic systems best environment for psychopaths to thrive?
+#### Are the current political & Economic Systems best environment for psychopaths to thrive?
 
-1.2% of U.S. adult men and 0.3% to 0.7% of U.S. adult women are considered to have clinically significant levels of psychopathic traits (175) (44)15% of Prisoners are Psychopaths (45) 21% of CEO`s are Psychopath’s (46) Many of US Presidents were Psychopaths (47) Aristotle warned us more than two millennia ago, democracies are best environment and milieu for psychopaths to develop. (49) During the past fifty years, psychopaths have gained almost absolute control of all the branches of government (173) based on Germany Population of 84.3 million, approximately 505000 male and 210000 female have Psychopathic profiles, as 15% of prisoners but 21% of CEO’s are Psychopaths, it is considered that there is a big number of successful Psychopaths in big Companies Leadership level and politics (177)
+> <sub> 1.2% of U.S. adult men and 0.3% to 0.7% of U.S. adult women are considered to have clinically significant levels of **psychopathic** traits (175) (44)15% of Prisoners are Psychopaths (45) 21% of CEO`s are Psychopath’s (46) Many of US Presidents were Psychopaths (47) Aristotle warned us more than two millennia ago, democracies are best environment and milieu for psychopaths to develop. (49) During the past fifty years, psychopaths have gained almost absolute control of all the branches of government (173) </sub>
+
+> <sub> 84.3 million Germans ~505000 male and 210000 female have Psychopathic profiles, as 15% of prisoners but 21% of CEO’s are Psychopaths, it is considered that there is a big number of successful Psychopaths in big Companies Leadership level and politics (177) </sub>
 
 #### Are Psychopathic Systems creating Sociopathic behavior?
 
