@@ -85,7 +85,7 @@ Use Psychopaths Democratic Organisations,  law, Jusiz, Tax Office etc  for their
 Big Companies have big Legal Departments (73) Lawsuits can be a drain on finances, energy, time, resources, and emotions. (74) if a common man miss a simple bill payment, this can lead him to pay late fees, credit score damage, and other negative financial consequences (75) someone goes to jail if “legal Departments” beat a for cheating (76) While big Companies have the Upper Hand a natural advantage, still Biggest Companies Don't Pay Taxes (77)
  
 
-### Policeman, security man for richer guy to get richer?
+#### Policeman, security man for richer guy to get richer?
 A Trumpf inherits a lot of wealth from his rich dad, in the pathoeconomics he Make from 3000 Appartements, 10000 and give it to His son, who Make x10.
  
 Was something Like this in the whole history of Human  possible without Police? 
