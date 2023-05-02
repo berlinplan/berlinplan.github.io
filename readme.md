@@ -215,11 +215,11 @@ Law & Suggestions, seperate sector in comments: advantages and disadvantages, Li
 > <sub> After week two : Company xxx Finished 100%. Accept?/No Accept </sub>
  
 > <sub> After Yes 10€ Automaticaly sent to Them </sub>
+
  
 > <sub> Example 5: Who should  pay more in taxes? </sub>
 
 > <sub> fireman, nursing assistant, teacher?
-
 >  <sub> or youtuber, instagramer, tik toker, porn performer who damage the society and international equality? </sub>
  
 #### Could People have in that App not only Political Voting area, rather Economic area too?
