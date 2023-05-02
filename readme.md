@@ -1,14 +1,14 @@
-## Berlinplan
+# Berlinplan
  
 to be answered by you. consider the information under questions as a resource.
 
 -all this Content can be changed by you. 
 
-# can awareness avoid a catastrophe? (nuclear phase-out)
+## can awareness avoid a catastrophe? (nuclear phase-out)
 15.04.2023 Germany switched off all their nuclear power plants. Although it has caused very expensive electricity prices. 
 Although it had huge economic disadvantages and triggered a power crisis, although many countries still invest heavily in their nuclear program. People in germany decided Against letting the consequences of nuclear waste to be carried by more than 33,000 generations in Future and avoided a possible nuclear catastrophe.(201)
 
-should drug dealers be punished or should they be rewarded?
+## should drug dealers be punished or should they be rewarded?
 Damages of Drug abuse: Addiction, Mental Health Disorder, Violence, Individual Health Problems, and Causes high Costs to Social Health system, Social Economy and Family pushes societies to collapse (8) Drug users cannot be treated as criminals (169) they suffer from  something out of their control (170) £10000 a week trade of drug dealers (171)
 Donating to charities with the money from Drug selling. morally right?
 Pablo Escobar Colombian drug lord and leader of the Medellin Cartel which controlled as much as 80% international Cocaine. Helped community with building schools and sports fields, donating vast sums to charity, and constructing housing. (187)
@@ -18,12 +18,12 @@ Onlyfans creator Argument legit?-> porn addiction is people's own fault, you hav
 If 1&2 legit Then : Drug dealer argue: opium ->right dosage: cure. 10,000 consumers->20 benefits.
 Others are their own fault, wrong goods, wrong dose.Buy from me, I have good stuff.
 
-Is this fair that  jobs like Nursing Assistant (4) earns 1339.31€ / month after tax (1) some one in a harmful activity (7) like Onlyfans star earns 270 times more? (5)
+## Is this fair that  jobs like Nursing Assistant (4) earns 1339.31€ / month after tax (1) some one in a harmful activity (7) like Onlyfans star earns 270 times more? (5)
 Nurses help individuals, families, and entire groups to identify and realize their physical, psychological, and social potential (4)(7)
 -So far, there are over 85 studies that link poor mental and emotional health to porn use (7) Pornography addiction was cited as a factor in 56 percent of divorces according to a recent study (29)
 Onlyfans is a Platform which produce Pornography content (28) (3) OnlyFans stars make 270 times more than the average worker (5) Iggy Azalea’s OnlyFans Earns $307K In 24 Hours (2) Average Earnings from OnlyFans including deactivate accounts or side-job account is $180/month (6)
  
-Agree? drug dealing is a valuable activity especially for people from socially disadvantaged backgrounds? is it a chance for self-empowerment, and is there potential for emancipation, financial independence?
+## Agree? drug dealing is a valuable activity especially for people from socially disadvantaged backgrounds? is it a chance for self-empowerment, and is there potential for emancipation, financial independence?
 “The cultural scientist and feminist: Madita Oeming sees Onlyfans as a new opportunity for self-empowerment. Women and men on Onlyfans are independent of studios or producers and have full control over their content and prices. And there is also emancipatory potential in profit. "Making that amount of money on your own can also save you from financial dependency and toxic relationships."(9)
 porn addiction, or problematic pornography use, affects approximately 3% to 6% of the adult population. Up to 65% of young adult men and 18% of Young Woman Report watching Pornography at least once a Week (35) Addicts are not to blame for their addiction, it is a problem for society as a whole and we are talking about shared responsibility (36)
 Youth don't Like to do useful occupation for society any more , maybe effect of  Well paid onlyfans creators, influencers, youtubers, gamers etc?
@@ -31,7 +31,7 @@ For decades Jobs Like Doctor, Engineer, veterinarian, teacher was on top of favo
 What is the Benefit of Popular Profiles that earns Millions through their Instagram?
 Who are you following? Cristiano Ronaldo (496m followers) Lionel Messi (373m followers) Kylie Jenner (372m followers) Selena Gomez (356m followers) Kim Kardashian (333m followers) Khloé Kardashian (279m followers) (40) or in Germany bibisbeautypalace, Julienco, Lisa und Lena mantler, Montana Black, Pia wurzbach, Pamela reif, dagibee,youneszarou,
  
-Does Instagram Lead to Ageing Population?
+## Does Instagram Lead to Ageing Population?
 Instagram sexualizes society (10) Children use Instagram (11) Children who used to be sexually active have unstable relationships and marriages when grew up. (12) Unstable relationships lead to lower birth rates (13) Lower fertility rate create aging population (14)
 Does Aging population and lack of labor leads to exploitation?
 Aging population brings the economy to collapse, there is a lack of workers and skilled workers. (15) most of Migrants come from poor Third World countries (16) Consequences for countries of origin: Economic disadvantage due to the loss of young workers• Loss of highly qualified personnel, especially health workers• Social problems for children who have been left behind or who have not grown up with a large family (17) with remittances could Countries of origin buy products from abroad again, money transfers are still to countries like Iran, banned by UN sanctions (18) most of third world countries have negative trade balance with Industrial countries (19) A negative trade balance (more imports than exports) results in unemployment and capital outflow abroad ( 20) Definition of exploitation: inappropriate use (especially of manpower, resources) It was more precisely defined in Marxist theories as the appropriation of someone else's labor (21)
@@ -47,7 +47,7 @@ Iran has enough enriched uranium to build ‘several’ nuclear weapons, UN says
 Take Benefits by damaging others, is it psychopathy?
 
 
-What is psychopathy? 
+## What is psychopathy? 
 Psychopathy is a serious personality disorder characterized by antisocial behavior, untruthfulness, irresponsibility, and lack of remorse or empathy. (172)
 
 Are current political and Economic systems best environment for psychopaths to thrive?
