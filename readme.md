@@ -155,31 +155,33 @@ Following possible?
 Law & Suggestions, seperate sector in comments: advantages and disadvantages, Like (vote) for Favorit Arguments. 
 > <sub> Example 1: 25€ Monthly for ARD,ZDF as Law? </sub>
 
-> <sub> Example 2: Should we build a power plant in Berlin?
-After 50%+ YES Decision: Which company Should build it?
-pay it Step by Step from each person Account or Should we send the money to a Psychopathically system to pay the company?
+> <sub> Example 2: Should we build a power plant in Berlin? </sub>
+> <sub> After 50%+ YES Decision: Which company Should build it? </sub>
+> <sub> pay it Step by Step from each person Account or Should we send the money to a Psychopathically system to pay the company? </sub>
  
 > <sub> Example 3: should we sanction Russia, Saudi Arabia, USA or China for Human rights? </sub>
 
 > <sub> Example 4: In a Village of 100 people. Voting example:  </sub>
  
-User 76: I think the Village is too dry, do we need to plant Tree?  </sub>
-No -
-Yes (by clicking Yes, Insert how many Trees?) </sub>
+> <sub> User 76: I think the Village is too dry, do we need to plant Tree? </sub>
 
-Pro comment on the right:  </sub>
+> <sub> No -
+
+> <sub> Yes (by clicking Yes, Insert how many Trees?) </sub>
+
+> <sub> Pro comment on the right: </sub>
  
-user 4. Human belongs to Nature. Having contact with Nature is necessary for Having a mental health for Human, children Environment (link to study1) -20 vote for this comment  </sub>
+> <sub> User 4. Human belongs to Nature. Having contact with Nature is necessary for Having a mental health for Human, children Environment (link to study1) -20 vote for this comment  </sub>
  
-User 22: if we have birds we have birds -12.  </sub>
+> <sub> User 22: if we have birds we have birds -12.  </sub>
 
-Contra:  </sub>
+> <sub> Contra:  </sub>
 
-User 74: plant a New Tree Costs 30€. You need Investment in water System. You need Company that care about it. 100€ per month. Devided to 100: a Family of 5 has to pay 5€. I dont want to pay this. We have Here enough Forst. No more Costs please. +20  </sub>
+> <sub> User 74: plant a New Tree Costs 30€. You need Investment in water System. You need Company that care about it. 100€ per month. Devided to 100: a Family of 5 has to pay 5€. I dont want to pay this. We have Here enough Forst. No more Costs please. +20  </sub>
  
-User 12: we have enough Trees. Each Tree Costs a lot to plant. +17  </sub>
+> <sub> User 12: we have enough Trees. Each Tree Costs a lot to plant. +17  </sub>
 
-Results:  </sub>
+> <sub> Results:  </sub>
 
 > <sub> 80% want to plant Tree </sub>
 
@@ -211,13 +213,14 @@ Results:  </sub>
  
 > <sub> After Yes 10€ Automaticaly sent to Them. </sub>
  
-> <sub> Example 5: Who should  pay more in taxes? 
+> <sub> Example 5: Who should  pay more in taxes? </sub>
 
-+fireman, nursing assistant, teacher?+
+> <sub> +fireman, nursing assistant, teacher? </sub>
 
-+or youtuber, instagramer, tik toker, porn performer who damage the society and international equality?+ </sub>
+> <sub> +or youtuber, instagramer, tik toker, porn performer who damage the society and international equality? </sub>
  
 #### Could People have in that App not only Political Voting area, rather Economic area too?
+
 And decide inside the Company that they work how much % each employee gets. instead of wages, direct profit or loss participation?
 Example, each person get 1000€ but Peter is a Handworker Guy, is very profitably. Because of him the company make more money every employee Benefits , in the app he can request for himself more shares or people can voluntarily vote to give him more % online. 
 
