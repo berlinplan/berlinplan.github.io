@@ -168,7 +168,7 @@ Law & Suggestions, seperate sector in comments: advantages and disadvantages, Li
  
 > <sub> User 76: I think the Village is too dry, do we need to plant Tree? </sub>
 
-> <sub> No -
+> <sub> No - </sub>
 
 > <sub> Yes (by clicking Yes, Insert how many Trees?) </sub>
 
@@ -220,7 +220,7 @@ Law & Suggestions, seperate sector in comments: advantages and disadvantages, Li
 
 > <sub> fireman, nursing assistant, teacher?
 
->  or youtuber, instagramer, tik toker, porn performer who damage the society and international equality? </sub>
+>  <sub> or youtuber, instagramer, tik toker, porn performer who damage the society and international equality? </sub>
  
 #### Could People have in that App not only Political Voting area, rather Economic area too?
 
