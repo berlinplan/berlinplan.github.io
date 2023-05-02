@@ -6,7 +6,7 @@ to be answered by you. consider the information under questions as a resource.
 ## How many Generations lived in past 2000 years?
 > ~70 Generation from jesus to now [202](https://answersingenesis.org/bible-timeline/genealogy/how-many-human-generations-are-there-from-adam-until-today/)
 #### How many Future Generations has to deal with Atom waste?
-> ~33000 Generations in Future [201](https://www.base.bund.de/DE/themen/kt/ausstieg-atomkraft/ausstieg_node.html)
+> ~33000 Generations[201](https://www.base.bund.de/DE/themen/kt/ausstieg-atomkraft/ausstieg_node.html)
 #### one Generation damage 33000 in Future.Moraly ok?
 > Germany switched off all its Nuclear PP [201]
 
