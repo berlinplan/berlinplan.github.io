@@ -55,7 +55,8 @@ porn addiction, or problematic pornography use, affects approximately 3% to 6% o
 
 #### 40%-80% of new Generation wants to be influencer by trade, why? 
 
-> <sub> Youth don't Like to do useful occupation for society, maybe effect of  Well paid onlyfans creators, influencers, youtubers, gamers etc? </sub>
+> <sub> why should a young Person work as firefighter , nursing Assistent for ~1300€ while he can earn much more in  onlyfans, as influencer youtubers gamers etc? </sub>
+
 > <sub> for decades Jobs Like Doctor, Engineer, veterinarian, teacher was on top of favorite list for children while Today 86 percent of people aged 13 to 38 would like to become a social influencer (37) in uk around 35% of children between 11-16 wants to be influencer and Youtuber (38) Germany lacks almost two million workers (39) </sub>
 
 #### What is the useful **production** of milioner influencers?
