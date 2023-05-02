@@ -153,10 +153,13 @@ Today with Apps you Most complicated verification processes for online bankings,
 
 Following possible? 
 Law & Suggestions, seperate sector in comments: advantages and disadvantages, Like (vote) for Favorit Arguments. 
+
 > <sub> Example 1: 25€ Monthly for ARD,ZDF as Law? </sub>
 
 > <sub> Example 2: Should we build a power plant in Berlin? </sub>
+
 > <sub> After 50%+ YES Decision: Which company Should build it? </sub>
+
 > <sub> pay it Step by Step from each person Account or Should we send the money to a Psychopathically system to pay the company? </sub>
  
 > <sub> Example 3: should we sanction Russia, Saudi Arabia, USA or China for Human rights? </sub>
@@ -171,17 +174,17 @@ Law & Suggestions, seperate sector in comments: advantages and disadvantages, Li
 
 > <sub> Pro comment on the right: </sub>
  
-> <sub> User 4. Human belongs to Nature. Having contact with Nature is necessary for Having a mental health for Human, children Environment (link to study1) -20 vote for this comment  </sub>
+> <sub> User 4. Human belongs to Nature. Having contact with Nature is necessary for Having a mental health for Human, children Environment (link to study1) -20 vote for this comment </sub>
  
-> <sub> User 22: if we have birds we have birds -12.  </sub>
+> <sub> User 22: if we have birds we have birds -12. </sub>
 
-> <sub> Contra:  </sub>
+> <sub> Contra: </sub>
 
-> <sub> User 74: plant a New Tree Costs 30€. You need Investment in water System. You need Company that care about it. 100€ per month. Devided to 100: a Family of 5 has to pay 5€. I dont want to pay this. We have Here enough Forst. No more Costs please. +20  </sub>
+> <sub> User 74: plant a New Tree Costs 30€. You need Investment in water System. You need Company that care about it. 100€ per month. Devided to 100: a Family of 5 has to pay 5€. I dont want to pay this. We have Here enough Forst. No more Costs please. +20 </sub>
  
-> <sub> User 12: we have enough Trees. Each Tree Costs a lot to plant. +17  </sub>
+> <sub> User 12: we have enough Trees. Each Tree Costs a lot to plant. +17 </sub>
 
-> <sub> Results:  </sub>
+> <sub> Results: </sub>
 
 > <sub> 80% want to plant Tree </sub>
 
@@ -189,21 +192,21 @@ Law & Suggestions, seperate sector in comments: advantages and disadvantages, Li
  
 > <sub> User 14: Company xxx is very cheap they take 20€ per Tree to plant. Keep Costs are low </sub>
  
-> <sub> User 20:,Company yyy is Better because take 30€ but fair as they use...</sub>
+> <sub> User 20:,Company yyy is Better because take 30€ but fair as they use </sub>
  
-> <sub> Other Options :</sub>
+> <sub> Other Options : </sub>
 
-> <sub> Cancel vote. (No Company found.) </sub>
+> <sub> Cancel vote.(No Company found.) </sub>
 
-> <sub> Extend time. (In order to find more) </sub>
+> <sub> Extend time.(In order to find more) </sub>
  
-> <sub> Result:</sub>
+> <sub> Result: </sub>
 
-> <sub> Company xxx will Start work.</sub>
+> <sub> Company xxx will Start work. </sub>
 
-> <sub> Order Created Automaticaly and sent.</sub>
+> <sub> Order Created Automaticaly and sent. </sub>
 
-> <sub> After week one : Company xxx Completed  25% work and want 25% of Money. Following pictures and Videos: </sub>
+> <sub> After week one : Company xxx Completed 25% work and want 25% of Money. Following pictures and Videos: </sub>
  
 > <sub> Your Part is 10€. Accept  /No Accept </sub>
 
@@ -213,9 +216,9 @@ Law & Suggestions, seperate sector in comments: advantages and disadvantages, Li
  
 > <sub> After Yes 10€ Automaticaly sent to Them. </sub>
  
-> <sub> Example 5: Who should  pay more in taxes? </sub>
+> <sub> Example 5: Who should  pay more in taxes?
 
-> <sub> +fireman, nursing assistant, teacher? </sub>
+> <sub> +fireman, nursing assistant, teacher?
 
 > <sub> +or youtuber, instagramer, tik toker, porn performer who damage the society and international equality? </sub>
  
