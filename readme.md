@@ -83,8 +83,9 @@ porn addiction, or problematic pornography use, affects approximately 3% to 6% o
 
 > <sub> French colonization only ended when the slaves in Haiti rebelled. 75000 white French and 350000 Haitian killed in Hiaitan Masacar (24) </sub>
 
-> <sub> Slavery in USA ended after First Uprisings and because of economic interests (25) World War II sharply reduced income and wealth inequality in many countries (26) </sub>
+> <sub> Slavery in USA ended after First Uprisings and because of economic interests (25) </sub>
 
+> <sub> World War II sharply reduced income and wealth inequality in many countries (26) </sub>
 
 <sub> **End of Sanctions & Inequality after Atomic war?** </sub>
 
