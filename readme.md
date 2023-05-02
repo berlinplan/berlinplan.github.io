@@ -30,7 +30,9 @@ to be answered by you. consider the information under questions as a resource.
 
 > <sub> Pablo Escobar Colombian drug lord and leader of the Medellin Cartel which controlled as much as 80% international Cocaine. Helped community with building schools and sports fields, donating vast sums to charity, and constructing housing.(187) </sub>
 
-#### Is following possible: Valuable activism in social media, despite studies and evidence of harmfulness, rise on inequality, polarization, tribalism, sexism, mental health issues?
+#### are social Media harmful for societies?
+
+> <sub> multiple studies found strong risk for depression, anxiety, loneliness, self-harm, and even suicidal thoughts, rise on inequality, polarization, tribalism, sexism, mental health issues[207](https://www.helpguide.org/articles/mental-health/social-media-and-mental-health.htm#:~:text=Since%20it's%20a%20relatively%20new,harm%2C%20and%20even%20suicidal%20thoughts.)</sub>
 
  Legit Against Argument?-> its people own fault, people have to Know What they consumpt. Not EveryThing in social Media is Bad. 
 Onlyfans creator Argument legit?-> porn addiction is people's own fault, you have to know what you are consuming.
