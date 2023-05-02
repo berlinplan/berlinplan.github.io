@@ -13,7 +13,9 @@ to be answered by you. consider the information under questions as a resource.
 > NPP switch off had for German people heavy Costs , Power crisis & Economic loss. [203](https://amp2.wiwo.de/unternehmen/energie/energiewende-der-wirtschaftliche-schaden-eines-schnellen-atomausstiegs/5154328.html)
 #### While many countries investing heavy in NPP, why Germans switched off?
 > awareness [204](https://www.greenpeace.de/klimaschutz/energiewende/atomausstieg#:~:text=Am%20Samstag%2C%2015.,Der%20Atomausstieg%20ist%20vollzogen.)
+
 > ethically unacceptable [205](https://www.deutschlandfunk.de/atomenergie-ist-per-se-ethisch-nicht-vertretbar-100.html)
+
 > worrines after Fukushima accident [206](https://www.bfs.de/DE/themen/ion/notfallschutz/notfall/fukushima/unfall.html)
 
 ## should drug dealers be punished or should they be rewarded?
