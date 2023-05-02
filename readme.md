@@ -53,9 +53,10 @@ Onlyfans is a Platform which produce Pornography content (28) (3) OnlyFans stars
 > <sub> “The cultural scientist and feminist: Madita Oeming sees **Onlyfans** as a **new opportunity** for **self-empowerment**. Women and men on Onlyfans are independent of studios or producers and have full control over their content and prices. And there is also **emancipatory** potential in profit. "Making that amount of money on your own can also save you from **financial dependency and toxic relationships**."(9)
 porn addiction, or problematic pornography use, affects approximately 3% to 6% of the adult population. Up to 65% of young adult men and 18% of Young Woman Report watching Pornography at least once a Week (35) Addicts are not to blame for their addiction, it is a problem for society as a whole and we are talking about shared responsibility (36) </sub>
 
-#### Youth don't Like to do useful occupation for society any more , maybe effect of  Well paid onlyfans creators, influencers, youtubers, gamers etc?
+#### 40%-80% of new Generation wants to be influencer by trade, why? 
 
-For decades Jobs Like Doctor, Engineer, veterinarian, teacher was on top of favorite list for children while Today 86 percent of people aged 13 to 38 would like to become a social influencer (37) in uk around 35% of children between 11-16 wants to be influencer and Youtuber (38) Deutschland fehlen fast zwei Millionen Arbeitskräfte (39)
+> <sub> Youth don't Like to do useful occupation for society, maybe effect of  Well paid onlyfans creators, influencers, youtubers, gamers etc? </sub>
+> <sub> for decades Jobs Like Doctor, Engineer, veterinarian, teacher was on top of favorite list for children while Today 86 percent of people aged 13 to 38 would like to become a social influencer (37) in uk around 35% of children between 11-16 wants to be influencer and Youtuber (38) Germany lacks almost two million workers (39) </sub>
 
 #### What is the Benefit of Popular Profiles that earns Millions through their Instagram?
 > Who are you following? 
