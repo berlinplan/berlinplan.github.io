@@ -5,7 +5,8 @@ to be answered by you. consider the information under questions as a resource.
 -all this Content can be changed by you. 
 ## How many Generations lived from Jesus to now?
 > ~70 Generation [202](https://answersingenesis.org/bible-timeline/genealogy/how-many-human-generations-are-there-from-adam-until-today/)
-
+### How many Generations has to handle Atom waste?
+> ~33000 Generations in Future [201](https://www.base.bund.de/DE/themen/kt/ausstieg-atomkraft/ausstieg_node.html)
 ## can awareness avoid a catastrophe? (nuclear phase-out)
 15.04.2023 Germany switched off all their nuclear power plants. Although it has caused very expensive electricity prices. 
 Although it had huge economic disadvantages and triggered a power crisis, although many countries still invest heavily in their nuclear program. People in germany decided Against letting the consequences of nuclear waste to be carried by more than 33,000 generations in Future and avoided a possible nuclear catastrophe.(201)
