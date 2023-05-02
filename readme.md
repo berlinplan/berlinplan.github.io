@@ -86,15 +86,15 @@ porn addiction, or problematic pornography use, affects approximately 3% to 6% o
 > <sub> Slavery in USA ended after First Uprisings and because of economic interests (25) World War II sharply reduced income and wealth inequality in many countries (26) </sub>
 
 
-<sub> **End of inequality , sanctions etc after Atomic war?** </sub>
+<sub> **End of Sanctions & Inequality after Atomic war?** </sub>
 
 > <sub> North Korea 100 Kiloton Atomic bomb.[209](https://www.bbc.com/news/world-asia-41174689.amp) Iran has enough enriched uranium to build ‘several’ nuclear weapons, UN says (30)</sub>
- 
 
-**Take Benefits by damaging others,psychopathy?**
+<sub> **While inequality damage Most , why is it on rise?** </sub>
 
+**Taking Benefits by damaging others, Psychopathy?**
 
-### What is psychopathy? 
+## What is psychopathy? 
 Psychopathy is a serious personality disorder characterized by antisocial behavior, untruthfulness, irresponsibility, and lack of remorse or empathy. (172)
 
 #### Are current political and Economic systems best environment for psychopaths to thrive?
