@@ -108,7 +108,7 @@ porn addiction, or problematic pornography use, affects approximately 3% to 6% o
 
 psychopaths are born, and sociopaths are created by life experiences. (51) Sociopaths have learned their behavior. They are therefore perfectly capable of feeling emotions, but usually don’t control them. Psychopaths, on the other hand, suffer from a genetic effect.(50)
 
-#### is it possible to keep psychopaths away?
+#### is it possible to keep psychopaths away from Power?
 
 Democracy for 2500 years is the best political system (68) Social hierarchies exist in democracies (64) Since psychopaths have no limitations on what they can or will do to get to the top, all hierarchies inevitably become top-heavy with psychopaths. (79) which turns democracy to Pathocracy (80)
 Is it possible to have a Hierarchic system without Psychopaths?
@@ -116,14 +116,19 @@ Clinton Callahan says: it is necessary to diagnose psychopathic personalities an
  
 #### As we can’t identify Psychopaths, is it Possible to create Systems without Hierarchie?
 
-wer mit dem Teufel essen will, braucht einen langen Löffel (69) He who sups with the devil should have a long spoon (70) Either don't make friends with elephant keepers / or build a house suitable for an elephant, -translation from Persian Poet Saadi (71)
-as Democracy is a system of 508 BCE, it has following disadvantages: Debate Culture Polarize the Society (65) Develop of Psychopaths, Corruption, Misuse of equality, no protection for the common man, Divide and rule methods, Unfair businesses, Addiction to power, media Misuse (63)
-Use Psychopaths Democratic Organisations,  law, Jusiz, Tax Office etc  for their own Interest?
-Big Companies have big Legal Departments (73) Lawsuits can be a drain on finances, energy, time, resources, and emotions. (74) if a common man miss a simple bill payment, this can lead him to pay late fees, credit score damage, and other negative financial consequences (75) someone goes to jail if “legal Departments” beat a for cheating (76) While big Companies have the Upper Hand a natural advantage, still Biggest Companies Don't Pay Taxes (77)
- 
+> <sub> wer mit dem Teufel essen will, braucht einen langen Löffel (69) He who sups with the devil should have a long spoon (70) <sub>
 
-#### Policeman, security man for richer guy to get richer?
-A Trumpf inherits a lot of wealth from his rich dad, in the pathoeconomics he Make from 3000 Appartements, 10000 and give it to His son, who Make x10.
+> <sub> as Democracy is a system of 508 BCE, it has following disadvantages: Debate Culture Polarize the Society (65) Develop of Psychopaths, Corruption, Misuse of equality, no protection for the common man, Divide and rule methods, Unfair businesses, Addiction to power, media Misuse (63) <sub>
+
+#### Could Democratic Organisations, law, Jusiz, Tax Office be mis used by Psychopaths?
+
+> <sub> Concerns have big Legal Departments (73) Lawsuits can be a drain on finances, energy, time, resources, and emotions. (74) if a common man miss a simple bill payment, this can lead him to pay late fees, credit score damage, and other negative financial consequences (75) someone goes to jail if “legal Departments” beat a for cheating (76) While big Companies have the Upper Hand a natural advantage, still Biggest Companies Don't Pay Taxes (77) </sub>
+ 
+<sub> **Police, apparatus of power for richer guy to get richer?** </sub>
+
+According to The New York Times, Donald Trump "was a millionaire by age 8" [210](https://www.nytimes.com/interactive/2018/10/02/us/politics/trump-family-wealth.html)
+
+Person A inherits 3000 from his dad, psychopathic Economic give him ability to grow to 6000 Appartements & his son to 10000 Appartements.
  
 Was something Like this in the whole history of Human  possible without Police? 
 
