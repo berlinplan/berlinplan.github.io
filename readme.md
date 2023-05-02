@@ -48,11 +48,13 @@ to be answered by you. consider the information under questions as a resource.
 -So far, there are over 85 studies that link poor mental and emotional health to porn use (7) Pornography addiction was cited as a factor in 56 percent of divorces according to a recent study (29)
 Onlyfans is a Platform which produce Pornography content (28) (3) OnlyFans stars make 270 times more than the average worker (5) Iggy Azalea’s OnlyFans Earns $307K In 24 Hours (2) Average Earnings from OnlyFans including deactivate accounts or side-job account is $180/month (6) </sub>
 
-#### Agree? drug dealing is a valuable because of self-empowerment, emancipation & financial independency for poors?
+#### acceptable Argument? drug dealing is best for self-empowerment, emancipation & financial independency for poor social Groups?
 
-“The cultural scientist and feminist: Madita Oeming sees Onlyfans as a new opportunity for self-empowerment. Women and men on Onlyfans are independent of studios or producers and have full control over their content and prices. And there is also emancipatory potential in profit. "Making that amount of money on your own can also save you from financial dependency and toxic relationships."(9)
-porn addiction, or problematic pornography use, affects approximately 3% to 6% of the adult population. Up to 65% of young adult men and 18% of Young Woman Report watching Pornography at least once a Week (35) Addicts are not to blame for their addiction, it is a problem for society as a whole and we are talking about shared responsibility (36)
-Youth don't Like to do useful occupation for society any more , maybe effect of  Well paid onlyfans creators, influencers, youtubers, gamers etc?
+> <sub> “The cultural scientist and feminist: Madita Oeming sees **Onlyfans** as a **new opportunity** for **self-empowerment**. Women and men on Onlyfans are independent of studios or producers and have full control over their content and prices. And there is also **emancipatory** potential in profit. "Making that amount of money on your own can also save you from **financial dependency and toxic relationships**."(9)
+porn addiction, or problematic pornography use, affects approximately 3% to 6% of the adult population. Up to 65% of young adult men and 18% of Young Woman Report watching Pornography at least once a Week (35) Addicts are not to blame for their addiction, it is a problem for society as a whole and we are talking about shared responsibility (36) </sub>
+
+#### Youth don't Like to do useful occupation for society any more , maybe effect of  Well paid onlyfans creators, influencers, youtubers, gamers etc?
+
 For decades Jobs Like Doctor, Engineer, veterinarian, teacher was on top of favorite list for children while Today 86 percent of people aged 13 to 38 would like to become a social influencer (37) in uk around 35% of children between 11-16 wants to be influencer and Youtuber (38) Deutschland fehlen fast zwei Millionen Arbeitskräfte (39)
 
 #### What is the Benefit of Popular Profiles that earns Millions through their Instagram?
