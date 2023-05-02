@@ -24,9 +24,11 @@ to be answered by you. consider the information under questions as a resource.
 
 ### why societies need laws Against drug dealers?
 
-<sub> Drug abuse: Addiction, Mental Health Disorder, Violence, Society collapse , high Costs to Social Health, Economy & Family.(8) Drug users cannot be treated as criminals (169) they suffer from  something out of their control (170) £10000 a week trade of drug dealers (171)#### Donating to charities with the money from Drug selling. morally right?</sub>
+> <sub> Drug abuse: Addiction, Mental Health Disorder, Violence, Society collapse , high Costs to Social Health, Economy & Family.(8) Drug users cannot be treated as criminals (169) they suffer from  something out of their control (170) £10000 a week trade of drug dealers (171) </sub> 
 
-Pablo Escobar Colombian drug lord and leader of the Medellin Cartel which controlled as much as 80% international Cocaine. Helped community with building schools and sports fields, donating vast sums to charity, and constructing housing. (187)
+#### Donating to charities with the money from Drug selling. morally right?
+
+> <sub> Pablo Escobar Colombian drug lord and leader of the Medellin Cartel which controlled as much as 80% international Cocaine. Helped community with building schools and sports fields, donating vast sums to charity, and constructing housing.(187) </sub>
 
 #### Is following possible: Valuable activism in social media, despite studies and evidence of harmfulness, rise on inequality, polarization, tribalism, sexism, mental health issues?
 
