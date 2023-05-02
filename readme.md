@@ -242,10 +242,13 @@ instead of fixed wages, percentage Participation in loss & Win.
 #### Could we have a better Society if we remove the Hierarchic Systems?
  
 ## What is a Society?
-> <sub> Cooperation is really important to human survival. Our ability to cooperate is what allows us to live in big groups. When we live in groups, we can work together. We divide up tasks so that different people can get really good at different things and do them better and more quickly (84)
-SOCIETY: people in general thought of as living together in organized communities with shared laws, traditions, and values (83)
-How many People in “Modern Societies” would fight if they get attacked by an enemy? Do we have same values?
-Example 1: approximately 30,000 fighters from at least 85 countries had joined the Islamic State of Iraq and Syria (ISIS) (85) ISIS had very Clear defined religious Values (86) around 6.6 Milion Syrian (87) 1.5 from Iraq (88) many from Lebanon, Jordan etc. Flee, approaximately 90% Young Muslim Men (89) According to the Qur'an and hadith, to flee from Jihad (war) is a Greater Sin. It is the twenty-seventh sin. (90) added to this, prophet of Islam said: “I disown every Muslim who settles among the mushrikeen” (Christians, Jews) (91) can someone say i am vegan(92) and eat meat everyday? </sub>
+> <sub> Cooperation is really important to human survival. Our ability to cooperate is what allows us to live in big groups. When we live in groups, we can work together. We divide up tasks so that different people can get really good at different things and do them better and more quickly (84) </sub>
+
+> <sub> SOCIETY: people in general thought of as living together in organized communities with shared laws, traditions, and values (83) </sub>
+
+#### How many People in “Modern Societies” would fight when attacked ? Do we have same values?
+
+> <sub> Example 1: approximately 30,000 fighters from at least 85 countries had joined the Islamic State of Iraq and Syria (ISIS) (85) ISIS had very Clear defined religious Values (86) around 6.6 Milion Syrian (87) 1.5 from Iraq (88) many from Lebanon, Jordan etc. Flee, approaximately 90% Young Muslim Men (89) According to the Qur'an and hadith, to flee from Jihad (war) is a Greater Sin. It is the twenty-seventh sin. (90) added to this, prophet of Islam said: “I disown every Muslim who settles among the mushrikeen” (Christians, Jews) (91) can someone say i am vegan(92) and eat meat everyday? </sub>
 
 ISIS Terrorists from 85 countries ->defined value->society. 
 And Million Group of people without 1 same Value to fight for it - > society? 
