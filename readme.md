@@ -58,10 +58,13 @@ porn addiction, or problematic pornography use, affects approximately 3% to 6% o
 > <sub> Youth don't Like to do useful occupation for society, maybe effect of  Well paid onlyfans creators, influencers, youtubers, gamers etc? </sub>
 > <sub> for decades Jobs Like Doctor, Engineer, veterinarian, teacher was on top of favorite list for children while Today 86 percent of people aged 13 to 38 would like to become a social influencer (37) in uk around 35% of children between 11-16 wants to be influencer and Youtuber (38) Germany lacks almost two million workers (39) </sub>
 
-#### What is the Benefit of Popular Profiles that earns Millions through their Instagram?
-> Who are you following? 
+#### What is the useful **production** of milioner influencers?
 
-Cristiano Ronaldo (496m followers) Lionel Messi (373m followers) Kylie Jenner (372m followers) Selena Gomez (356m followers) Kim Kardashian (333m followers) Khloé Kardashian (279m followers) (40) or in Germany bibisbeautypalace, Julienco, Lisa und Lena mantler, Montana Black, Pia wurzbach, Pamela reif, dagibee,youneszarou,
+> top-list:
+
+> <sub> *Cristiano Ronaldo (496m followers) *Lionel Messi (373m followers) *Kylie Jenner (372m followers) *Selena Gomez (356m followers) *Kim Kardashian (333m followers) *Khloé Kardashian (279m followers) (40) </sub>
+
+> <sub> in Germany: *bibisbeautypalace *Julienco *Lisa und Lena mantler *Montana Black *Pia wurzbach *Pamela reif *dagibee *youneszarou </sub>
  
 ## Does Instagram Lead to Ageing Population?
 Instagram sexualizes society (10) Children use Instagram (11) Children who used to be sexually active have unstable relationships and marriages when grew up. (12) Unstable relationships lead to lower birth rates (13) Lower fertility rate create aging population (14)
