@@ -7,13 +7,14 @@ to be answered by you. consider the information under questions as a resource.
 > ~70 Generation [202](https://answersingenesis.org/bible-timeline/genealogy/how-many-human-generations-are-there-from-adam-until-today/)
 #### How many Generations has to handle Atom waste?
 > ~33000 Generations in Future [201](https://www.base.bund.de/DE/themen/kt/ausstieg-atomkraft/ausstieg_node.html)
-#### one Generation decide for 33000 in Future.Moraly ok?
+#### one Generation damage 33000 in Future.Moraly ok?
 > Germany switched off all its Nuclear PP [201]
 
 > NPP switch off had for German people heavy Costs , Power crisis & Economic loss. [203](https://amp2.wiwo.de/unternehmen/energie/energiewende-der-wirtschaftliche-schaden-eines-schnellen-atomausstiegs/5154328.html)
-## can awareness avoid a catastrophe? (nuclear phase-out)
-15.04.2023 Germany switched off all their nuclear power plants. Although it has caused very expensive electricity prices. 
-Although it had huge economic disadvantages and triggered a power crisis, although many countries still invest heavily in their nuclear program. People in germany decided Against letting the consequences of nuclear waste to be carried by more than 33,000 generations in Future and avoided a possible nuclear catastrophe.(201)
+#### While many countries investing heavy in NPP, why Germans switched off?
+> awareness [204](https://www.greenpeace.de/klimaschutz/energiewende/atomausstieg#:~:text=Am%20Samstag%2C%2015.,Der%20Atomausstieg%20ist%20vollzogen.)
+> ethically unacceptable [205](https://www.deutschlandfunk.de/atomenergie-ist-per-se-ethisch-nicht-vertretbar-100.html)
+> worrines after Fukushima accident [206](https://www.bfs.de/DE/themen/ion/notfallschutz/notfall/fukushima/unfall.html)
 
 ## should drug dealers be punished or should they be rewarded?
 Damages of Drug abuse: Addiction, Mental Health Disorder, Violence, Individual Health Problems, and Causes high Costs to Social Health system, Social Economy and Family pushes societies to collapse (8) Drug users cannot be treated as criminals (169) they suffer from  something out of their control (170) £10000 a week trade of drug dealers (171)
