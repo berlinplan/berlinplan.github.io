@@ -110,11 +110,13 @@ psychopaths are born, and sociopaths are created by life experiences. (51) Socio
 
 #### is it possible to keep psychopaths away from Power?
 
-Democracy for 2500 years is the best political system (68) Social hierarchies exist in democracies (64) Since psychopaths have no limitations on what they can or will do to get to the top, all hierarchies inevitably become top-heavy with psychopaths. (79) which turns democracy to Pathocracy (80)
-Is it possible to have a Hierarchic system without Psychopaths?
-Clinton Callahan says: it is necessary to diagnose psychopathic personalities and keep them out of power. (79) But evidences show: No test is reliable to identify a psychopath (82)
+> <sub> Democracy for 2500 years is the best political system (68) Social hierarchies exist in democracies (64) Since psychopaths have no limitations on what they can or will do to get to the top, all hierarchies inevitably become top-heavy with psychopaths. (79) which turns democracy to Pathocracy (80)<sub>
+
+**a Hierarchic system without Psychopaths?**
+
+> <sub> Clinton Callahan says: it is necessary to diagnose psychopathic personalities and keep them out of power. (79) But evidences show: No test is reliable to identify a psychopath (82)<sub>
  
-#### As we can’t identify Psychopaths, is it Possible to create Systems without Hierarchie?
+#### we can’t identify Psychopaths, is it Possible to create Systems without Hierarchie?
 
 > <sub> wer mit dem Teufel essen will, braucht einen langen Löffel (69) He who sups with the devil should have a long spoon (70) <sub>
 
@@ -124,7 +126,8 @@ Clinton Callahan says: it is necessary to diagnose psychopathic personalities an
 
 > <sub> Concerns have big Legal Departments (73) Lawsuits can be a drain on finances, energy, time, resources, and emotions. (74) if a common man miss a simple bill payment, this can lead him to pay late fees, credit score damage, and other negative financial consequences (75) someone goes to jail if “legal Departments” beat a for cheating (76) While big Companies have the Upper Hand a natural advantage, still Biggest Companies Don't Pay Taxes (77) </sub>
  
-<sub> **Police, apparatus of power for richer guy to get richer?** </sub>
+
+**Police, apparatus of power for richer guy to get richer?**
 
 According to The New York Times, Donald Trump "was a millionaire by age 8" [210](https://www.nytimes.com/interactive/2018/10/02/us/politics/trump-family-wealth.html)
 
