@@ -127,46 +127,41 @@ psychopaths are born, and sociopaths are created by life experiences. (51) Socio
 > <sub> Concerns have big Legal Departments (73) Lawsuits can be a drain on finances, energy, time, resources, and emotions. (74) if a common man miss a simple bill payment, this can lead him to pay late fees, credit score damage, and other negative financial consequences (75) someone goes to jail if “legal Departments” beat a for cheating (76) While big Companies have the Upper Hand a natural advantage, still Biggest Companies Don't Pay Taxes (77) </sub>
  
 
-**Police, apparatus of power for richer guy to get richer?**
+**Judges, Courts & law system, apparatus of power for richer guy to get richer?**
 
 According to The New York Times, Donald Trump "was a millionaire by age 8" [210](https://www.nytimes.com/interactive/2018/10/02/us/politics/trump-family-wealth.html) what Would Happen if 1 Person do not pay him rent? 
 
 <sub> Person A inherits 3000 from his dad, psychopathic Economic give him ability to grow to 6000 Appartements & his son to 10000 Appartements.</sub>
  
-#### for the first time in history of Human  Multi bilion Wealths possible because of Police (too)? 
+#### for the first time in history of Human  Multi bilion Wealths possible because of Courts (developes)? 
 
 <sub> History-> too big wealth. too many securities/ killed by own securities. <sub>
 
-modern Society: Policeman paid by people's tax & take care that richer get richer. 
+modern Society: Securities paid by people's tax & take care that richer get richer. 
 
- if  you are late to pay the Land Lord, elon Musk, Jeff bezoz What will Happen to you?
+## Can a Simple voting app solve the 2500 years psychopathic Problem of democracy?
 
+Today with Apps you Most complicated verification processes for online bankings, Exchange Plattforms etc (fingerprint, Face Scan,etc) transfering big amount of money made Easy.(72) 
 
-smartphone, a Technology for consuming tik tok, Instagram, Youtube, Spotify, Facebook or use it as Tool for solving our Problems?
+> Smartphone, a Technology for consuming tik tok, Instagram, Youtube, Spotify, Facebook or use it as Tool for solving our Problems?
 
- Can a Simple voting app solve the 2500 years psychopathic Problem of democracy?
+#### Could an App replace Parliamentarians, Presidents, Gouverneur’s and all other Interesting Positions for Psychopaths?
 
-Today with Apps you Most complicated verification processes for online bankings, Exchange Plattforms etc (fingerprint, Face Scan,etc) transfering big amount of money made Easy. (72) 
+> <sub> duties of a President: make treaties with the approval of the Senate. veto bills and sign bills. represent nation in talks with foreign countries. enforce the laws that Congress passes. make suggestions about things that should be new laws. lead his political party. entertain foreign guests. recognize foreign countries. grant pardons. (66) The tasks of the parliamentarian are to legislate and control the work of the government. (67) </sub>
 
-
-Could an App replace Parliamentarians, Presidents, Gouverneur’s and all other Interesting Positions for Psychopaths?
-
-duties of a President: make treaties with the approval of the Senate. veto bills and sign bills. represent nation in talks with foreign countries. enforce the laws that Congress passes. make suggestions about things that should be new laws. lead his political party. entertain foreign guests. recognize foreign countries. grant pardons. (66) The tasks of the parliamentarian are to legislate and control the work of the government. (67)
-
-Instead of giving tax to Psychopaths to decide. Could we have the control on our own digital wallet? 
+#### Instead of giving tax to Psychopaths to decide. Could we have the control on our own digital wallet? 
 
 Following possible? 
 Law & Suggestions, seperate sector in comments: advantages and disadvantages, Like (vote) for Favorit Arguments. 
-Example: 25€ Monthly for ARD,ZDF as Law?
-Example: Should we build a power plant in Berlin?
+> <sub> Example 1: 25€ Monthly for ARD,ZDF as Law? </sub>
+
+> <sub> Example 2: Should we build a power plant in Berlin?
 After 50%+ YES Decision: Which company Should build it?
 pay it Step by Step from each person Account or Should we send the money to a Psychopathically system to pay the company?
  
-Example : should we sanction Russia, Saudi Arabia, USA or China for Human rights? 
+> <sub> Example 3: should we sanction Russia, Saudi Arabia, USA or China for Human rights? 
 
-Voting app scenarios : 
-Example :
-In a Village of 100 people. Voting example:
+> <sub> Example 4: In a Village of 100 people. Voting example:
  
 User 76: I think the Village is too dry, do we need to plant Tree?
 No -
@@ -177,49 +172,50 @@ Pro comment on the right :
 user 4. Human belongs to Nature. Having contact with Nature is necessary for Having a mental health for Human, children Environment (link to study1) -20 vote for this comment
  
 User 22: if we have birds we have birds -12
----------------
+
 Contra :
 User 74: plant a New Tree Costs 30€. You need Investment in water System. You need Company that care about it. 100€ per month. Devided to 100: a Family of 5 has to pay 5€. I dont want to pay this. We have Here enough Forst. No more Costs please. +20
  
 User 12: we have enough Trees. Each Tree Costs a lot to plant. +17
-------
+
 Results :
-80% want  to plant Tree
--------------
-Which Company  should plant it? Add comment :
+
+> <sub> 80% want to plant Tree </sub>
+
+> <sub> Which Company should plant them? Add comment: </sub>
  
-User 14: Company xxx is very cheap they take 20€ per Tree to plant. Keep Costs are low
+> <sub> User 14: Company xxx is very cheap they take 20€ per Tree to plant. Keep Costs are low </sub>
  
-User 20:,Company yyy is Better because take 30€ but fair as they use...
+> <sub> User 20:,Company yyy is Better because take 30€ but fair as they use...</sub>
  
+> <sub> Other Options :</sub>
+
+> <sub> Cancel vote. (No Company found.) </sub>
+
+> <sub> Extend time. (In order to find more) </sub>
  
-Other Options :
-Cancel vote. (No Company found.)
-Extend time. (In order to find more)
+> <sub> Result:</sub>
+
+> <sub> Company xxx will Start work.</sub>
+
+> <sub> Order Created Automaticaly and sent.</sub>
+
+> <sub> After week one : Company xxx Completed  25% work and want 25% of Money. Following pictures and Videos: </sub>
  
------------------------
-Result :
-Company xxx will Start work.
-Order Created Automaticaly and sent.
------------------------
-After week one : Company xxx Completed  25% work and want 25% of Money. Following pictures and Videos :
+> <sub> Your Part is 10€. Accept  /No Accept </sub>
+
+> <sub> After Yes vote 10€ will be Automaticaly Send to Company xxx </sub>
  
+> <sub> After week two : Company xxx Finished 100%. Accept?/No Accept </sub>
  
-Your Part is 10€. Accept  /No Accept
-After Yes vote 10€ will be Automaticaly Send to Company xxx
- 
--------------
- 
-After week two : Company xxx Finished 100%. Accept?/No Accept
- 
-After Yes 10€ Automaticaly sent to Them.
+> <sub> After Yes 10€ Automaticaly sent to Them. </sub>
  
 
-Who should  pay more in taxes? 
+> <sub> Example 5: Who should  pay more in taxes? 
 fireman, nursing assistant, teacher? 
-or youtuber, instagramer, tik toker, porn performer who damage the society and international equality?
+or youtuber, instagramer, tik toker, porn performer who damage the society and international equality? </sub>
  
-Could People have in that App not only Political Voting area, rather Economic area too?
+#### Could People have in that App not only Political Voting area, rather Economic area too?
 And decide inside the Company that they work how much % each employee gets. instead of wages, direct profit or loss participation?
 Example, each person get 1000€ but Peter is a Handworker Guy, is very profitably. Because of him the company make more money every employee Benefits , in the app he can request for himself more shares or people can voluntarily vote to give him more % online. 
 
