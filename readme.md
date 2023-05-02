@@ -36,6 +36,7 @@ For decades Jobs Like Doctor, Engineer, veterinarian, teacher was on top of favo
 
 **What is the Benefit of Popular Profiles that earns Millions through their Instagram?**
 > Who are you following? 
+
 Cristiano Ronaldo (496m followers) Lionel Messi (373m followers) Kylie Jenner (372m followers) Selena Gomez (356m followers) Kim Kardashian (333m followers) Khloé Kardashian (279m followers) (40) or in Germany bibisbeautypalace, Julienco, Lisa und Lena mantler, Montana Black, Pia wurzbach, Pamela reif, dagibee,youneszarou,
  
 ## Does Instagram Lead to Ageing Population?
