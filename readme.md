@@ -10,11 +10,11 @@ Although it had huge economic disadvantages and triggered a power crisis, althou
 
 ## should drug dealers be punished or should they be rewarded?
 Damages of Drug abuse: Addiction, Mental Health Disorder, Violence, Individual Health Problems, and Causes high Costs to Social Health system, Social Economy and Family pushes societies to collapse (8) Drug users cannot be treated as criminals (169) they suffer from  something out of their control (170) £10000 a week trade of drug dealers (171)
-**Donating to charities with the money from Drug selling. morally right?**
+#### Donating to charities with the money from Drug selling. morally right?
 
 Pablo Escobar Colombian drug lord and leader of the Medellin Cartel which controlled as much as 80% international Cocaine. Helped community with building schools and sports fields, donating vast sums to charity, and constructing housing. (187)
 
-**Is following possible: Valuable activism in social media, despite studies and evidence of harmfulness, rise on inequality, polarization, tribalism, sexism, mental health issues?**
+#### Is following possible: Valuable activism in social media, despite studies and evidence of harmfulness, rise on inequality, polarization, tribalism, sexism, mental health issues?
 
  Legit Against Argument?-> its people own fault, people have to Know What they consumpt. Not EveryThing in social Media is Bad. 
 Onlyfans creator Argument legit?-> porn addiction is people's own fault, you have to know what you are consuming.
@@ -27,14 +27,14 @@ Activity on onlyfans is harmful for society(7). Nurses help individuals, familie
 Onlyfans is a Platform which produce Pornography content (28) (3) OnlyFans stars make 270 times more than the average worker (5) Iggy Azalea’s OnlyFans Earns $307K In 24 Hours (2) Average Earnings from OnlyFans including deactivate accounts or side-job account is $180/month (6)
      
 
-**Agree? drug dealing is a valuable activity especially for people from socially disadvantaged backgrounds? is it a chance for self-empowerment, and is there potential for emancipation, financial independence?**
+#### Agree? drug dealing is a valuable activity especially for people from socially disadvantaged backgrounds? is it a chance for self-empowerment, and is there potential for emancipation, financial independence?
 
 “The cultural scientist and feminist: Madita Oeming sees Onlyfans as a new opportunity for self-empowerment. Women and men on Onlyfans are independent of studios or producers and have full control over their content and prices. And there is also emancipatory potential in profit. "Making that amount of money on your own can also save you from financial dependency and toxic relationships."(9)
 porn addiction, or problematic pornography use, affects approximately 3% to 6% of the adult population. Up to 65% of young adult men and 18% of Young Woman Report watching Pornography at least once a Week (35) Addicts are not to blame for their addiction, it is a problem for society as a whole and we are talking about shared responsibility (36)
 Youth don't Like to do useful occupation for society any more , maybe effect of  Well paid onlyfans creators, influencers, youtubers, gamers etc?
 For decades Jobs Like Doctor, Engineer, veterinarian, teacher was on top of favorite list for children while Today 86 percent of people aged 13 to 38 would like to become a social influencer (37) in uk around 35% of children between 11-16 wants to be influencer and Youtuber (38) Deutschland fehlen fast zwei Millionen Arbeitskräfte (39)
 
-**What is the Benefit of Popular Profiles that earns Millions through their Instagram?**
+#### What is the Benefit of Popular Profiles that earns Millions through their Instagram?
 > Who are you following? 
 
 Cristiano Ronaldo (496m followers) Lionel Messi (373m followers) Kylie Jenner (372m followers) Selena Gomez (356m followers) Kim Kardashian (333m followers) Khloé Kardashian (279m followers) (40) or in Germany bibisbeautypalace, Julienco, Lisa und Lena mantler, Montana Black, Pia wurzbach, Pamela reif, dagibee,youneszarou,
@@ -42,15 +42,15 @@ Cristiano Ronaldo (496m followers) Lionel Messi (373m followers) Kylie Jenner (3
 ## Does Instagram Lead to Ageing Population?
 Instagram sexualizes society (10) Children use Instagram (11) Children who used to be sexually active have unstable relationships and marriages when grew up. (12) Unstable relationships lead to lower birth rates (13) Lower fertility rate create aging population (14)
 
-**Does Aging population and lack of labor leads to exploitation?**
+#### Does Aging population and lack of labor leads to exploitation?
 
 Aging population brings the economy to collapse, there is a lack of workers and skilled workers. (15) most of Migrants come from poor Third World countries (16) Consequences for countries of origin: Economic disadvantage due to the loss of young workers• Loss of highly qualified personnel, especially health workers• Social problems for children who have been left behind or who have not grown up with a large family (17) with remittances could Countries of origin buy products from abroad again, money transfers are still to countries like Iran, banned by UN sanctions (18) most of third world countries have negative trade balance with Industrial countries (19) A negative trade balance (more imports than exports) results in unemployment and capital outflow abroad ( 20) Definition of exploitation: inappropriate use (especially of manpower, resources) It was more precisely defined in Marxist theories as the appropriation of someone else's labor (21)
 
-**Does exploitation lead to international inequality?**
+#### Does exploitation lead to international inequality?
 
 Exploitation increases the international inequality (22) Tracing the global history of inequality from the Stone Age to today, Walter Scheidel shows that it never dies peacefully. violent shocks reduce inequality. Blanket bombing from the American air fleet and two devastating atomic bombs. led to a decline in social inequality (23)
 
-**International Violent Shock Solution for International Inequality?**
+#### International Violent Shock Solution for International Inequality?
 
 French colonization only ended when the slaves in Haiti rebelled. 75000 white French and 350000 Haitian killed in Hiaitan Masacar (24) Slavery in USA ended after First Uprisings and because of economic interests (25) World War II sharply reduced income and wealth inequality in many countries (26)
 What tangible International Violent Shock would there be for countries like Iran and North Korea, against which the toughest sanctions are in place?
@@ -60,24 +60,24 @@ Iran has enough enriched uranium to build ‘several’ nuclear weapons, UN says
 **Take Benefits by damaging others,psychopathy?**
 
 
-## What is psychopathy? 
+### What is psychopathy? 
 Psychopathy is a serious personality disorder characterized by antisocial behavior, untruthfulness, irresponsibility, and lack of remorse or empathy. (172)
 
-**Are current political and Economic systems best environment for psychopaths to thrive?** 
+#### Are current political and Economic systems best environment for psychopaths to thrive?
 
 1.2% of U.S. adult men and 0.3% to 0.7% of U.S. adult women are considered to have clinically significant levels of psychopathic traits (175) (44)15% of Prisoners are Psychopaths (45) 21% of CEO`s are Psychopath’s (46) Many of US Presidents were Psychopaths (47) Aristotle warned us more than two millennia ago, democracies are best environment and milieu for psychopaths to develop. (49) During the past fifty years, psychopaths have gained almost absolute control of all the branches of government (173) based on Germany Population of 84.3 million, approximately 505000 male and 210000 female have Psychopathic profiles, as 15% of prisoners but 21% of CEO’s are Psychopaths, it is considered that there is a big number of successful Psychopaths in big Companies Leadership level and politics (177)
 
-**Are Psychopathic Systems creating Sociopathic behavior?**
+#### Are Psychopathic Systems creating Sociopathic behavior?
 
 psychopaths are born, and sociopaths are created by life experiences. (51) Sociopaths have learned their behavior. They are therefore perfectly capable of feeling emotions, but usually don’t control them. Psychopaths, on the other hand, suffer from a genetic effect.(50)
 
-**is it possible to keep psychopaths away?**
+#### is it possible to keep psychopaths away?
 
 Democracy for 2500 years is the best political system (68) Social hierarchies exist in democracies (64) Since psychopaths have no limitations on what they can or will do to get to the top, all hierarchies inevitably become top-heavy with psychopaths. (79) which turns democracy to Pathocracy (80)
 Is it possible to have a Hierarchic system without Psychopaths?
 Clinton Callahan says: it is necessary to diagnose psychopathic personalities and keep them out of power. (79) But evidences show: No test is reliable to identify a psychopath (82)
  
-**As we can’t identify Psychopaths, is it Possible to create Systems without Hierarchie?**
+#### As we can’t identify Psychopaths, is it Possible to create Systems without Hierarchie?
 
 wer mit dem Teufel essen will, braucht einen langen Löffel (69) He who sups with the devil should have a long spoon (70) Either don't make friends with elephant keepers / or build a house suitable for an elephant, -translation from Persian Poet Saadi (71)
 as Democracy is a system of 508 BCE, it has following disadvantages: Debate Culture Polarize the Society (65) Develop of Psychopaths, Corruption, Misuse of equality, no protection for the common man, Divide and rule methods, Unfair businesses, Addiction to power, media Misuse (63)
