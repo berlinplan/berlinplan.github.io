@@ -60,7 +60,8 @@ Psychopathy is a serious personality disorder characterized by antisocial behavi
 1.2% of U.S. adult men and 0.3% to 0.7% of U.S. adult women are considered to have clinically significant levels of psychopathic traits (175) (44)15% of Prisoners are Psychopaths (45) 21% of CEO`s are Psychopath’s (46) Many of US Presidents were Psychopaths (47) Aristotle warned us more than two millennia ago, democracies are best environment and milieu for psychopaths to develop. (49) During the past fifty years, psychopaths have gained almost absolute control of all the branches of government (173) based on Germany Population of 84.3 million, approximately 505000 male and 210000 female have Psychopathic profiles, as 15% of prisoners but 21% of CEO’s are Psychopaths, it is considered that there is a big number of successful Psychopaths in big Companies Leadership level and politics (177)
 **Are Psychopathic Systems creating Sociopathic behavior?**
 
-psychopaths are born, and sociopaths are created by life experiences. (51) Sociopaths have learned their behavior. They are therefore perfectly capable of feeling emotions, but usually don’t control them. Psychopaths, on the other hand, suffer from a genetic effect. (50)
+psychopaths are born, and sociopaths are created by life experiences. (51) Sociopaths have learned their behavior. They are therefore perfectly capable of feeling emotions, but usually don’t control them. Psychopaths, on the other hand, suffer from a genetic effect.(50)
+
 **is it possible to keep psychopaths away?**
 
 Democracy for 2500 years is the best political system (68) Social hierarchies exist in democracies (64) Since psychopaths have no limitations on what they can or will do to get to the top, all hierarchies inevitably become top-heavy with psychopaths. (79) which turns democracy to Pathocracy (80)
