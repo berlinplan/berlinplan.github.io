@@ -159,26 +159,27 @@ Law & Suggestions, seperate sector in comments: advantages and disadvantages, Li
 After 50%+ YES Decision: Which company Should build it?
 pay it Step by Step from each person Account or Should we send the money to a Psychopathically system to pay the company?
  
-> <sub> Example 3: should we sanction Russia, Saudi Arabia, USA or China for Human rights? 
+> <sub> Example 3: should we sanction Russia, Saudi Arabia, USA or China for Human rights? </sub>
 
-> <sub> Example 4: In a Village of 100 people. Voting example:
+> <sub> Example 4: In a Village of 100 people. Voting example:  </sub>
  
-User 76: I think the Village is too dry, do we need to plant Tree?
+User 76: I think the Village is too dry, do we need to plant Tree?  </sub>
 No -
-Yes (by clicking Yes, Insert how many Trees?)
+Yes (by clicking Yes, Insert how many Trees?) </sub>
 
-Pro comment on the right :
+Pro comment on the right:  </sub>
  
-user 4. Human belongs to Nature. Having contact with Nature is necessary for Having a mental health for Human, children Environment (link to study1) -20 vote for this comment
+user 4. Human belongs to Nature. Having contact with Nature is necessary for Having a mental health for Human, children Environment (link to study1) -20 vote for this comment  </sub>
  
-User 22: if we have birds we have birds -12
+User 22: if we have birds we have birds -12.  </sub>
 
-Contra :
-User 74: plant a New Tree Costs 30€. You need Investment in water System. You need Company that care about it. 100€ per month. Devided to 100: a Family of 5 has to pay 5€. I dont want to pay this. We have Here enough Forst. No more Costs please. +20
- 
-User 12: we have enough Trees. Each Tree Costs a lot to plant. +17
+Contra:  </sub>
 
-Results :
+User 74: plant a New Tree Costs 30€. You need Investment in water System. You need Company that care about it. 100€ per month. Devided to 100: a Family of 5 has to pay 5€. I dont want to pay this. We have Here enough Forst. No more Costs please. +20  </sub>
+ 
+User 12: we have enough Trees. Each Tree Costs a lot to plant. +17  </sub>
+
+Results:  </sub>
 
 > <sub> 80% want to plant Tree </sub>
 
@@ -210,10 +211,11 @@ Results :
  
 > <sub> After Yes 10€ Automaticaly sent to Them. </sub>
  
-
 > <sub> Example 5: Who should  pay more in taxes? 
-fireman, nursing assistant, teacher? 
-or youtuber, instagramer, tik toker, porn performer who damage the society and international equality? </sub>
+
++fireman, nursing assistant, teacher?+
+
++or youtuber, instagramer, tik toker, porn performer who damage the society and international equality?+ </sub>
  
 #### Could People have in that App not only Political Voting area, rather Economic area too?
 And decide inside the Company that they work how much % each employee gets. instead of wages, direct profit or loss participation?
