@@ -129,15 +129,16 @@ psychopaths are born, and sociopaths are created by life experiences. (51) Socio
 
 **Police, apparatus of power for richer guy to get richer?**
 
-According to The New York Times, Donald Trump "was a millionaire by age 8" [210](https://www.nytimes.com/interactive/2018/10/02/us/politics/trump-family-wealth.html)
+According to The New York Times, Donald Trump "was a millionaire by age 8" [210](https://www.nytimes.com/interactive/2018/10/02/us/politics/trump-family-wealth.html) what Would Happen if 1 Person do not pay him rent? 
 
-Person A inherits 3000 from his dad, psychopathic Economic give him ability to grow to 6000 Appartements & his son to 10000 Appartements.
+<sub> Person A inherits 3000 from his dad, psychopathic Economic give him ability to grow to 6000 Appartements & his son to 10000 Appartements.</sub>
  
-Was something Like this in the whole history of Human  possible without Police? 
+#### for the first time in history of Human  Multi bilion Wealths possible because of Police (too)? 
 
-As soon as a individual got too many wealthy, needed to pay too much for security, or got killed by own securities. 
-The Policeman paid by people tax and take care that richer get richer. 
------
+<sub> History-> too big wealth. too many securities/ killed by own securities. <sub>
+
+modern Society: Policeman paid by people's tax & take care that richer get richer. 
+
  if  you are late to pay the Land Lord, elon Musk, Jeff bezoz What will Happen to you?
 
 
