@@ -30,8 +30,8 @@ to be answered by you. consider the information under questions as a resource.
 
 > <sub> Pablo Escobar Colombian drug lord and leader of the Medellin Cartel which controlled as much as 80% international Cocaine. Helped community with building schools and sports fields, donating vast sums to charity, and constructing housing.(187) </sub>
 
-<sub> #### acceptable Argument? Drug Dealer : make drugs legal. right Drug & dosage cures.  </sub> 
-> medical use of opium. [208] (https://www.unodc.org/unodc/en/data-and-analysis/bulletin/bulletin_1953-01-01_3_page008.html)
+#### acceptable Argument? Drug Dealer : make drugs legal. right Drug & dosage cures.
+> medical use of opium. [208](https://www.unodc.org/unodc/en/data-and-analysis/bulletin/bulletin_1953-01-01_3_page008.html)
 
 Others are their own fault, wrong goods, wrong dose.Buy from me, I have good stuff.
 
