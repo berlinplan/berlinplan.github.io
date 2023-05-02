@@ -38,15 +38,15 @@ to be answered by you. consider the information under questions as a resource.
 
 > <sub> multiple studies found strong risk for depression, anxiety, loneliness, self-harm, and even suicidal thoughts, rise on inequality, polarization, tribalism, sexism, mental health issues[207](https://www.helpguide.org/articles/mental-health/social-media-and-mental-health.htm#:~:text=Since%20it's%20a%20relatively%20new,harm%2C%20and%20even%20suicidal%20thoughts.)</sub>
 
-#### acceptable Argument? Instagram Activists: Not all in social Media is Bad, its Your fault .
+#### acceptable Argument? Instagram Activists: Not all in social Media is Bad, its Your fault.
 
 > Onlyfans creator Argument legit?-> porn addiction is people's own fault, you have to know what you are consuming.
 
-## Nursing Assistant earns 1339.31€ per month (1)(4) vs Onlyfans star earns 270 morr(5)
-Activity on onlyfans is harmful for society(7). Nurses help individuals, families, and entire groups to identify and realize their physical, psychological, and social potential (4)(7)
+## socialy & moraly right? Onlyfans-star earns 270 more than a nursing Assistent ~1300€/mon (1)(4)(5)
+
+> <sub> Activity on onlyfans is harmful for society(7). Nurses help individuals, families, and entire groups to identify and realize their physical, psychological, and social potential (4)(7)
 -So far, there are over 85 studies that link poor mental and emotional health to porn use (7) Pornography addiction was cited as a factor in 56 percent of divorces according to a recent study (29)
-Onlyfans is a Platform which produce Pornography content (28) (3) OnlyFans stars make 270 times more than the average worker (5) Iggy Azalea’s OnlyFans Earns $307K In 24 Hours (2) Average Earnings from OnlyFans including deactivate accounts or side-job account is $180/month (6)
-     
+Onlyfans is a Platform which produce Pornography content (28) (3) OnlyFans stars make 270 times more than the average worker (5) Iggy Azalea’s OnlyFans Earns $307K In 24 Hours (2) Average Earnings from OnlyFans including deactivate accounts or side-job account is $180/month (6) </sub>
 
 #### Agree? drug dealing is a valuable because of self-empowerment, emancipation & financial independency for poors?
 
