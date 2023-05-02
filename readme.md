@@ -3,6 +3,8 @@
 to be answered by you. consider the information under questions as a resource.
 
 -all this Content can be changed by you. 
+## How many Generations lived from Jesus to now?
+> ~70 Generation [202](https://answersingenesis.org/bible-timeline/genealogy/how-many-human-generations-are-there-from-adam-until-today/)
 
 ## can awareness avoid a catastrophe? (nuclear phase-out)
 15.04.2023 Germany switched off all their nuclear power plants. Although it has caused very expensive electricity prices. 
