@@ -480,12 +480,12 @@ Is it morally acceptable to use barbaric torture methods with an 80% success rat
 <sub> **Can lying in an election to achieve power for a good cause later be morally justified?** </sub>
 > - End : save lifes  
 > - Mean : lie through election
-> - No : app-> lying in election ->Long time act -> change Structure of brain -> the damage of Systematik lie to society is higher than save life.
- 
+> - No : app-> Systematic lying in elections causes greater societal and personal damage than the benefit of saving lives later.
+
 
 > - End : save milion lifes
 > - Mean : kill thousends, Atom bomb Hiroshima? 
-> -  app
+> - app
 
  
 How  Islamization of Europe be stopped?
