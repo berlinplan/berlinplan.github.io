@@ -149,10 +149,9 @@ Today with Apps you Most complicated verification processes for online bankings,
 
 > <sub> duties of a President: make treaties with the approval of the Senate. veto bills and sign bills. represent nation in talks with foreign countries. enforce the laws that Congress passes. make suggestions about things that should be new laws. lead his political party. entertain foreign guests. recognize foreign countries. grant pardons. (66) The tasks of the parliamentarian are to legislate and control the work of the government. (67) </sub>
 
-#### Instead of giving tax to Psychopaths to decide. Could we have the control on our own digital wallet? 
+#### having money on own wallet, instead of letting psychopaths decide?
 
-Following possible? 
-Law & Suggestions, seperate sector in comments: advantages and disadvantages, Like (vote) for Favorit Arguments. 
+> voting app for Laws & Suggestions, seperate sector in comments: Pro/Contra, Like (vote) for Favorit Arguments. 
 
 > <sub> Example 1: 25€ Monthly for ARD,ZDF as Law? </sub>
 
