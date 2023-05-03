@@ -463,15 +463,15 @@ Is it morally acceptable to use barbaric torture methods with an 80% success rat
 > - No: due to App -> kill -> big damage
 
 
-> <sub> End: save 7 lifes </sub>
+> - <sub> End: save 7 lifes </sub>
 
-> <sub> Mean: kill 1 </sub>
+> - <sub> Mean: kill 1 </sub>
 
-> <sub> No: due to App -> kill -> big damage </sub>
+> - <sub> No: due to App -> kill -> big damage </sub>
 
 > - <sub> End: save all human kind </sub>
-> - Mean: kill 1 </sub>
-> - X: if this Case really happens, whole People on Planet get an Emergency Notification on APP to VOTE.  </sub>
+> - <sub> Mean: kill 1 </sub>
+> - <sub> X: if this Case really happens, whole People on Planet get an Emergency Notification on APP to VOTE. </sub>
 
 End: save Trapped Dog in car 
 Mean: break others property, enter privat room
