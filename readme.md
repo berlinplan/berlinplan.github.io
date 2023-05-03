@@ -285,11 +285,15 @@ The UK’s Indian, Pakistani, and Asian population surprised London by voting pr
 
 > <sub> The EU and Germany are being criticized for double standards.(153) </sub>
 
-## Multi-cultirism Leads to tolerant open minded society or paralized parallel societies?
+## Multiculturalism: Does it lead to a tolerant and open-minded society or paralyzed parallel societies?
 
-It claims that multi-Culturism is biggest benefit of Migration, leads to Cultural exchange, Tolerance is strengthened, learn from each other, Openness to other cultures, new influences - new ideas (110) 
+> Multiculturalism is often seen as a way to promote cultural exchange, tolerance, openness to other cultures, and new ideas. (110) However, there are also studies that show the opposite. Multiculturalism can lead to social tensions, culture clash, polarization, marginalization, and language problems.
 
-many studies prove the opposite. Cbm- Two individuals are able to influence each other only if the Distance between their opinion is below a given distance. A bounded confidence model is a model of consensus- like opinion dynamics in which the agents interact with each other only when their opinions are close enough. (111) free circulation of information, social media, political and religious Debates just Push different group to polarization (112) (113) at the Same time people with similar point of view follow, share and comment each other. Liberals follow liberals, conservative follows conservative. (114) discussion of the racial attitude items with others having similar attitudes significantly increased the gap between high- and low-prejudice groups. (115) based on that, extremists who meet and interact between themselves in a mosque, get even more extremist comparing to rising number of mosques in Germany, multi-culturism, raise the gap of Parallel Societies. (116)
+> A bounded confidence model is a model of consensus-like opinion dynamics in which agents interact only when their opinions are close enough.(111)
+
+> Free circulation of information, social media, and debates can lead to group polarization.(112)(113) 
+
+> People with similar points of view tend to follow, share, and comment on each other’s posts. Discussion of racial attitude items with others having similar attitudes significantly increased the gap between high- and low-prejudice groups. Based on that, extremists who meet and interact with each other in a mosque get even more extremist, which can raise the gap of parallel societies. (114,115,116)
 
 #### Leads Multi-Culturism to International inequality?
 
