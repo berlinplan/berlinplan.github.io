@@ -1,9 +1,3 @@
-
-> - ghh
-> - ggh
-> - gjkl
-
-
 # Berlinplan
  
 to be answered by you. consider the information under questions as a resource.
@@ -464,20 +458,20 @@ Is it morally acceptable to use barbaric torture methods with an 80% success rat
 
 #### does end justify the means?
 
-<sub> - End: save 1 life </sub>
-
-<sub> - Mean: kill 1 </sub>
-
-<sub> - No: due to App -> kill -> big damage </sub>
+> - End: save 1 life
+> - Mean: kill 1 
+> - No: due to App -> kill -> big damage
 
 
-<sub> End: save 7 lifes
-<sub> Mean: kill 1
-<sub> No: due to App -> kill -> big damage
+> <sub> End: save 7 lifes </sub>
 
-<sub> End: save all human kind
-<sub> Mean: kill 1
-<sub> X: if this Case really happens, whole People on Planet get an Emergency Notification on APP to VOTE!
+> <sub> Mean: kill 1 </sub>
+
+> <sub> No: due to App -> kill -> big damage </sub>
+
+- End: save all human kind
+- Mean: kill 1
+- X: if this Case really happens, whole People on Planet get an Emergency Notification on APP to VOTE!
 
 End: save Trapped Dog in car 
 Mean: break others property, enter privat room
