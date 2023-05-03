@@ -115,42 +115,39 @@ porn addiction, or problematic pornography use, affects approximately 3% to 6% o
 
 > <sub> North Korea 100 Kiloton Atomic bomb.[209](https://www.bbc.com/news/world-asia-41174689.amp) Iran has enough enriched uranium to build ‘several’ nuclear weapons, UN says (30)</sub>
 
-<sub> **What are the reasons for the increase in inequality despite its harmful effects?** </sub>
-
 **Is taking benefits at the expense of others a sign of psychopathy?**
 
 ## What is psychopathy? 
 
 > Psychopathy is a serious personality disorder characterized by antisocial behavior, untruthfulness, irresponsibility, and lack of remorse or empathy. (172)
 
-#### Are the current political & Economic Systems best environment for psychopaths to thrive?
+#### Do the current political and economic systems provide the best environment for psychopaths to thrive?
 
 > <sub> 1.2% of U.S. adult men and 0.3% to 0.7% of U.S. adult women are considered to have clinically significant levels of **psychopathic** traits (175) (44)15% of Prisoners are Psychopaths (45) 21% of CEO`s are Psychopath’s (46) Many of US Presidents were Psychopaths (47) Aristotle warned us more than two millennia ago, democracies are best environment and milieu for psychopaths to develop. (49) During the past fifty years, psychopaths have gained almost absolute control of all the branches of government (173) </sub>
 
 > <sub> 84.3 million Germans ~505000 male and 210000 female have Psychopathic profiles, as 15% of prisoners but 21% of CEO’s are Psychopaths, it is considered that there is a big number of successful Psychopaths in big Companies Leadership level and politics (177) </sub>
 
-#### Are Psychopathic Systems creating Sociopathic behavior?
+#### Do psychopathic systems contribute to the development of sociopathic behavior?
 
-psychopaths are born, and sociopaths are created by life experiences. (51) Sociopaths have learned their behavior. They are therefore perfectly capable of feeling emotions, but usually don’t control them. Psychopaths, on the other hand, suffer from a genetic effect.(50)
+> <sub> Psychopaths are born while sociopaths are created by life experiences. Sociopaths have learned their behavior and are capable of feeling emotions but usually don’t control them. Psychopaths, on the other hand, suffer from a genetic effect (50,51) </sub>
 
-#### is it possible to keep psychopaths away from Power?
+#### Can psychopaths be prevented from obtaining power?
 
-> <sub> Democracy for 2500 years is the best political system (68) Social hierarchies exist in democracies (64) Since psychopaths have no limitations on what they can or will do to get to the top, all hierarchies inevitably become top-heavy with psychopaths. (79) which turns democracy to Pathocracy (80)<sub>
+> <sub> Democracy has been the best political system for 2500 years. Social hierarchies exist in democracies, and since psychopaths have no limitations on what they can or will do to get to the top, all hierarchies inevitably become top-heavy with psychopaths. This turns democracy into pathocracy. (64,68,79,80) </sub>
 
-**a Hierarchic system without Psychopaths?**
+> <sub> Clinton Callahan: it is necessary to diagnose psychopathic personalities and keep them out of power.(79) </sub>
 
-> <sub> Clinton Callahan says: it is necessary to diagnose psychopathic personalities and keep them out of power. (79) But evidences show: No test is reliable to identify a psychopath (82)<sub>
+> <sub> There is no reliable test to identify a psychopath. (82) </sub>
  
-#### we can’t identify Psychopaths, is it Possible to create Systems without Hierarchie?
+#### Is it possible to create systems without hierarchies since we can’t identify psychopaths?
 
 > <sub> wer mit dem Teufel essen will, braucht einen langen Löffel (69) He who sups with the devil should have a long spoon (70) <sub>
 
-> <sub> as Democracy is a system of 508 BCE, it has following disadvantages: Debate Culture Polarize the Society (65) Develop of Psychopaths, Corruption, Misuse of equality, no protection for the common man, Divide and rule methods, Unfair businesses, Addiction to power, media Misuse (63) <sub>
+> <sub> Democracy is a system from 508 BCE and has the following disadvantages: debate culture polarizes society, development of psychopaths, corruption, misuse of equality, no protection for the common man, divide and rule methods, unfair businesses, addiction to power, and media misuse. (63,65) </sub>
 
-#### Could Democratic Organisations, law, Jusiz, Tax Office be mis used by Psychopaths?
+#### Can psychopaths misuse democratic organizations, law, justice, and tax offices?
 
-> <sub> Concerns have big Legal Departments (73) Lawsuits can be a drain on finances, energy, time, resources, and emotions. (74) if a common man miss a simple bill payment, this can lead him to pay late fees, credit score damage, and other negative financial consequences (75) someone goes to jail if “legal Departments” beat a for cheating (76) While big Companies have the Upper Hand a natural advantage, still Biggest Companies Don't Pay Taxes (77) </sub>
- 
+> <sub> Corporations have legal departments that can handle lawsuits. Lawsuits can be financially and emotionally draining for individuals. Late bill payments can lead to negative financial consequences such as late fees and credit score damage and sometimes to jail. The largest companies still do not pay taxes.(73,74,75,76,77) </sub>
 
 **Judges, Courts & law system, apparatus of power for richer guy to get richer?**
 
