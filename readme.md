@@ -441,39 +441,38 @@ Iran Human rights violation -> sanctions
  Iran need $ -> no Tourismus -> X Bikini on Beach Against values 
 -------------
 
-Is torture is wrong?
-hidden bomb in Shopping Center explode in 10 hours. 
-Maybe Your Family + 1000 will be killed. .
-Terorist is arrested &dont Talk. 
-If use a Barbaric torture method  ->80% possiblity to get the answer whitin 10 hours.
- Still dont use? 
- 
-------
-Why current ethics can not help us?
-Golden rules (Kant) : never use torture 
-Consequentialism : outcome is good. (Problem: Diktator claims My outcome will be good)
-Religion or pathocracy : Ask Leader or judge (psychopaths use their Power for own Interest)
+### Is torture wrong?
 
-Can app solve the ethical Problem for first time in Human history in Moral section ?
+Is it morally acceptable to use barbaric torture methods with an 80% success rate to extract information from a terrorist who has planted a bomb in a shopping center that will explode in 10 hours, potentially killing your family and 1000 others?
 
-explode bomb or torture-> society get damage -> Society vote ->
-Torture Ok for 48 hours -> torture Moraly 
-Torture bad for years -> torture immoral 
+**Why are current ethical rules insufficient?**
 
-end justify the means?
-----------
-End: save 1 life 
-Mean: kill 1
-No: due to App -> kill -> big damage
---------
-End: save 7 lifes
-Mean: kill 1
-No: due to App -> kill -> big damage
---------
-End: save all human kind
-Mean: kill 1
-X: if this Case really happens, whole People on Planet get an Emergency Notification on APP to VOTE!
---------
+> While Kant's Golden Rule forbids torture, Consequentialism considers it ethical if the result is favorable. Psychopaths often justify their actions by claiming that the outcome will be good.
+
+> Religious and political psychopaths suggest seek moral justification from leaders or judges.
+
+
+#### How can the Voting app solve ethical problems for the first time in human history?
+
+>The ethical dilemma of allowing a bomb to explode or using torture can only be resolved by society. If society votes for it for a limited time, then torture is morally acceptable, but doing it for months is unethical.
+
+#### does end justify the means?
+
+<sub> End: save 1 life </sub>
+
+<sub> Mean: kill 1 </sub>
+
+<sub> No: due to App -> kill -> big damage </sub>
+
+
+<sub> End: save 7 lifes
+<sub> Mean: kill 1
+<sub> No: due to App -> kill -> big damage
+
+<sub> End: save all human kind
+<sub> Mean: kill 1
+<sub> X: if this Case really happens, whole People on Planet get an Emergency Notification on APP to VOTE!
+
 End: save Trapped Dog in car 
 Mean: break others property, enter privat room
  
