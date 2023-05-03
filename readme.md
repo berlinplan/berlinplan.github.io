@@ -194,42 +194,33 @@ People’s taxes finance the executive, legislative, and judiciary of modern soc
 
 > <sub> on the right side comments "for" it. </sub>
  
-> <sub> User 4. on the right side comments for it.
-> <sub> User 22: if we have birds we have birds -12. </sub>
+> <sub> User 4. Nature is essential for human mental health and well-being. According to this study, children also benefit from contact with nature (20 Votes) </sub>
 
-> <sub> Contra: </sub>
+> <sub> User 22: Trees brings birds (12 Votes) </sub>
 
-> <sub> User 74: plant a New Tree Costs 30€. You need Investment in water System. You need Company that care about it. 100€ per month. Devided to 100: a Family of 5 has to pay 5€. I dont want to pay this. We have Here enough Forst. No more Costs please. +20 </sub>
- 
-> <sub> User 12: we have enough Trees. Each Tree Costs a lot to plant. +17 </sub>
+> <sub> on the left side comments "against" it. </sub>
 
-> <sub> Results: </sub>
+> <sub> User 74: Planting a new tree costs 30€ and requires an investment in a water system and an external keeping company. The cost is 100€ per month, divided among 100 people. However, there are other ways to support the forest without additional costs(20 Votes) </sub>
 
-> <sub> 80% want to plant Tree </sub>
+> <sub> User 12: Planting trees is expensive and we already have enough trees.(17 Votes) </sub>
 
-> <sub> Which Company should plant them? Add comment: </sub>
- 
-> <sub> User 14: Company xxx is very cheap they take 20€ per Tree to plant. Keep Costs are low </sub>
- 
-> <sub> User 20:,Company yyy is Better because take 30€ but fair as they use </sub>
- 
-> <sub> Other Options : </sub>
+> <sub> Results: 80% of people want to plant trees. </sub>
 
-> <sub> Cancel vote.(No Company found.) </sub>
+> <sub> Which company is best suited to plant trees? Please add your comment </sub>
 
-> <sub> Extend time.(In order to find more) </sub>
- 
-> <sub> Result: </sub>
+> <sub> User 14: Company xxx charges only 20€ per tree for planting and has low costs. </sub>
 
-> <sub> Company xxx will Start work. </sub>
+> <sub> User 20:Company yyy charges 30€ per tree but is environmentally friendly as they don’t use cars. </sub>
 
-> <sub> Order Created Automaticaly and sent. </sub>
+> <sub> Other Options: (cancel Vote) due to no company found. (extend time) to find more companies. </sub>
 
-> <sub> After week one : Company xxx Completed 25% work and want 25% of Money. Following pictures and Videos: </sub>
- 
-> <sub> Your Part is 10€. </sub>
+> <sub> Result: </sub> Company xxx selected. </sub>
 
-> <sub> accept  / reject </sub>
+> <sub> Order created Automatically and sent. </sub>
+
+> <sub> After week one: Company xxx has completed 25% of the work and is requesting 25% of the payment. Pictures and videos are available. </sub>
+
+> <sub> Your Part is 10€. accept?  / reject? </sub>
 
 > <sub> After acception 10€ will be Automaticaly Send to Company xxx </sub>
  
