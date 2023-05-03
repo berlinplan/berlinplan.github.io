@@ -37,9 +37,27 @@ to be answered by you. consider the information under questions as a resource.
 
 >  Not all drugs are harmful; for instance, opium has legitimate medical applications.[208](https://www.unodc.org/unodc/en/data-and-analysis/bulletin/bulletin_1953-01-01_3_page008.html)
 
-#### are social Media harmful for societies?
+#### Can social media be considered harmful to societies, or are the effects primarily beneficial?
 
-> <sub> multiple studies found strong risk for depression, anxiety, loneliness, self-harm, and even suicidal thoughts, rise on inequality, polarization, tribalism, sexism, mental health issues[207](https://www.helpguide.org/articles/mental-health/social-media-and-mental-health.htm#:~:text=Since%20it's%20a%20relatively%20new,harm%2C%20and%20even%20suicidal%20thoughts.)</sub>
+> <sub> 1. Mental health problems such as depression, anxiety, and addiction. </sub>
+
+> <sub> 2. Cyberbullying and online harassment. </sub>
+
+> <sub> 3. Spread of false information and misinformation. </sub>
+
+> <sub> 4. Encouragement of negative behaviors such as trolling, hate speech, and extremism. </sub>
+
+> <sub> 5. Erosion of privacy and personal data security. </sub>
+
+> <sub> 6. Disruption of social interactions and relationships. </sub>
+
+> <sub> 7. Impact on productivity and time management. </sub>
+
+> <sub> 8. Polarization and division of opinions and ideologies. </sub>
+
+> <sub> 9. Influence on self-image and body image, especially among younger generations. </sub>
+
+> <sub> 10. Exposure to inappropriate content and dangerous online challenges.[207](https://www.helpguide.org/articles/mental-health/social-media-and-mental-health.htm#:~:text=Since%20it's%20a%20relatively%20new,harm%2C%20and%20even%20suicidal%20thoughts.) </sub>
 
 #### acceptable Argument? Instagram Activists: Not all in social Media is Bad, its Your fault.
 
