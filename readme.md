@@ -3,18 +3,21 @@
 to be answered by you. consider the information under questions as a resource.
 
 -all this Content can be changed by you. 
-## How many Generations lived in past 2000 years?
+## What is the total number of generations that have lived over the past 2000 years?
+
 > ~70 Generation from jesus to now [202](https://answersingenesis.org/bible-timeline/genealogy/how-many-human-generations-are-there-from-adam-until-today/)
 
-#### How many Future Generations has to deal with Atom waste?
+#### What is the estimated number of future generations that will have to manage nuclear waste disposal?
+
 > ~33000 Generations[201](https://www.base.bund.de/DE/themen/kt/ausstieg-atomkraft/ausstieg_node.html)
 
-#### one Generation damage 33000 in Future.Moraly ok?
-> Germany switched off all its Nuclear PP [201]
+#### Is it morally justifiable for one generation's actions to cause harm to 33,000 individuals in the future?
 
-> NPP switch off had for German people heavy Costs , Power crisis & Economic loss. [203](https://amp2.wiwo.de/unternehmen/energie/energiewende-der-wirtschaftliche-schaden-eines-schnellen-atomausstiegs/5154328.html)
+> Germany has decommissioned all of its nuclear power plants. [201]
 
-#### While many countries investing heavy in NPP, why Germans switched off?
+> The decision to switch off nuclear power plants resulted in significant costs, power shortages, and economic losses for the people of Germany. [203](https://amp2.wiwo.de/unternehmen/energie/energiewende-der-wirtschaftliche-schaden-eines-schnellen-atomausstiegs/5154328.html)
+
+#### Why did Germany switch off its nuclear power plants despite heavy investments in this technology by other countries?
 
 > awareness [204](https://www.greenpeace.de/klimaschutz/energiewende/atomausstieg#:~:text=Am%20Samstag%2C%2015.,Der%20Atomausstieg%20ist%20vollzogen.)
 
@@ -22,7 +25,7 @@ to be answered by you. consider the information under questions as a resource.
 
 > worrines after Fukushima accident [206](https://www.bfs.de/DE/themen/ion/notfallschutz/notfall/fukushima/unfall.html)
 
-### why societies need laws Against drug dealers?
+### Why do societies require laws to prohibit drug dealers?
 
 > <sub> Drug abuse: Addiction, Mental Health Disorder, Violence, Society collapse , high Costs to Social Health, Economy & Family.(8) Drug users cannot be treated as criminals (169) they suffer from  something out of their control (170) £10000 a week trade of drug dealers (171) </sub> 
 
