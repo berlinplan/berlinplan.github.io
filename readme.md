@@ -169,36 +169,32 @@ People’s taxes finance the executive, legislative, and judiciary of modern soc
 
 > Can smartphones be used as tools to solve big problems or are they only for consuming social media?
 
-#### Could an App replace Parliamentarians, Presidents, Gouverneur’s and all other Interesting Positions for Psychopaths?
+#### Can an app replace politicians, parliamentarians, presidents, governors and other attractive positions for Psychopaths?
 
-> <sub> duties of a President: make treaties with the approval of the Senate. veto bills and sign bills. represent nation in talks with foreign countries. enforce the laws that Congress passes. make suggestions about things that should be new laws. lead his political party. entertain foreign guests. recognize foreign countries. grant pardons. (66) The tasks of the parliamentarian are to legislate and control the work of the government. (67) </sub>
+> <sub> The President’s duties include making treaties, vetoing and signing bills, representing the nation in talks with foreign countries, enforcing laws passed by Congress, making suggestions about new laws, leading their political party, entertaining foreign guests, recognizing foreign countries and granting pardons. The parliamentarian’s tasks are to legislate and control the work of the government. (66,67) </sub>
 
-#### having money on own wallet, instead of letting psychopaths decide?
+#### What are the benefits of having money in your own wallet instead of letting psychopaths decide?
 
-> voting app for Laws & Suggestions, seperate sector in comments: Pro/Contra, Like (vote) for Favorit Arguments. 
+> <sub> A voting app for laws and suggestions with a separate sector for comments that includes pros and cons. Users can vote for their favorite arguments. </sub>
+> <sub> Example 1: should it be mandatory to pay monthly for ARD and ZDF? </sub>
 
-> <sub> Example 1: 25€ Monthly for ARD,ZDF as Law? </sub>
+> <sub> Example 2: Should we construct a power plant in our village? </sub>
 
-> <sub> Example 2: Should we build a power plant in Berlin? </sub>
+> <sub> Which company should build it after a 50%+ YES decision? </sub>
 
-> <sub> After 50%+ YES Decision: Which company Should build it? </sub>
+> <sub> Should we pay it step by step from each person’s account or send the money to a psychopathic system to pay the company? </sub>
 
-> <sub> pay it Step by Step from each person Account or Should we send the money to a Psychopathically system to pay the company? </sub>
+> <sub> Example 3: Should we impose sanctions on Russia, Saudi Arabia, USA or China for human rights violations? </sub>
+
+> <sub> Example 4: Voting example in a village of 100 people. </sub> 
+
+> <sub> User 76: The village is too dry, do we need to plant trees?
+
+> <sub> No  |  Yes (How many trees should be planted? by clicking “Yes”) </sub>
+
+> <sub> on the right side comments "for" it. </sub>
  
-> <sub> Example 3: should we sanction Russia, Saudi Arabia, USA or China for Human rights? </sub>
-
-> <sub> Example 4: In a Village of 100 people. Voting example:  </sub>
- 
-> <sub> User 76: I think the Village is too dry, do we need to plant Tree? </sub>
-
-> <sub> No - </sub>
-
-> <sub> Yes (by clicking Yes, Insert how many Trees?) </sub>
-
-> <sub> Pro comment on the right: </sub>
- 
-> <sub> User 4. Human belongs to Nature. Having contact with Nature is necessary for Having a mental health for Human, children Environment (link to study1) -20 vote for this comment </sub>
- 
+> <sub> User 4. on the right side comments for it.
 > <sub> User 22: if we have birds we have birds -12. </sub>
 
 > <sub> Contra: </sub>
