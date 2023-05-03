@@ -370,20 +370,22 @@ The UK’s Indian, Pakistani, and Asian population surprised London by voting pr
 
 > Psychopathic democracies lead to corruption, which destroys the moral fabric of society. (122)
  
-#### How could the voting app solve Moral collapse?
+#### Can the voting app be used to prevent moral collapse?
 
-seperate Value sector, (As Political & Economic) Groups define clearly their value 
+> A separate value sector, like political and economic sectors, where groups clearly define their values can be established
 
-Select Your values -> end of Institutional relegion? 
-Interesting Positions for Psychopaths, Leaders, Mullah, Priest etc. destroyed by a voting app 
+> Can the removal of attractive positions for psychopaths, leaders, mullahs, and priests bring an end to institutional religion?
 
-Creating first societies possible? 
-Buddhists, Hindus,Christians, Moslems, Atheists, Western Values, etc., people with the similar Values Join together
+<sub> **Can societies be established again?** </sub>
 
-Creating first continental countries? 
-example, Christian society in Asia, has same Values with 2 other Countries in South America, could they join together make a country?
+> <sub> Individuals who share similar values, such as Buddhists, Hindus, Christians, Muslims, atheists, and Western values, can form a group.</sub>
 
-Creating first Oversocieties? 
+<sub> **Creating the first intercontinental countries?** </sub>
+
+> <sub> Buddhist society in Asia and two South American societies could unite to form a country if they share the same values </sub>
+
+**Creating the first Oversocieties?**
+
 Common values of society 1, society 2...society 10
 
 Christian, Hindus, Chinese, islamic, Atheists societies -> No to atomb bomb -> all societies Follow 
