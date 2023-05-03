@@ -89,7 +89,11 @@ porn addiction, or problematic pornography use, affects approximately 3% to 6% o
 
 > <sub> Cristiano Ronaldo (496m followers) Lionel Messi (373m followers) Kylie Jenner (372m followers) Selena Gomez (356m followers) Kim Kardashian (333m followers) Khloé Kardashian (279m followers) (40) or in Germany bibisbeautypalace, Julienco, Lisa und Lena mantler, Montana Black, Pia wurzbach, Pamela reif, dagibee,youneszarou </sub>
 
-> <sub> Instagram sexualizes society (10) Children use Instagram (11) Children who used to be sexually active have unstable relationships and marriages when grew up. (12) Unstable relationships lead to lower birth rates (13) Lower fertility rate create aging population(14) </sub>
+> <sub> 1. Instagram has been accused of sexualizing society. </sub>
+
+> <sub> 2. Instagram is used by children. </sub> 
+
+> <sub> 3. Early sexual activity lead to unstable relationships and marriages when children grow up, which can contribute to lower birth rates and an aging population. (10,11,12,13,14) </sub>
 
 #### Why Aging population & lack of labor leads to exploitation?
 
