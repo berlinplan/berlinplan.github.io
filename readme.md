@@ -462,36 +462,30 @@ Is it morally acceptable to use barbaric torture methods with an 80% success rat
 > - Mean: kill 1 
 > - No: due to App -> kill -> big damage
 
+> - End: save 7 lifes
+> - Mean: kill 1
+> - No: due to App -> kill -> big damage
 
-> - <sub> End: save 7 lifes </sub>
+> - End: save all human kind </sub>
+> - Mean: kill 1 </sub>
+> - X: if this Case really happens, whole People on Planet get an Emergency Notification on APP to VOTE. </sub>
 
-> - <sub> Mean: kill 1 </sub>
+> - End: save Trapped Dog in car 
+> - Mean: break others property, enter privat room
+> - Yes: app-> dont save life is a bigger damage than enter some ones private room
 
-> - <sub> No: due to App -> kill -> big damage </sub>
+> someone gives Money to Girl friend to Abort 
+> is election candidate for anti abortion Law to save lifes 
 
-> - <sub> End: save all human kind </sub>
-> - <sub> Mean: kill 1 </sub>
-> - <sub> X: if this Case really happens, whole People on Planet get an Emergency Notification on APP to VOTE. </sub>
-
-End: save Trapped Dog in car 
-Mean: break others property, enter privat room
+> - End : save lifes  
+> - Mean : lie through election
+> - No : app-> lying in election ->Long time act -> change Structure of brain -> the damage of Systematik lie to society is higher than save life.
  
-Yes: app-> dont save life is a bigger damage than enter some ones private room
------
-->someone gives Money to Girl friend to Abort 
--> is election candidate for anti abortion Law to save lifes 
 
-End : save lifes  
-Mean : lie through election
- 
-No : app-> lying in election ->Long time act -> change Structure of brain -> the damage of Systematik lie to society is higher than save life.
- 
-------
-End : save milion lifes
-Mean : kill thousends, Atom bomb Hiroshima? 
- 
--> app
---------
+> - End : save milion lifes
+> - Mean : kill thousends, Atom bomb Hiroshima? 
+> -  app
+
  
 How  Islamization of Europe be stopped?
 Until 2050 Sweden can have 31% Moslems bis 2050 Germany 20%. In Big Cities Like Berlin, Düsseldorf or Köln the Number could be 60% (127) (128) Islamic Sharia in Berlin as concept of Islam could be good possible (130)
