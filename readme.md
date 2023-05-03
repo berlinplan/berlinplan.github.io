@@ -95,9 +95,9 @@ porn addiction, or problematic pornography use, affects approximately 3% to 6% o
 
 > <sub> 3. Early sexual activity lead to unstable relationships and marriages when children grow up, which can contribute to lower birth rates and an aging population. (10,11,12,13,14) </sub>
 
-#### Why Aging population & lack of labor leads to exploitation?
+#### Why does an aging population and lack of labor lead to exploitation?
 
-> <sub> Aging population brings the economy to collapse, there is a lack of workers and skilled workers. (15) most of Migrants come from poor Third World countries (16) Consequences for countries of origin: Economic disadvantage due to the loss of young workers• Loss of highly qualified personnel, especially health workers• Social problems for children who have been left behind or who have not grown up with a large family (17) remittances/ money transfers are blocked & under UN sanctions (18) poor countries have negative trade balance with Industrial countries (19) A negative trade balance (more imports than exports) results in unemployment and capital outflow abroad ( 20) Definition of exploitation: inappropriate use (especially of manpower, resources) It was more precisely defined in Marxist theories as the appropriation of someone else's labor (21)</sub>
+> <sub> An aging population can bring the economy to collapse due to a lack of workers and skilled workers (15). Most migrants come from poor third-world countries (16), which can have consequences for the countries of origin such as economic disadvantage due to the loss of young workers, loss of highly qualified personnel (especially health workers), and social problems for children who have been left behind or who have not grown up with a large family (17). Remittances/money transfers are blocked and under UN sanctions (18) poor countries have a negative trade balance with industrial countries (19). A negative trade balance (more imports than exports) results in unemployment and capital outflow abroad (20). Exploitation is defined as inappropriate use (especially of manpower, resources) and was more precisely defined in Marxist theories as the appropriation of someone else’s labor (21). </sub>
 
 #### Does exploitation lead to international inequality?
 
