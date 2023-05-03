@@ -77,11 +77,13 @@ to be answered by you. consider the information under questions as a resource.
 
 porn addiction, or problematic pornography use, affects approximately 3% to 6% of the adult population. Up to 65% of young adult men and 18% of Young Woman Report watching Pornography at least once a Week (35) Addicts are not to blame for their addiction, it is a problem for society as a whole and we are talking about shared responsibility (36) </sub>
 
-#### 40%-80% of new Generation wants to be influencer by trade, why? 
+#### What is the reason for approximately 40% of the new generation wanting to pursue a career as an influencer?
 
-> <sub> why should a young Person work as firefighter , nursing Assistent for ~1300€ while he can earn much more in  onlyfans, as influencer youtubers gamers etc? </sub>
+> <sub> Despite the high earning potential of OnlyFans, influencer, YouTuber, and gamer careers, why should a young person consider working as a firefighter or nursing assistant for a relatively low salary of around €1300? </sub>
 
-> <sub> for decades Jobs Like Doctor, Engineer, veterinarian, teacher was on top of favorite list for children while Today 86 percent of people aged 13 to 38 would like to become a social influencer (37) in uk around 35% of children between 11-16 wants to be influencer and Youtuber (38) Germany lacks almost two million workers (39) </sub>
+> <sub> While doctor, engineer, veterinarian and teacher were the most popular jobs for children in the past, today’s young generation aspires to be social influencers, with 86% of them choosing this career path(37)in uk around 35% of children between 11-16 wants to be influencer and Youtuber (38) </sub>
+
+> <sub> Germany lacks almost two million workers (39) </sub>
 
 #### What is the useful **production** of milioner influencers?
 
