@@ -386,45 +386,38 @@ The UK’s Indian, Pakistani, and Asian population surprised London by voting pr
 
 **Creating the first Oversocieties?**
 
-Common values of society 1, society 2...society 10
+> If society 1, 2, 3, Christian, Hindus, Chinese, Islamic, and Atheists have a common value of no nuclear bombs, then all societies must comply
 
-Christian, Hindus, Chinese, islamic, Atheists societies -> No to atomb bomb -> all societies Follow 
-
-
-society 3-> Produce and Keep -> over society Decide to punish, isolate or attack.
+> If society 3 possesses and maintains atomic bombs, the oversociety must decide how to punish, isolate, or attacksociety 3-> Produce and Keep -> over society Decide to punish, isolate or attack.
  
-American or Western or African Morals have No priority to Decide about oversociety.
+> No priority is given to American, Western, Muslim, or African values to make decisions about the oversociety
 
-------------
- milion Youths Migrate from society 10 to society 6 -> Morality Oversociety decision?
-Effect of Migration on all societies?
--society 6 : psychopathic Economic Benefits but heavy cultural Issues, polarization tribalism 
--society 10: loss of working Power, loss of invested school, health System, left Families, children, eldery left behind, loss of production, society Issues. 
+#### How can international inequality only be solved in Oversociety?
 
-All societies : increased over continental Families - heavy raise Flights - Environment damage - increasing inequality 
-----------------
+> In the absence of corrupt politicians, all people have full power and can take action against a society that causes harm to others.
+
+> Example: Society 6 start psychopathic economy leading to inequality, an aging population, migration, loss of working power, harm to families and children left behind, society issues, increased flights due to intercontinental families, and increasing polarization and inequality.
  
-As more people of World join the app. The more consistent the decisions are.
--------------
+> Oversociety must decide how to proceed against this behavior as it causes harm to all.
 
 More Advantages of app :
 1 . solve psychopaths Problem 2. More flexible as  confessions in Religions 
  
-Society 1: 60% -> vote  Islamic values.-> have hijab, no Alcohol, no Sex Before marriage. No open Relationships 
+> <sub> Society 1: 60% -> Islamic values include wearing hijab, avoiding alcohol, abstaining from premarital sex, and not engaging in open relationships. </sub>
+
+> <sub> Society 2: 70% -> xxx values-> Drinking alcohol and engaging in premarital sex are permissible, but open relationships are not allowed. </sub>
+
+> <sub> Society 11:75% -> Western values -> Freedom of cloth ,eat , act ...
  
-Society 2: 70% -> vote xxx values-> Drink Alcohol, Sex Before marriage is Ok. No open Relationships. 
+The merging of two societies occurs when they have the same values.
 
-Society 11:.............. No open Relationships. 
- 
-----
-Most societies open Relationships -> not good -> over society value 
+**could it lead to first cultural inspiration?**
 
-First cultural Inspiration possible?
-a Buddhist society, performs extreme well Would other societies will take their good values?
-Moslems inspired by Christians That have Healthier babies by not Marrying their cousins? 
+> Would other societies adopt the good values of a high-performing Buddhist society?
 
-Christians reduce drinking alcohol inspired  by moslems?
-------
+> Would Muslims take inspiration from Christians who have healthier babies due to not marrying their cousins?
+
+> Can Christians be inspired by Muslims to reduce alcohol consumption and have more stable relationships?
 
 Moraly right?
 Activity in social media -> psychopathic inequality ->  Fighting for equality while benefiting from inequality?
