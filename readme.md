@@ -99,27 +99,28 @@ porn addiction, or problematic pornography use, affects approximately 3% to 6% o
 
 > <sub> An aging population can bring the economy to collapse due to a lack of workers and skilled workers (15). Most migrants come from poor third-world countries (16), which can have consequences for the countries of origin such as economic disadvantage due to the loss of young workers, loss of highly qualified personnel (especially health workers), and social problems for children who have been left behind or who have not grown up with a large family (17). Remittances/money transfers are blocked and under UN sanctions (18) poor countries have a negative trade balance with industrial countries (19). A negative trade balance (more imports than exports) results in unemployment and capital outflow abroad (20). Exploitation is defined as inappropriate use (especially of manpower, resources) and was more precisely defined in Marxist theories as the appropriation of someone else’s labor (21). </sub>
 
-#### Does exploitation lead to international inequality?
+#### Does exploitation contribute to international inequality?
 
 > <sub> Exploitation increases the international inequality (22) Tracing the global history of inequality from the Stone Age to today, **Walter Scheidel shows that it never dies peacefully. violent shocks reduce inequality.** Blanket bombing from the American air fleet and two devastating atomic bombs. led to a **decline in social inequality** (23)</sub>
 
-####  reduce of International Inequality only by Violent shock? (book: Great Leveler )
+####  Can international inequality only be reduced through violent shock?
 
-> <sub> French colonization only ended when the slaves in Haiti rebelled. 75000 white French and 350000 Haitian killed in Hiaitan Masacar (24) </sub>
+> <sub> The French colonization ended only after the Haitian slaves rebelled, leading to the Haitian Massacre which resulted in the deaths of 75,000 white French and 350,000 Haitians. (24) </sub>
 
-> <sub> Slavery in USA ended after First Uprisings and because of economic interests (25) </sub>
+> <sub> The end of slavery in the USA was due to the first uprisings slaves and economic interests (25) </sub>
 
-> <sub> World War II sharply reduced income and wealth inequality in many countries (26) </sub>
+> <sub> World War II led to a sharp reduction in income and wealth inequality in many countries. (26) </sub>
 
 <sub> **End of Sanctions & Inequality after Atomic war?** </sub>
 
 > <sub> North Korea 100 Kiloton Atomic bomb.[209](https://www.bbc.com/news/world-asia-41174689.amp) Iran has enough enriched uranium to build ‘several’ nuclear weapons, UN says (30)</sub>
 
-<sub> **While inequality damage Most , why is it on rise?** </sub>
+<sub> **What are the reasons for the increase in inequality despite its harmful effects?** </sub>
 
-**Taking Benefits by damaging others, Psychopathy?**
+**Is taking benefits at the expense of others a sign of psychopathy?**
 
 ## What is psychopathy? 
+
 > Psychopathy is a serious personality disorder characterized by antisocial behavior, untruthfulness, irresponsibility, and lack of remorse or empathy. (172)
 
 #### Are the current political & Economic Systems best environment for psychopaths to thrive?
