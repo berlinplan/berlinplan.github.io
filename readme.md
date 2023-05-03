@@ -332,47 +332,46 @@ The UK’s Indian, Pakistani, and Asian population surprised London by voting pr
 
 > US Army operations are mostly conducted in the Middle East, including Libya, Iraq, Iran, Afghanistan, Syria, Somalia, Pakistan, and Sudan and also in South America.(180)
 
+<sub> Imagine there were no economic differences between living and working in a 3rd-world  & an industrial country, would anyone be a refugee anymore? </sub>
 
-> <sub> If there were no economic differences between living and working in a third-world country and an industrial country, would anyone leave their home and family to become a refugee in an industrial country? </sub>
+#### How can cultural inspiration be achieved?
 
-#### How is Cultural Inspiration possible?
+> <sub> Atatürk’s rule saw the implementation of Westernizing reforms across political, legal, religious, cultural, social, and economic policies.(182) </sub>
 
-> <sub> political, legal, religious, cultural, social, and economic policy changes Westernizing reforms were achieved under Atatürk's rule (182) In 1698, Tsar Peter I of Russia instituted a beard tax as part of an effort to bring Russian society in line with Western European models. (181) One of many Westernizing actions of Iranian Reza Shah was forcing men to wear Western suits and hats. (183)  Japan Early Westernization & Modernization in Japan. (184) </sub>
+> <sub> In 1698, Tsar Peter I of Russia instituted a beard tax as part of an effort to bring Russian society in line with Western European models.(181) </sub>
 
-#### Why did countries like Russia Turkey, China, iran, Japan etc. made reforms to looks likes western?
+> <sub> One of many Westernizing actions of Iranian Reza Shah was forcing men to wear Western suits and hats.(183)  </sub>
 
-> <sub> Comparisons are a normal part of human cognition and can be good for the self-improvement process. (185) <sub>
+> <sub> Japan Early Westernization & Modernization.(184) </sub>
 
-#### why should migrants accept German traditions?
+#### What led countries like Russia, Turkey, China, Iran, Japan, etc. to adopt Western-style reforms?
 
-> Western Population, Cultures and Values are vanishing. (186)  Would you follow someone who is falling down to valley?
- 
-#### Any  Benefits of Dialogue between different cultures inside one society?
+> <sub> Comparisons are a normal part of human cognition and can be good for the self-improvement process.(185) <sub>
 
--Debattes-> polarization 
+#### Why do migrants resist to accept the traditions of people who are already living in a psychopathic system?
 
-free Information Exchange -> polarization
-Dialoge -> polarization 
+> while populations, cultures, and values of people in industrial systems are disappearing,should one follow the path of someone who has sunk their ship?(186)
 
-Polarization ~tribalism on Rise?
+#### is there any benefits from dialogue between different cultures within one society?
 
-https://greatergood.berkeley.edu/article/item/the_biology_of_the_modern_political_divide
+> As previously mentioned debates, free information exchange and dialogue lead to more polarization.
+
+#### How does polarization lead to the rise of tribalism?
+
+> The decrease in the percentage of people who take friends or marry someone with different political viewpoints reflects how social media has made the atmosphere so polarizing.
+
+> Devout religious belief or observance is not a predictor of extremism. However, studies show that support for terrorism in majority Muslim countries is related to how often you pray in a mosque, not how often you pray or how devout you are about food prohibitions. The same is also true of right-wing Jewish extremists in Israel.
+
+> Nationalism and tolerance for autocratic leaders are rising all around the world most likely as a reaction to globalization.
  
-The percentage of people who have friends with different political viewpoints is decreasing. The odds of you marrying someone with a different political orientation are also down. I think that reflects the ways in which social media have made this such a polarizing atmosphere.
- 
-For example, devout religious belief is not a predictor of extremism. Devout religious observance isn’t either. But devout religious observance in a group setting is. Studies show that support for terrorism in majority Muslim countries is unrelated to how often you pray, or how devout you are about food prohibitions. But it is related to how often you pray in a mosque. The same is also true of right-wing Jewish extremists in Israel. When sacred values are re-affirmed in groups—that’s when things get scary.
- 
-We’re also seeing the rise of nationalism all around the world, and with that has come an increased tolerance for autocratic leaders. This is often explained as a reaction to globalization: If McDonald’s is everywhere, people feel a threat to their national identity, and they feel a need to affirm it in a strong, even belligerent way. Do you agree?
- 
-https://greatergood.berkeley.edu/article/item/what_is_the_true_cost_of_polarization_in_america
-https://greatergood.berkeley.edu/article/item/why_inequality_is_bad_for_the_one_percent
- 
-This research suggests it’s bad for everyone’s well-being when the rich don’t have contact with the poor, or the poor with the middle class.
+> Research suggests that it’s bad for everyone’s well-being when the rich don’t have contact with the poor or the poor with the middle class. (211,212,213)
 
-No fix values -> Moral collapse? 
-Psychopathic Democracies Leads to Corruption, which destroys the moral fabric of society. (122)
+#### Does having no defined values lead to moral collapse?
+
+> Psychopathic democracies lead to corruption, which destroys the moral fabric of society. (122)
  
-Sector in app solve Moral collapse?
+#### How could the voting app solve Moral collapse?
+
 seperate Value sector, (As Political & Economic) Groups define clearly their value 
 
 Select Your values -> end of Institutional relegion? 
