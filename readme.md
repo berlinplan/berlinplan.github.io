@@ -71,9 +71,10 @@ to be answered by you. consider the information under questions as a resource.
 
 > <sub> 3. OnlyFans has been associated with pornography addiction and has been cited as a factor in a significant proportion of divorces, while top earners like Iggy Azalea can make hundreds of thousands of dollars in a matter of hours, creating a massive income gap between them and the average worker(2)(5)(6)(7)(29). </sub>
 
-#### acceptable Argument? drug dealing is best for self-empowerment, emancipation & financial independency for poor social Groups?
+#### Can drug dealing be a justifiable means for self-empowerment, emancipation, and financial independence for underprivileged social groups?
 
-> <sub> “The cultural scientist and feminist: Madita Oeming sees **Onlyfans** as a **new opportunity** for **self-empowerment**. Women and men on Onlyfans are independent of studios or producers and have full control over their content and prices. And there is also **emancipatory** potential in profit. "Making that amount of money on your own can also save you from **financial dependency and toxic relationships**."(9)
+> <sub> “The cultural scientist and feminist: Madita Oeming sees **Onlyfans** as a **new opportunity** for **self-empowerment**. Women and men on Onlyfans are independent of studios or producers and have full control over their content and prices. And there is also **emancipatory** potential in profit. "Making that amount of money on your own can also save you from **financial dependency and toxic relationships**."(9) </sub>
+
 porn addiction, or problematic pornography use, affects approximately 3% to 6% of the adult population. Up to 65% of young adult men and 18% of Young Woman Report watching Pornography at least once a Week (35) Addicts are not to blame for their addiction, it is a problem for society as a whole and we are talking about shared responsibility (36) </sub>
 
 #### 40%-80% of new Generation wants to be influencer by trade, why? 
