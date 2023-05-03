@@ -248,19 +248,17 @@ People’s taxes finance the executive, legislative, and judiciary of modern soc
 
 > <sub> Could people vote in the political section to lower taxes for non-hierarchical companies since they are more sustainable for the world and environment? </sub>
 
-#### Could we have a better Society if we remove the Hierarchic Systems?
- 
-## What is a Society?
+#### Why is it necessary to reduce hierarchy for a society to be equal?
+
+## What is a society?
 
 > <sub> Cooperation is really important to human survival. Our ability to cooperate is what allows us to live in big groups. When we live in groups, we can work together. We divide up tasks so that different people can get really good at different things and do them better and more quickly (84) </sub>
 
 > <sub> SOCIETY: people in general thought of as living together in organized communities with shared laws, traditions, and values (83) </sub>
 
-#### How many People in “Modern Societies” would fight when attacked ? Do we have same values?
+#### How many people in modern societies fight back and defend themselves when attacked?
 
-> <sub> Example 1: approximately 30,000 fighters from at least 85 countries had joined the Islamic State of Iraq and Syria (ISIS) (85) ISIS had very Clear defined religious Values (86) around 6.6 Milion Syrian (87) 1.5 from Iraq (88) many from Lebanon, Jordan etc. Flee, approaximately 90% Young Muslim Men (89) According to the Qur'an and hadith, to flee from Jihad (war) is a Greater Sin. It is the twenty-seventh sin. (90) added to this, prophet of Islam said: “I disown every Muslim who settles among the mushrikeen” (Christians, Jews) (91) can someone say i am vegan(92) and eat meat everyday? </sub>
-
-**if ISIS Terrorists from 85 countries ->defined value->society**
+> <sub> Example 1: Approximately 30,000 fighters from at least 85 countries joined the Islamic State of Iraq and Syria (ISIS), which had very clear defined religious values. Around 6.6 million Syrians and 1.5 million Iraqis, as well as many from Lebanon, Jordan, etc., fled the area, with approximately 90% being young Muslim men. According to the Qur’an and hadith, fleeing from Jihad (war) is a greater sin and is considered the twenty-seventh sin. Additionally, the prophet of Islam said: “I disown every Muslim who settles among the mushrikeen” (Christians, Jews). (85,86,87,88,89,90,91) </sub>
 
 #### are Monopols of people without 1 same Value to fight for it - > society? 
 
