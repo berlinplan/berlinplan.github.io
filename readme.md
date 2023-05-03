@@ -1,3 +1,8 @@
+- ghh
+- ggh
+- gjkl
+
+
 # Berlinplan
  
 to be answered by you. consider the information under questions as a resource.
