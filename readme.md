@@ -196,7 +196,7 @@ People’s taxes finance the executive, legislative, and judiciary of modern soc
  
 > <sub> User 4. Nature is essential for human mental health and well-being. According to this study, children also benefit from contact with nature (20 Votes) </sub>
 
-> <sub> User 22: Trees brings birds (12 Votes) </sub>
+> <sub> User 22: trees are good for birds (12 Votes) </sub>
 
 > <sub> on the left side comments "against" it. </sub>
 
@@ -218,15 +218,15 @@ People’s taxes finance the executive, legislative, and judiciary of modern soc
 
 > <sub> Order created Automatically and sent. </sub>
 
-> <sub> After week one: Company xxx has completed 25% of the work and is requesting 25% of the payment. Pictures and videos are available. </sub>
+> <sub> week 1: Company xxx has completed 25% of the work and is requesting 25% of the payment. Pictures and videos are available. </sub>
 
 > <sub> Your Part is 10€. accept?  / reject? </sub>
 
-> <sub> After acception 10€ will be Automaticaly Send to Company xxx </sub>
+> <sub> After acceptance, 10€ will be automatically sent to Company xxx. </sub>
+
+> <sub> week 2 : Company xxx has compeleted 100%. accept?  /  reject? </sub>
  
-> <sub> After week two : Company xxx Finished 100%. Accept?/No Accept </sub>
- 
-> <sub> After Yes 10€ Automaticaly sent to Them </sub>
+> <sub> After acceptance, 10€ will be automatically sent to Company xxx. </sub>
 
 > <sub> Example 5: Who should be taxed more? </sub>
 
@@ -234,19 +234,19 @@ People’s taxes finance the executive, legislative, and judiciary of modern soc
 
 > <sub> youtuber, instagramer, tik toker, porn performer? </sub>
  
-#### Benefits of an Economical sector in Voting App?
+## Is there a way to have a non-psychopathic economy without turning to communism?
 
-instead of fixed wages, percentage Participation in loss & Win.
+1. Can equal treatment of employees in a company affect quality, work ethic, effectiveness, and non-wasteful use of resources?
+2. Although communism has never worked, the most social system in the world (Germany) has the highest industry quality and production.
+3. Can a person own empires like Microsoft, Tesla, and Amazon if millionaires are correctly taxed for all damages caused by them (environmental, inequality damages, poor countries by brain drain, forced migrations, travel, and consumerism supported by advertisement)?
 
-> <sub> Example, each person get 2% ~ 2000€/mon but Peter is Hardworker & profitabl for common fund. in the app he can request for more shares or people can voluntarily vote to give him more % online. </sub>
+#### Would it be beneficial to have an economic sector in the voting app?
 
-#### Economical section increase work ethics, effectivity, awareness, saving energy?
+> <sub> higher Motivation ? Instead of fixed wages, each person receives a percentage of the loss and win. For example, each person gets 2% ~2000€ per month. If someone is a hard worker and profitable for the common fund, they can request more shares in the app or people can voluntarily vote to give them more percentage online. </sub>
 
-1. Everybody work for his Benefits. The more you work the more you earn.
-2. Would quality, work ethic, effectiveness, non-wasteful use of resources be extremely high compared to someone who only gets a fix wage in a company?
-3. Companies that are not hierarchic are sustainable for world and environment, as a reward people and decide in the Political Part of app to tax them less, in contrast to other concepts.
-4. while a Kommunist System, never worked, the Most social System in the work (germany) have highest industry quality and production.  
-5. By rightly taxing riches for all damages, can  one Person belongs Tesla, or Amazon etc?
+> <sub> Everyone works for their own benefits. The harder they work, the more they earn.</sub>
+
+> <sub> Could people vote in the political section to lower taxes for non-hierarchical companies since they are more sustainable for the world and environment? </sub>
 
 #### Could we have a better Society if we remove the Hierarchic Systems?
  
