@@ -254,7 +254,7 @@ People’s taxes finance the executive, legislative, and judiciary of modern soc
 
 > <sub> Cooperation is really important to human survival. Our ability to cooperate is what allows us to live in big groups. When we live in groups, we can work together. We divide up tasks so that different people can get really good at different things and do them better and more quickly (84) </sub>
 
-> <sub> SOCIETY: people in general thought of as living together in organized communities with shared laws, traditions, and values (83) </sub>
+> <sub> SOCIETY: people in general thought of as living together in organized communities with shared **laws, traditions, and values** (83) </sub>
 
 #### How many people in modern societies fight back and defend themselves when attacked?
 
