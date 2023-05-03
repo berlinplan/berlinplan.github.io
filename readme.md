@@ -145,27 +145,29 @@ porn addiction, or problematic pornography use, affects approximately 3% to 6% o
 
 > <sub> Democracy is a system from 508 BCE and has the following disadvantages: debate culture polarizes society, development of psychopaths, corruption, misuse of equality, no protection for the common man, divide and rule methods, unfair businesses, addiction to power, and media misuse. (63,65) </sub>
 
-#### Can psychopaths misuse democratic organizations, law, justice, and tax offices?
+#### Can psychopaths misuse democratic organizations?
 
 > <sub> Corporations have legal departments that can handle lawsuits. Lawsuits can be financially and emotionally draining for individuals. Late bill payments can lead to negative financial consequences such as late fees and credit score damage and sometimes to jail. The largest companies still do not pay taxes.(73,74,75,76,77) </sub>
 
-**Judges, Courts & law system, apparatus of power for richer guy to get richer?**
+**How does the law system and the courts serve as an apparatus of power for the wealthy to become wealthier?**
 
-According to The New York Times, Donald Trump "was a millionaire by age 8" [210](https://www.nytimes.com/interactive/2018/10/02/us/politics/trump-family-wealth.html) what Would Happen if 1 Person do not pay him rent? 
+According to The New York Times, Donald Trump "was a millionaire by age 8" [210](https://www.nytimes.com/interactive/2018/10/02/us/politics/trump-family-wealth.html) 
 
-<sub> Person A inherits 3000 from his dad, psychopathic Economic give him ability to grow to 6000 Appartements & his son to 10000 Appartements.</sub>
- 
-#### Multi billion Wealths Nowadays side effect of Modern executive legislative judiciary? 
+> <sub> What happens when someone can’t afford their rent? </sub>
 
-<sub> History-> big wealth ->big issues / securities/ even killed by own securities. <sub>
+<sub> Example: An individual inherited 3000 apartments from their father. With the help of psychopathic economics, they were able to grow their apartment holdings to 6000 units, and their son was able to grow it to 10000 units. </sub> 
 
-Modern Society: executive, legislative & judiciary financed by people's tax. 
+#### How do modern executive, legislative, and judiciary affect multi-billion wealths nowadays?
 
-## Can a Simple voting app solve the 2500 years psychopathic Problem of democracy?
+<sub> Throughout history, big wealth has been associated with significant issues and securities that have even led to the death of their owners. </sub>
 
-<sub> new Smartphones make possible to do complicated verification processes for online Bankings or Exchange Plattforms (fingerprint, Face Scan) transfering huge amounts.(72) </sub>
+People’s taxes finance the executive, legislative, and judiciary of modern society.
 
-> Smartphone, a Technology for consuming tik tok, Instagram, Youtube, Spotify, Facebook or use it as Tool for solving our Problems?
+## Could a simple voting app be the solution to the 2500-year-old psychopathic problem of democracy?
+
+<sub> New smartphones allow for complicated verification processes for online banking or exchange platforms, such as fingerprint and face scans, making it possible to transfer huge amounts of money.(72) </sub>
+
+> Can smartphones be used as tools to solve big problems or are they only for consuming social media?
 
 #### Could an App replace Parliamentarians, Presidents, Gouverneur’s and all other Interesting Positions for Psychopaths?
 
