@@ -29,13 +29,13 @@ to be answered by you. consider the information under questions as a resource.
 
 > <sub> Drug abuse: Addiction, Mental Health Disorder, Violence, Society collapse , high Costs to Social Health, Economy & Family.(8) Drug users cannot be treated as criminals (169) they suffer from  something out of their control (170) £10000 a week trade of drug dealers (171) </sub> 
 
-#### Donating to charities with the money from Drug selling. morally right?
+#### Is donating money to charities with funds obtained from drug selling morally justifiable?
 
 > <sub> Pablo Escobar Colombian drug lord and leader of the Medellin Cartel which controlled as much as 80% international Cocaine. Helped community with building schools and sports fields, donating vast sums to charity, and constructing housing.(187) </sub>
 
-#### acceptable Argument? Drug Dealer : make drugs legal. right Drug & dosage cures.
+#### Is it morally acceptable for drug dealers to argue in favor of legalizing drugs on the basis that the right drug and dosage can cure certain illnesses?
 
-> not all drugs are bad. medical use of opium. [208](https://www.unodc.org/unodc/en/data-and-analysis/bulletin/bulletin_1953-01-01_3_page008.html)
+>  Not all drugs are harmful; for instance, opium has legitimate medical applications.[208](https://www.unodc.org/unodc/en/data-and-analysis/bulletin/bulletin_1953-01-01_3_page008.html)
 
 #### are social Media harmful for societies?
 
