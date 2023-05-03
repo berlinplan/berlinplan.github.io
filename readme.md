@@ -462,21 +462,22 @@ Is it morally acceptable to use barbaric torture methods with an 80% success rat
 > - Mean: kill 1 
 > - No: due to App -> kill -> big damage
 
+
 > - End: save 7 lifes
 > - Mean: kill 1
 > - No: due to App -> kill -> big damage
 
+
 > - End: save all human kind </sub>
 > - Mean: kill 1 </sub>
-> - X: if this Case really happens, whole People on Planet get an Emergency Notification on APP to VOTE. </sub>
+> - X: An emergency situation will trigger an app notification for all people on the planet to vote.
+
 
 > - End: save Trapped Dog in car 
 > - Mean: break others property, enter privat room
 > - Yes: app-> dont save life is a bigger damage than enter some ones private room
 
-> someone gives Money to Girl friend to Abort 
-> is election candidate for anti abortion Law to save lifes 
-
+<sub> **Can lying in an election to achieve power for a good cause later be morally justified?** </sub>
 > - End : save lifes  
 > - Mean : lie through election
 > - No : app-> lying in election ->Long time act -> change Structure of brain -> the damage of Systematik lie to society is higher than save life.
