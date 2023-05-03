@@ -133,15 +133,15 @@ According to The New York Times, Donald Trump "was a millionaire by age 8" [210]
 
 <sub> Person A inherits 3000 from his dad, psychopathic Economic give him ability to grow to 6000 Appartements & his son to 10000 Appartements.</sub>
  
-#### for the first time in history of Human  Multi bilion Wealths possible because of Courts (developes)? 
+#### Multi billion Wealths Nowadays side effect of Modern executive legislative judiciary? 
 
-<sub> History-> too big wealth. too many securities/ killed by own securities. <sub>
+<sub> History-> big wealth ->big issues / securities/ even killed by own securities. <sub>
 
-modern Society: Securities paid by people's tax & take care that richer get richer. 
+Modern Society: executive, legislative & judiciary financed by people's tax. 
 
 ## Can a Simple voting app solve the 2500 years psychopathic Problem of democracy?
 
-Today with Apps you Most complicated verification processes for online bankings, Exchange Plattforms etc (fingerprint, Face Scan,etc) transfering big amount of money made Easy.(72) 
+<sub> new Smartphones make possible to do complicated verification processes for online Bankings or Exchange Plattforms (fingerprint, Face Scan) transfering huge amounts.(72) </sub>
 
 > Smartphone, a Technology for consuming tik tok, Instagram, Youtube, Spotify, Facebook or use it as Tool for solving our Problems?
 
@@ -207,22 +207,24 @@ Today with Apps you Most complicated verification processes for online bankings,
 
 > <sub> After week one : Company xxx Completed 25% work and want 25% of Money. Following pictures and Videos: </sub>
  
-> <sub> Your Part is 10€. Accept  /No Accept </sub>
+> <sub> Your Part is 10€. </sub>
 
-> <sub> After Yes vote 10€ will be Automaticaly Send to Company xxx </sub>
+> <sub> accept  / reject </sub>
+
+> <sub> After acception 10€ will be Automaticaly Send to Company xxx </sub>
  
 > <sub> After week two : Company xxx Finished 100%. Accept?/No Accept </sub>
  
 > <sub> After Yes 10€ Automaticaly sent to Them </sub>
 
  
-> <sub> Example 5: Who should  pay more in taxes? </sub>
+> <sub> Example 5: Who should be taxed more? </sub>
 
 > <sub> fireman, nursing assistant, teacher?
 
-> <sub> or youtuber, instagramer, tik toker, porn performer who damage the society and international equality? </sub>
+> <sub> youtuber, instagramer, tik toker, porn performer? </sub>
  
-#### What could be the Benefits of a Economical sector?
+#### Benefits of an Economical sector in Voting App?
 
 instead of fixed wages, percentage Participation in loss & Win.
 
