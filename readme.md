@@ -279,11 +279,11 @@ The UK’s Indian, Pakistani, and Asian population surprised London by voting pr
 
 #### Do the residents of Germany share any common values as one **"society"**?
 
-> <sub> “human rights” are non-negotiateable Value of EU, BUT: German football team participated World Cup 2022 in Qatar, without wearing “one love” band? (106) </sub>
+> <sub> The EU considers “human rights” a non-negotiable value, but the German football team participated in the 2022 World Cup in Qatar without wearing a “one love” band. (106) </sub>
 
-> <sub> While EU Participating Sanctions because of Abusing Human rights Against many countries (107) How Can Saudi-Arabia be Germany's most important Partner in the MENA region (108) </sub>
+> <sub> The EU is participating in sanctions against many countries for abusing human rights, yet Saudi Arabia is Germany’s most important partner in the MENA region. (107,108) </sub>
 
-> <sub> India critics on Eu and Germany because of Double Standards(153)
+> <sub> The EU and Germany are being criticized for double standards.(153) </sub>
 
 ## Multi-cultirism Leads to tolerant open minded society or paralized parallel societies?
 
