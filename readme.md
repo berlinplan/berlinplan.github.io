@@ -311,28 +311,28 @@ The UK’s Indian, Pakistani, and Asian population surprised London by voting pr
 
 > Each young migrant in early working age costs their country of origin $120,000, according to international organizations.(118)
 
-#### Per Definition, is multi-Culturism Side effect of a Psychopathic Economy/ pathoconomics?
+#### Is multiculturalism a result of a psychopathic economy?
 
-Multi-Cluturism :polarization & inequality for societies. Big Economic benefits for Companies. 
+> Psychopathic economies benefit from multiculturalism despite its increase in polarization and inequality.
 
-#### Benefits of Multi -Culturism: lie?  
- 
-Migration / Slavery / colonization ->  huge Benefits for Psychopathical  Economic.
-
-#### Has integration really failed in Western Countries?
+#### Why does integration fail in psychopathic systems?
 
 > Sweden: “Integration of migrants has failed” (166)
 
 ## What is Integration? 
 
-> <sub>Integration: the act of combining into an integral whole (167)
-Combine: implies some merging or mingling with corresponding loss of identity of each unit (168)
-80% of top intelligent Students from poor countries ends in big companies in the West. U.S Army is the biggest employer in U.S., Most of Projects and Hi-tech products used or ordered by us Army. (179) operations mostly done in countries like Libya, Iraq, Iran, Afghanistan, Syria, Somalia, Pakistan, Sudan (180) </sub>
+> **Integration:** the act of combining into an integral whole (167)
 
-** Pashganistan student Migrant, who now work in a Country, its production will be Used Against Pashganistan?is not Integrated in the Psychopathic Economics?**
+> **Combine:** implies some merging or mingling with corresponding loss of identity of each unit (168)
 
-**A Pashganistani refugee, flee, Against islamic rules, to work for the past attacker. Is he not integrated in the Psychopathic Economics?**
- 
+
+#### Is a third-world migrant who works in a country where their production may be used against their homeland well integrated?
+
+> Most top students from poor countries end up in industrial countries where their hi-tech products are most likely to be used by the US Army.(179)
+
+> US Army operations are mostly conducted in the Middle East, including Libya, Iraq, Iran, Afghanistan, Syria, Somalia, Pakistan, and Sudan and also in South America.(180)
+
+
 > <sub> **In a World that it makes 0 Economic difference, if You live and work in pashganista , or in Germany, Would Anyone leave His home, father, mother spend 11000€ and come as refugee to Germany?** </sub>
 
 #### 1 who don’t like the pashganistan culture & prefer Western need Integration? 
