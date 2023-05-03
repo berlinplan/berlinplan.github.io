@@ -473,9 +473,9 @@ Is it morally acceptable to use barbaric torture methods with an 80% success rat
 > - X: An emergency situation will trigger an app notification for all people on the planet to vote.
 
 
-> - End: save Trapped Dog in car 
+> - End: rescue a dog trapped inside a car 
 > - Mean: break others property, enter privat room
-> - Yes: app-> dont save life is a bigger damage than enter some ones private room
+> - Yes: app-> Choosing not to save a life is a greater harm than entering a private room.
 
 <sub> **Can lying in an election to achieve power for a good cause later be morally justified?** </sub>
 > - End : save lifes  
@@ -488,20 +488,27 @@ Is it morally acceptable to use barbaric torture methods with an 80% success rat
 > - app
 
  
-How  Islamization of Europe be stopped?
-Until 2050 Sweden can have 31% Moslems bis 2050 Germany 20%. In Big Cities Like Berlin, Düsseldorf or Köln the Number could be 60% (127) (128) Islamic Sharia in Berlin as concept of Islam could be good possible (130)
-Not Only in Europe, in India, USA, China and even Sub-Saharan Countries, Islam is the Most Growing religion in the World. (129)
-Which Solutions big Nations tried Against Growth of Islam?
-• China - Hormone Therapy of Moslems like Chinese Uyghur genocide (131)
-• Indian Anti-Muslim Laws (New Citizenship Law, Disturbed area Act. ghettoize Moslems. (132) (133)
-• USA Muslim-ban! (134)
-• Anti-Islam Laws of some EU countries France, Belgium (135)
-Before Fight it, question : why Islam is growing? 
-The growing number of Muslims is mainly due to higher birth rates in Muslim families, not new converts to Islam (136)
-How we could have Stable Marriages and Families in order to Fight Islam?
-Families are important to society because they are the foundation of a civilization and its values. (124) (123)
-• Almost 50 percent of all marriages in the United States will end in divorce or separation.
-• Researchers estimate that 41 percent of all first marriages end in divorce.
+## How to stop the Islamization of Europe?
+
+> Sweden could have a Muslim population of 31% by 2050, while Germany's could be 20%, and in big cities such as Berlin, Düsseldorf, or Köln, this number could rise to 60%. It's possible that the concept of Islamic Sharia could gain traction in Berlin as a reflection of the growing Muslim population. This growth in Islam is not limited to Europe, as it is currently the fastest-growing religion in India, the USA, China, and Sub-Saharan countries. (127,128,129,130)
+
+#### How have big states attempted to curb the growth of Islam?
+
+- China: Hormone therapy of Muslims(Chinese Uyghur genocide) (131)
+- India: Anti-Muslim Laws. New Citizenship Law, Disturbed Area Act. ghettoize Muslims. (132) (133)
+- USA: Muslim-ban! (134)
+- The European Court has allowed bans on religious dress in countries like Austria, Belgium, and France, where the hijab and niqab have been prohibited (135)
+
+#### Why is Islam the world's fastest-growing religion?
+ 
+> The growing number of Muslims is mainly due to higher birth rates in Muslim families, not new converts to Islam (136)
+
+#### What role do stable marriages and families play in countering the expansion of Islam?
+
+> Society's values and civilization depend on families' foundational role (124) (123)
+
+-Almost 50 percent of all marriages in the United States will end in divorce or separation.
+-Researchers estimate that 41 percent of all first marriages end in divorce.
 • 60 percent of second marriages end in divorce.
 • 73 percent of all third marriages end in divorce.
 • 15 percent of adult women in the United States are divorced or separated today, compared with less than one percent in 1920
