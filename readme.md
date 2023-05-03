@@ -427,12 +427,11 @@ Best Activism Hashtags to get most attention on Instagram (78)
 
 -anti psychopathic app can be Integrate in existing democracy. No revolutanary change needed. 
 
-What is Moral?
+#### Can a moral act be performed without clear values?
+
+## What is morality?
+
 standards of behaviour; principles of right and wrong. (190)
-
-No Definition of values -> Moral act possible?
-
-No defined values-> Moral collapse?
 
 pathocracy  ->  Human rights -> non-negoatiateable 
 Saudi Arabia big Human rights violation-> best Partners with  germany 
