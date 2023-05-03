@@ -59,15 +59,17 @@ to be answered by you. consider the information under questions as a resource.
 
 > <sub> 10. Exposure to inappropriate content and dangerous online challenges.[207](https://www.helpguide.org/articles/mental-health/social-media-and-mental-health.htm#:~:text=Since%20it's%20a%20relatively%20new,harm%2C%20and%20even%20suicidal%20thoughts.) </sub>
 
-#### acceptable Argument? Instagram Activists: Not all in social Media is Bad, its Your fault.
+#### Can Instagram activists justify their use of social media by claiming that it is not entirely harmful, and that people are responsible for managing their own usage?
 
-> Onlyfans creator Argument legit?-> porn addiction is people's own fault, you have to know what you are consuming.
+> Is it a valid argument for creators on OnlyFans to claim that individuals are responsible for their own porn addiction, and that consumers must be aware of what they are consuming?
 
-## socialy & moraly right? Onlyfans-star earns 270 more than a nursing Assistent ~1300€/mon (1)(4)(5)
+## Is it socially and morally acceptable that an OnlyFans star earns 270 times more than a nursing assistant who makes approximately 1300€ per month? (1)(4)(5)
 
-> <sub> Activity on onlyfans is harmful for society(7). Nurses help individuals, families, and entire groups to identify and realize their physical, psychological, and social potential (4)(7)
--So far, there are over 85 studies that link poor mental and emotional health to porn use (7) Pornography addiction was cited as a factor in 56 percent of divorces according to a recent study (29)
-Onlyfans is a Platform which produce Pornography content (28) (3) OnlyFans stars make 270 times more than the average worker (5) Iggy Azalea’s OnlyFans Earns $307K In 24 Hours (2) Average Earnings from OnlyFans including deactivate accounts or side-job account is $180/month (6) </sub>
+> <sub> 1. The content produced on OnlyFans is considered pornographic, and such activity is deemed harmful to society (28)(3). </sub>
+
+> <sub> 2. While nurses play a crucial role in helping individuals, families, and groups reach their physical, psychological, and social potential, the activity on OnlyFans has been linked to poor mental and emotional health in numerous studies and is considered detrimental to society (4)(7). </sub>
+
+> <sub> 3. OnlyFans has been associated with pornography addiction and has been cited as a factor in a significant proportion of divorces, while top earners like Iggy Azalea can make hundreds of thousands of dollars in a matter of hours, creating a massive income gap between them and the average worker(2)(5)(6)(7)(29). </sub>
 
 #### acceptable Argument? drug dealing is best for self-empowerment, emancipation & financial independency for poor social Groups?
 
