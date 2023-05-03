@@ -326,17 +326,15 @@ The UK’s Indian, Pakistani, and Asian population surprised London by voting pr
 > **Combine:** implies some merging or mingling with corresponding loss of identity of each unit (168)
 
 
-#### Is a third-world migrant who works in a country where their production may be used against their homeland well integrated?
+#### Is a third-world migrant who works in a country where their production may be used against their homeland not well integrated?
 
 > Most top students from poor countries end up in industrial countries where their hi-tech products are most likely to be used by the US Army.(179)
 
 > US Army operations are mostly conducted in the Middle East, including Libya, Iraq, Iran, Afghanistan, Syria, Somalia, Pakistan, and Sudan and also in South America.(180)
 
 
-> <sub> **In a World that it makes 0 Economic difference, if You live and work in pashganista , or in Germany, Would Anyone leave His home, father, mother spend 11000€ and come as refugee to Germany?** </sub>
+> <sub> If there were no economic differences between living and working in a third-world country and an industrial country, would anyone leave their home and family to become a refugee in an industrial country? </sub>
 
-#### 1 who don’t like the pashganistan culture & prefer Western need Integration? 
- 
 #### How is Cultural Inspiration possible?
 
 > <sub> political, legal, religious, cultural, social, and economic policy changes Westernizing reforms were achieved under Atatürk's rule (182) In 1698, Tsar Peter I of Russia instituted a beard tax as part of an effort to bring Russian society in line with Western European models. (181) One of many Westernizing actions of Iranian Reza Shah was forcing men to wear Western suits and hats. (183)  Japan Early Westernization & Modernization in Japan. (184) </sub>
