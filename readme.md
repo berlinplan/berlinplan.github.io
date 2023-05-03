@@ -293,11 +293,13 @@ The UK’s Indian, Pakistani, and Asian population surprised London by voting pr
 
 > Free circulation of information, social media, and debates can lead to group polarization.(112)(113) 
 
-> People with similar points of view tend to follow, share, and comment on each other’s posts. Discussion of racial attitude items with others having similar attitudes significantly increased the gap between high- and low-prejudice groups. Based on that, extremists who meet and interact with each other in a mosque get even more extremist, which can raise the gap of parallel societies. (114,115,116)
+> People with similar points of view tend to follow, share, and comment on each other’s posts. Discussion of racial attitude items with others having similar attitudes significantly increased the gap between high- and low-prejudice groups. Based on that, extremists who meet and interact with each other in a place get even more extremist, which can raise the gap of parallel societies. (114,115,116)
 
-#### Leads Multi-Culturism to International inequality?
+#### Can multiculturalism contribute to international inequality?
 
-> <sub> (Migration) Multi-Culturism, has huge Economic benefits, it is necessary for Survival of Western Economy.  2013 Brücker: Germany is biggest winner. Without immigration, the labor force potential in Germany, which currently has 45 million people, would fall by around 40 percent by 2050 (117) </sub>
+> <sub> Multiculturalism is essential for the survival of psychopathic economies and has huge economic benefits. </sub>
+
+  <sub> Germany is the biggest winner. According to Brücker in 2013, without immigration, the labor force potential in Germany would fall by around 40% by 2050. (117) <sub>
 
 #### Win for Country of origin too?
 
