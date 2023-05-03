@@ -458,11 +458,11 @@ Is it morally acceptable to use barbaric torture methods with an 80% success rat
 
 #### does end justify the means?
 
-<sub> End: save 1 life </sub>
+<sub> - End: save 1 life </sub>
 
-<sub> Mean: kill 1 </sub>
+<sub> - Mean: kill 1 </sub>
 
-<sub> No: due to App -> kill -> big damage </sub>
+<sub> - No: due to App -> kill -> big damage </sub>
 
 
 <sub> End: save 7 lifes
