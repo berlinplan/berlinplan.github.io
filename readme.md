@@ -87,7 +87,7 @@ porn addiction, or problematic pornography use, affects approximately 3% to 6% o
 
 #### How do millionaire social media influencers contribute to society?
 
-> <sub> PewDiePie: 110m YT, 22.4m insta, 19.9m Twitter Dude Perfect: 57.5m YT, 12.1m insta, 5.7m Twitter Whindersson Nunes: 42.8m YT, 54.7m insta, 13.7m Twitter El Rubius: 40.1m YT, 14.3m insta, 14.8m Twitter Markiplier: 29.6m YT, 8.9m insta, 14.6m Twitter Addison Rae: 84.9m TikTok, 39.2m insta, 4.9m YT Huda Kattan: 49.1m insta, 4.1m YT, 3.8m TikTok Khaby Lame: 115.3m TikTok, 34.9m insta, 2.2m YT Vlad and Niki: 73m YT, 6.5m insta, 1.6m TikTok Heidi Klum: 8.7m insta, 5.4m FB, 4.9m Twitter </sub>> <sub> #### Does Instagram Lead to Ageing Population?
+> <sub> Cristiano Ronaldo (496m followers) Lionel Messi (373m followers) Kylie Jenner (372m followers) Selena Gomez (356m followers) Kim Kardashian (333m followers) Khloé Kardashian (279m followers) (40) or in Germany bibisbeautypalace, Julienco, Lisa und Lena mantler, Montana Black, Pia wurzbach, Pamela reif, dagibee,youneszarou </sub>
 
 > <sub> Instagram sexualizes society (10) Children use Instagram (11) Children who used to be sexually active have unstable relationships and marriages when grew up. (12) Unstable relationships lead to lower birth rates (13) Lower fertility rate create aging population(14) </sub>
 
