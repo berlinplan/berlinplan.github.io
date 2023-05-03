@@ -301,9 +301,15 @@ The UK’s Indian, Pakistani, and Asian population surprised London by voting pr
 
   <sub> Germany is the biggest winner. According to Brücker in 2013, without immigration, the labor force potential in Germany would fall by around 40% by 2050. (117) <sub>
 
-#### Win for Country of origin too?
+#### Are countries that migrants come from the biggest winners,too?
 
->Iran Migration Observatory: The migration of every Iranian means the departure of 120,000 dollars from the country. (118) IQ in Origin Country decrease by immigration. SCOTLAND is the least intelligent part of the UK and performs poorly on average IQ against most of Europe, an academic has claimed. (119) Iran Job Vision conducted a survey of "working people" about migration and the result of 6000 valid data is 77% willing to migrate. (120) more than 80% of intelligent Students of Iranian Top University migrate to Western Countries (121)
+> Immigration leads to a decrease in IQ in origin countries. Scotland has the lowest average IQ in the UK and performs poorly compared to most of Europe, according to studies.(119)
+
+> Over 80% of intelligent students from top universities in third world countries migrate to industrial countries.(121)
+
+> 77% of working people from a third world country are willing to migrate, according to a survey conducted by a Job Vision center.(120)
+
+> Each young migrant in early working age costs their country of origin $120,000, according to international organizations.(118)
 
 #### Per Definition, is multi-Culturism Side effect of a Psychopathic Economy/ pathoconomics?
 
