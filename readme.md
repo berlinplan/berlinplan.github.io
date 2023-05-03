@@ -231,11 +231,11 @@ instead of fixed wages, percentage Participation in loss & Win.
 
 #### Economical section increase work ethics, effectivity, awareness, saving energy?
 
-<sub> 1. Everybody work for his Benefits. The more you work the more you earn.
+1. Everybody work for his Benefits. The more you work the more you earn.
 2. Would quality, work ethic, effectiveness, non-wasteful use of resources be extremely high compared to someone who only gets a fix wage in a company?
 3. Companies that are not hierarchic are sustainable for world and environment, as a reward people and decide in the Political Part of app to tax them less, in contrast to other concepts.
 4. while a Kommunist System, never worked, the Most social System in the work (germany) have highest industry quality and production.  
-5. By rightly taxing riches for all damages, can  one Person belongs Tesla, or Amazon etc? </sub>
+5. By rightly taxing riches for all damages, can  one Person belongs Tesla, or Amazon etc?
 
 #### Could we have a better Society if we remove the Hierarchic Systems?
  
