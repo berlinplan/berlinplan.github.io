@@ -266,18 +266,18 @@ People’s taxes finance the executive, legislative, and judiciary of modern soc
 
 Is it accurate that the Taliban society assaulted a large group of people who did not share any values?
 
-> <sub> Example 3: After Collapse of Soviet Union in 1991, Ukraine became an independent state. (96) In 2012 Ernst & Young put Ukraine among the three most-corrupt nations from 43 surveyed, alongside Colombia and Brazil In 2015 The Guardian called Ukraine "the most corrupt nation in Europe “. (97) United States diplomats described Ukraine under Presidents Kuchma and Yushchenko as a kleptocracy according to WikiLeaks cables (98) Prominent Ukrainian economist Oleh Havrylyshyn research estimated the level of the corruption in Ukraine as comparable to countries of Sub-Saharan Africa with Uganda as the closest counterpart. (99) Ukraine's population spends most of its income on cosmetic products (100) The beauty industry is booming and is one of the fastest growing consumer markets, driven in particular by the cosmetics and skincare segments. largest industries and sectors in Ukraine in 2022 from the Datantify database: · 1. Bank · 2. Cafe · 3. Grocery … 10. Beauty 11. Clothing Stores (101) it is forbidden for men aged 18-60, Ukraine citizens, to leave the borders of Ukraine (102) Still, The UNHCR records 8,167,986 refugees from Ukraine across Europe as of 10 April 2023. This amounts to around 20% of the Ukrainian population (103) Per R. Klitgaard Since a high degree of monopoly and low degree of transparency does not automatically lead to corruption, a fourth variable of "morality" or "integrity" has been introduced by others. The moral dimension has an intrinsic component and refers to a "mentality problem" (104) by Martial law Ukrainian Man are force to Participate war, while Russian Army is a Mix of contract und volunteers (105) </sub> 
+> <sub> Example 3: Ukraine became an independent state after the collapse of the Soviet Union in 1991. (96) In 2012 Ernst & Young put Ukraine among the three most-corrupt nations from 43 surveyed, alongside Colombia and Brazil In 2015 The Guardian called Ukraine "the most corrupt nation in Europe “. (97) United States diplomats described Ukraine under Presidents Kuchma and Yushchenko as a kleptocracy according to WikiLeaks cables (98) Prominent Ukrainian economist Oleh Havrylyshyn research estimated the level of the corruption in Ukraine as comparable to countries of Sub-Saharan Africa with Uganda as the closest counterpart. (99) Ukraine's population spends most of its income on cosmetic products (100) The beauty industry is booming and is one of the fastest growing consumer markets, driven in particular by the cosmetics and skincare segments. largest industries and sectors in Ukraine in 2022 from the Datantify database: · 1. Bank · 2. Cafe · 3. Grocery … 10. Beauty 11. Clothing Stores (101) it is forbidden for men aged 18-60, Ukraine citizens, to leave the borders of Ukraine (102) Still, The UNHCR records 8,167,986 refugees from Ukraine across Europe as of 10 April 2023. This amounts to around 20% of the Ukrainian population (103) Per R. Klitgaard Since a high degree of monopoly and low degree of transparency does not automatically lead to corruption, a fourth variable of "morality" or "integrity" has been introduced by others. The moral dimension has an intrinsic component and refers to a "mentality problem" (104) by Martial law Ukrainian Man are force to Participate war, while Russian Army is a Mix of contract und volunteers (105) </sub> 
 
-> <sub> Since 8167986 Ukrainian fled, how many would have left the Country if it was not Forbidden for men aged 18-60? </sub>
+> <sub> How many Ukrainians would have left the country if there was no martial law despite 8,167,986 already fleeing? </sub>
 
-#### Psychopathical Systems catch Sociopaths from all around the World?
+#### Can sociopaths from all around the world be caught by psychopathic systems?
 
-Suprise: London; most Indians, Pakistanis & Asian  in uk voted pro brexit!
+The UK’s Indian, Pakistani, and Asian population surprised London by voting pro-Brexit.
 
 > euroscepticism within the British South Asian population was stronger than previously anticipated.(197) 
 
 
-#### residents of Germany are one Society? any common values?
+#### Do the residents of Germany share any common values as one **"society"**?
 
 > <sub> “human rights” are non-negotiateable Value of EU, BUT: German football team participated World Cup 2022 in Qatar, without wearing “one love” band? (106) </sub>
 
