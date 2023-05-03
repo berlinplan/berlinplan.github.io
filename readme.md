@@ -217,7 +217,6 @@ Modern Society: executive, legislative & judiciary financed by people's tax.
  
 > <sub> After Yes 10€ Automaticaly sent to Them </sub>
 
- 
 > <sub> Example 5: Who should be taxed more? </sub>
 
 > <sub> fireman, nursing assistant, teacher?
@@ -228,21 +227,20 @@ Modern Society: executive, legislative & judiciary financed by people's tax.
 
 instead of fixed wages, percentage Participation in loss & Win.
 
-> <sub> Example, each person get 2% ~ 1000€ but Peter is Hardworker & profitabl for common fund. in the app he can request for more shares or people can voluntarily vote to give him more % online. </sub>
+> <sub> Example, each person get 2% ~ 2000€/mon but Peter is Hardworker & profitabl for common fund. in the app he can request for more shares or people can voluntarily vote to give him more % online. </sub>
 
 #### Economical section increase work ethics, effectivity, awareness, saving energy?
 
-1. Everybody work for his Benefits. The more you work the more you earn.
+<sub> 1. Everybody work for his Benefits. The more you work the more you earn.
 2. Would quality, work ethic, effectiveness, non-wasteful use of resources be extremely high compared to someone who only gets a fix wage in a company?
 3. Companies that are not hierarchic are sustainable for world and environment, as a reward people and decide in the Political Part of app to tax them less, in contrast to other concepts.
 4. while a Kommunist System, never worked, the Most social System in the work (germany) have highest industry quality and production.  
-5. By rightly taxing riches for all damages, can  one Person belongs Tesla, or Amazon etc?
- 
-
+5. By rightly taxing riches for all damages, can  one Person belongs Tesla, or Amazon etc? </sub>
 
 #### Could we have a better Society if we remove the Hierarchic Systems?
  
 ## What is a Society?
+
 > <sub> Cooperation is really important to human survival. Our ability to cooperate is what allows us to live in big groups. When we live in groups, we can work together. We divide up tasks so that different people can get really good at different things and do them better and more quickly (84) </sub>
 
 > <sub> SOCIETY: people in general thought of as living together in organized communities with shared laws, traditions, and values (83) </sub>
