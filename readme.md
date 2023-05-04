@@ -428,19 +428,23 @@ Best Activism Hashtags to get most attention on Instagram (78)
 > Existing democracies can gradually integrate an anti-psychopathic app without the need for revolutionary change. A beta or pilot project can be tested in a village of 100 people.
 
 
-#### Can a moral act be performed without clear values?
 
 ## What is morality?
 
 standards of behaviour; principles of right and wrong. (190)
 
+#### why Ideological Groups Like ISIS and Taliban perfom better than Most Modern armies? 
+
+Ideological little Groups:
+- very clear defined values 
+- non Hierarchic Structure: equality 
+
+Modern armies:
 pathocracy  ->  Human rights -> non-negoatiateable 
 Saudi Arabia big Human rights violation-> best Partners with  germany 
 Iran Human rights violation -> sanctions 
 
- Terrorists Groups -> defined values?
- Iran need $ -> no Tourismus -> X Bikini on Beach Against values 
--------------
+#### Can a moral act be performed without clear values?
 
 ### Is torture wrong?
 
