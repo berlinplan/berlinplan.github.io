@@ -429,7 +429,6 @@ Best Activism Hashtags to get most attention on Instagram (78)
 
 
 
-
 ## What is morality?
 
 standards of behaviour; principles of right and wrong. (190)
@@ -616,6 +615,11 @@ Red Flags for stable Relationships:
 - seeking partners through dating apps prioritize physical appearance.(~40%)(126)
 - who approach strangers on the street without hesitation and inhibitions with sexual intentions.
 --------------
+
+#### women favor polygynous societies?
+
+>The argument for women's choice in polygyny posits that they would have the autonomy to select their partners in polygynous societies. Additionally, it assumes that women's rights, stature, and freedoms in traditions of monogamy aren't constrained by the institution itself.(147)
+
 #### Do dating apps empower or disempower women
 
 > online dating apps claims to empower women and promote equality. (150)
@@ -633,10 +637,6 @@ Online dating has been linked to an increase in sexual activity. Multiple sexual
 > Dating apps facilitate access for the top 5% of men to 95% of women, leading to an increase in sexual activity and a rise in open relationships.(56,62,149)
 > Polygamous scenarios often result in the phenomenon of polygyny, where males show renewed sexual interest upon encountering new females , unlike females who are unaffected by the Coolidge effect. (146)
 > Studies have indicated that men exhibit a higher preference for variety in short-term partners as compared to women. A Tinder-style experiment also found that men selected more potential sex partners than women.(151,152)
-
-#### women favor polygynous societies?
-
->The argument for women's choice in polygyny posits that they would have the autonomy to select their partners in polygynous societies. Additionally, it assumes that women's rights, stature, and freedoms in traditions of monogamy aren't constrained by the institution itself.(147)
 
 #### How does polygyny affect men, women, and children in society?
 
@@ -675,14 +675,11 @@ The use of beauty operations, dating apps, pickup and alpha masculinity coaches,
 - Profiteering and usury -> Crypto trading, forex, passive income, Invest Bank Money in Appartements (189)
 ---------
 
--less Hierarchic /Ideological Armies Like Taliban /Iranian irgc/ Isis stronger or Classic Armies?
- 
 
-e-car->maybe good for Environment -> Create huge inequality -> Atomic war -> bad for Environment? 
+## e-car: good for Environment and Atomic war for earth ? 
+e-cars Create such a inequality that only can be solveb by a "violent shock ". 
+Joe Biden passed the Chips Act to restrict the use of US technology in producing semiconductors below 14 nanometers. Electric cars require ten times as many chips as petrol or diesel, leading to chip shortages. Technology producers prioritize profit, leading to poorer countries importing the technology. This creates a cycle of wealth inequality, where the rich get richer and the poor get poorer.(139,140)
 
-Electric cars would need ten times as many chips as petrol or diesel (140) Joe Biden passed the Chips Act. This states that no US technology may be used in the production of semiconductors with a structure width of less than 14 nanometers. (139)
-They don’t sell the Technologies to any countries, but the Produces Chips. To Make highest Profit. Which means poor countries soon have to Import this Technology. Money brings Intelligence, intelligent people Make more Money.  Inside the country the rich get richer Like international Level  the rich country get richer and the poor, poorer.
- 
 Would Economic Sanctions, brain drain,  Migration of youth,  negativ handle Balance.  Corroupt psychopathic goverment pushes a society to "international violent shock"?
 
 Which is the correct Solution? 
