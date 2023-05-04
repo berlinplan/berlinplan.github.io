@@ -579,31 +579,29 @@ Professions with lowest divorce rates:
  
 <sub> Summary: Engaging in premarital sex, Alcohol, religious beliefs, Educational attainment level of high school or college completion, Pre-marital cohabitation, Meeting  in college or in bar, sexual debut during teenage years, early initiation of sexual activity, social media use, exposure to pornography or games, parental divorce, premarital parenthood, tobacco or alcohol consumption, relationships with divorced family members or friends, and jobs with exposure to nudity </sub>
 
-#### Do stable family values align with religious values? (Islamic)(137)
+#### Do stable family values align with religious values?(137)
 
-only way fight Islam is to Accept it? 
+> Could accepting Islamic values be an effective way to counter the expansion of Islam as it gains influence around the world?
 
-Any way islam over take whole World 
 right Question is (After 100 years) :  how to remove Psychopathic Structures in FUTURE Islamic societies?
 
 ------------------
-Stable Families -> World equality -> only way to be consistent to World?
 
+<sub> **Considering aging populations and issues with societal values, is the promotion of stable families the most effective way to promote global equality and consistency?** </sub>
 
-You want to create a Family?
+#### Which criteria are crucial for establishing a stable family?
 
-Golden questions :
-Some one : 
--80 Partners Before marriage. Red flag? 
--was sexual active with 13/14. Red flag? 
--Drinks Alcohol or smokes, Red flag? 
--consumption pornography, social Media, game addiction, Red flag? 
--many friends, Family members divorced or not being in a stable Relationships, Red flag? 
--work as dancer, striper, influencer, bar tender, Red flag?
--Meet you in bar /Disco -> dont Respect the right values -> Red flag?
-• 40% of society use dating Apps (126) where first value is looks. Red flag?
-• Man/Woman  who is used to approach other on street, based on Sexual attraction, Red flag? 
- 
+Red rules of stable Relationships:
+<sub> *if someone* </sub>
+- have a history of multiple partners prior to marriage
+- Was sexually active in their teenage years.
+- Consumes alcohol, drugs, or tobacco.
+- Engages in pornography, social media, and gaming addictions.- many friends, Family members divorced or not being in a stable Relationships, Red flag? 
+- Employed in occupations involving the body, entertainment, and physical appearance.
+- look for a partner in bars and clubs.
+- seeking partners through dating apps prioritize physical appearance.(~40%)(126)
+- who approach strangers on the street without hesitation and inhibitions with sexual intentions.
+
 Beauty Operations, dating, Pickup & Alpha masculinity Coaches, hook up & Ghost culture, Style coaches, online dating Profile Designer etc Side effects of growing psychopathic Platforms?
 Dating Apps have millions of users (55) 95% of females wants to date only 5% of men (56) the is new Standard of dating Culture (hook up culture) (58) Number of Alpha /Pick up Coaches is rising (57) PUA Coaches Promote their customers by using Psychological Tricks and Manipulations techniques to sleep with as more women as possible (60)
  
