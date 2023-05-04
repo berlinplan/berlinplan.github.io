@@ -1,6 +1,6 @@
 # Berlinplan - human Freedom sustainability
  
-to be answered by you. consider the information under questions as a resource.
+boring at the beginning , exciting at the end.
 
 -all this Content can be changed by you. 
 ## What is the total number of generations that have lived over the past 2000 years?
@@ -648,36 +648,22 @@ The Most Freedom for he/She in church /islam?
 The use of beauty operations, dating apps, pickup and alpha masculinity coaches, hook up and ghost culture, style coaches, and online dating profile designers is on the rise. (58, 57, 60)
 
 
-Transgender people in Woman Sport competitions, Moraly right? (193)
-Before Discuss about Transgender. ->
-How fair are Sport competitions? (penis (length) comparison.)
-Aka. Why pashganistan are always losers?
-USA, Germany, China -> proud of Win all golden medal in the last 30 years. 
-If an pashganistan Athlete was borned in China or Russia got the right Doping, (194) Training from early ages , and Chinese Athlete was Born in pashganistan, What Would Happend? 
+#### Is it morally justifiable to allow transgender individuals to participate in women's sports competitions? (193)
 
-pashgan athelete in international competition -> lose as shit 99% 
+#### What is the fairness of sports competitions and the reasons behind 3rd-world citizens being perceived as losers, before delving into gender morality?
 
-Pathocracy athelete in international competition-> Win -> increased proud, self-esteem, National feelings  
+> <sub> Athletes from wealthier, psychopathic countries are celebrated and proud for defeating their competitors from poorer countries, regardless of whether they used performance-enhancing drugs or were trained from a young age. (194) </sub>
 
- How healthy are this competition? 
-In short, the excessive stress on muscles, bones, tendons and ligaments associated with sports specialization has been linked to a greater risk of overuse injuries. Overuse, which accounts for about half of the injuries seen in young athletes, happens gradually and gets worse over time.
- 
-What are the other Problems?
-1 Money and marketing: to grow, sports adapted to television formats and some lost a lot of fun because of it.
-2 Big athletes are big moneymakers and with it comes sponsors and cia demanding them be someone who they aren't. Their personalities are built by marketing.
-3 Match-fixing and doping: are sports results legitimate?
-4 People want to watch the best of the best all the time; most championships and tournaments of lower levels of most sports are not profitable nor can pay themselves solely with ticket sales (193)
- 
-How was pre-religion Arabic Barbaric time?
-Living in Clans , imitation and following little Prophets and  gods, pride and boasting, Polygynie, gamling, Alcohol (wine), Superstitions، various sexual Activities out of marriage, profiteering and usury.
+> <sub> Greater risk of overuse injuries in young athletes due to gradual and worsening effects of sports specialization on muscles, bones, tendons, and ligaments. </sub>
 
-bloody fights every day - passing on genes important - 
-Attracion Factors :
-men: muscles, height, testosterone
-Woman : ass and breast size , hip to ass ratio (188) 
+> <sub> Sports have become commercialized for TV, leading to loss of fun. Athletes are turned into marketing products, losing their personalities. Legitimacy of sports results is questioned due to match-fixing and doping. Only top-level tournaments are profitable because people prefer to watch the best. </sub>
 
-Modern societies -> modern Barbaropathism? 
-Compare to old barbarism :(188) 
+### What characterized the pre-religious barbaric era?
+
+> common behaviors: living in clans, following little prophets and gods, pride, boasting, polygyny, gambling, alcohol, superstitions, various sexual activities, profiteering, and usury. Bloody fights were a regular occurrence, and physical attributes such as muscles, height, testosterone for men and physical features like breast and hip size for women were important factors for attraction. (188) 
+
+## Modern psychopathic barbarism ->  Barbaropathism? 
+
 Clans in Berlin (Different liebanease shitee, libanease sunni, Türk society ,  afghan society, hipster area, right conservativ areas, left conservativ area, marrocan society...) 
 
 Attracion Factors : 
