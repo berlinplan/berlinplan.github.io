@@ -1,4 +1,4 @@
-# Berlinplan
+# Berlinplan - human Freedom sustainability
  
 to be answered by you. consider the information under questions as a resource.
 
@@ -593,11 +593,11 @@ Summary: Engaging in premarital sex, Alcohol, religious beliefs, Educational att
 
 <sub> **Considering aging populations and issues with societal values, is the promotion of stable families the most effective way to promote global equality and consistency?** </sub>
 
-## What is consistent Freedom? 
+## What is sustainale Freedom? 
 
-if a Freedom harms others, is it a consistent?
+if a Freedom harms others, is it sustainable?
 
-> if a society Decide all to be in open Relationships , which ends in ageing population , which leads to importing Migrants , a consistent Freedom?
+> if all individuals in a society Decide  to have freedom in their sex life and  be in open Relationships , which ends in ageing population and importing Migrants , is it sustainable? 
 
 #### Which criteria are crucial for establishing a stable family?
 
