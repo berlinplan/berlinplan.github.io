@@ -665,21 +665,16 @@ The use of beauty operations, dating apps, pickup and alpha masculinity coaches,
 
 ## Modern psychopathic barbarism ->  Barbaropathism? 
 
-Clans in Berlin (Different liebanease shitee, libanease sunni, Türk society ,  afghan society, hipster area, right conservativ areas, left conservativ area, marrocan society...) 
-
-Attracion Factors : 
-men: muscles, Bodybuilding, Supplement Testosteron injection, Beauty Operations 
-Women : Beauty Operations, big tits, face Lift, botax.  Good pictures on social Media. 
-
-Online Clans -> Youtube Algorithmus? Like an anti xxx Video. Get 100 xxx Suggestion?
-Influencer and Followers -> New Prophets?
-Pride and boasting -> social Media?
-Polygynie -> Red, Black, yello pill /Alpha pickup/ masculinity Coach / female elegancy Coachs 
-Gambling -> online casino, Coin Master etc? 
-Superstitions->  thousends Instagram  Coaches about Energy and...
-Varoius sexual Activities -> bumble, hinge tinder -> open Relationships-> hypergyny
-Beauty Operations? ->  body Builder Coaches? -> Supplements 
-Profiteering and usury -> Crypto trading, forex, Invest Bank Money in Appartements (189)
+- Berlin is home to various clans, such as Lebanese Shiites, Lebanese Sunnis, Turks, Afghans, hipsters, and conservative and Moroccan societies.
+- Factors of Attraction: Men - Muscles, Bodybuilding, Testosterone Injections, Supplements. Women - Cosmetic Procedures, Large Breasts, Beauty Operations, Botox, Social Media Presence.
+- Online Clans: Facebook Groups, Fan communities, YouTube algorithm: watch a video, get numerous suggestions about the same topic.
+- Influencer and Followers -> New Prophets?
+- Pride and boasting -> social Media?
+- Marriage: Polygamy, polygyny, alpha/beta pick-up strategies, masculinity and femininity coaches, Red, Black, and Yellow pill.
+- Gambling -> Smartphone Apps , online casino, Coin Master? 
+- Superstitions->  social media chanels Energy Spirituality ...
+- Varoius sexual Activities -> bumble, hinge tinder -> open Relationships-> hypergyny
+- Profiteering and usury -> Crypto trading, forex, passive income, Invest Bank Money in Appartements (189)
 ---------
 Possiblity of beta or Pilot project. In a Village of 100 people?
  
