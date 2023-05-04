@@ -426,7 +426,10 @@ Best Activism Hashtags to get most attention on Instagram (78)
 #activism - 48% #activist - 8% #blacklivesmatter - 6% #feminism - 5% #humanrights - 5% #equality - 5% #socialjustice - 5% #love - 4% #change - 4% #nonprofit - 4%
 #climatechange #vegan #peace #women #freedom #lgbt  #support #pride #mentalhealth #community   #change #lgbtq  #charity  #govegan #awareness #Bodybositivity # WomensMarch  #YouAintNoMuslimBruv #Metoo
 
--anti psychopathic app can be Integrate in existing democracy. No revolutanary change needed. 
+#### How to replace current system softly? 
+
+> Existing democracies can gradually integrate an anti-psychopathic app without the need for revolutionary change. A beta or pilot project can be tested in a village of 100 people.
+
 
 #### Can a moral act be performed without clear values?
 
@@ -676,8 +679,7 @@ The use of beauty operations, dating apps, pickup and alpha masculinity coaches,
 - Varoius sexual Activities -> bumble, hinge tinder -> open Relationships-> hypergyny
 - Profiteering and usury -> Crypto trading, forex, passive income, Invest Bank Money in Appartements (189)
 ---------
-Possiblity of beta or Pilot project. In a Village of 100 people?
- 
+
 -less Hierarchic /Ideological Armies Like Taliban /Iranian irgc/ Isis stronger or Classic Armies?
  
 If Parents get voting Power of their Children-> solve  Environment Problem?
