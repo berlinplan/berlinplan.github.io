@@ -224,7 +224,7 @@ People’s taxes finance the executive, legislative, and judiciary of modern soc
 
 > <sub> Other Options: (cancel Vote) due to no company found. (extend time) to find more companies. </sub>
 
-> <sub> Result: </sub> Company xxx selected. </sub>
+> <sub> Result: Company xxx selected. </sub>
 
 > <sub> Order created Automatically and sent. </sub>
 
