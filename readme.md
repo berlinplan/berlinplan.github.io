@@ -104,7 +104,7 @@ porn addiction, or problematic pornography use, affects approximately 3% to 6% o
 
 > <sub> Exploitation increases the international inequality (22) Tracing the global history of inequality from the Stone Age to today, **Walter Scheidel shows that it never dies peacefully. violent shocks reduce inequality.** Blanket bombing from the American air fleet and two devastating atomic bombs. led to a **decline in social inequality** (23)</sub>
 
-####  Can international inequality only be reduced through violent shock?
+#### Can international inequality only be reduced through violent shock?
 
 > <sub> The French colonization ended only after the Haitian slaves rebelled, leading to the Haitian Massacre which resulted in the deaths of 75,000 white French and 350,000 Haitians. (24) </sub>
 
@@ -164,7 +164,7 @@ According to The New York Times, Donald Trump "was a millionaire by age 8" [210]
 
 People’s taxes finance the executive, legislative, and judiciary of modern society.
 
-## Could a simple voting app be the solution to the 2500-year-old psychopathic problem of democracy?
+#### Could a simple voting app be the solution to the 2500-year-old psychopathic problem of democracy?
 
 <sub> New smartphones allow for complicated verification processes for online banking or exchange platforms, such as fingerprint and face scans, making it possible to transfer huge amounts of money.(72) </sub>
 
