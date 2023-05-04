@@ -181,15 +181,20 @@ People’s taxes finance the executive, legislative, and judiciary of modern soc
 #### What are the benefits of having money in your own wallet instead of letting psychopaths decide?
 
 > <sub> A voting app for laws and suggestions with a separate sector for comments that includes pros and cons. Users can vote for their favorite arguments. </sub>
+-------------
+
 > <sub> Example 1: should it be mandatory to pay monthly for ARD and ZDF? </sub>
+-------------
 
 > <sub> Example 2: Should we construct a power plant in our village? </sub>
 
 > <sub> Which company should build it after a 50%+ YES decision? </sub>
 
 > <sub> Should we pay it step by step from each person’s account or send the money to a psychopathic system to pay the company? </sub>
+-------------
 
 > <sub> Example 3: Should we impose sanctions on Russia, Saudi Arabia, USA or China for human rights violations? </sub>
+-------------
 
 > <sub> Example 4: Voting example in a village of 100 people. </sub> 
 
@@ -227,11 +232,12 @@ People’s taxes finance the executive, legislative, and judiciary of modern soc
 
 > <sub> Your Part is 10€. accept?  / reject? </sub>
 
-> <sub> After acceptance, 10€ will be automatically sent to Company xxx. </sub>
+> <sub> After acceptance, 10€ will be automatically sent to Company xxx </sub>
 
 > <sub> week 2 : Company xxx has compeleted 100%. accept?  /  reject? </sub>
  
-> <sub> After acceptance, 10€ will be automatically sent to Company xxx. </sub>
+> <sub> After acceptance, 10€ will be automatically sent to Company xxx </sub>
+-------------
 
 > <sub> Example 5: Who should be taxed more? </sub>
 
