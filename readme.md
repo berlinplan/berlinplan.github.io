@@ -4,7 +4,7 @@
 boring at the beginning , exciting at the end.
 
 -all this Content can be changed by you. 
-## What is the total number of generations that have lived over the past 2000 years?
+#### What is the total number of generations that have lived over the past 2000 years?
 
 > ~70 Generation from jesus to now [202](https://answersingenesis.org/bible-timeline/genealogy/how-many-human-generations-are-there-from-adam-until-today/)
 
@@ -26,7 +26,7 @@ boring at the beginning , exciting at the end.
 
 > worrines after Fukushima accident [206](https://www.bfs.de/DE/themen/ion/notfallschutz/notfall/fukushima/unfall.html)
 
-### Why do societies require laws to prohibit drug dealers?
+#### Why do societies require laws to prohibit drug dealers?
 
 > <sub> Drug abuse: Addiction, Mental Health Disorder, Violence, Society collapse , high Costs to Social Health, Economy & Family.(8) Drug users cannot be treated as criminals (169) they suffer from  something out of their control (170) £10000 a week trade of drug dealers (171) </sub> 
 
@@ -64,7 +64,7 @@ boring at the beginning , exciting at the end.
 
 > Is it a valid argument for creators on OnlyFans to claim that individuals are responsible for their own porn addiction, and that consumers must be aware of what they are consuming?
 
-## Is it socially and morally acceptable that an OnlyFans star earns 270 times more than a nursing assistant who makes approximately 1300€ per month? (1)(4)(5)
+#### Is it socially and morally acceptable that an OnlyFans star earns 270 times more than a nursing assistant who makes approximately 1300€ per month? (1)(4)(5)
 
 > <sub> 1. The content produced on OnlyFans is considered pornographic, and such activity is deemed harmful to society (28)(3). </sub>
 
