@@ -604,7 +604,7 @@ Red rules of stable Relationships:
 - seeking partners through dating apps prioritize physical appearance.(~40%)(126)
 - who approach strangers on the street without hesitation and inhibitions with sexual intentions.
 
-Do dating apps empower or disempower women
+#### Do dating apps empower or disempower women
 > online dating apps claims to empower women and promote equality. (150)
 
 
@@ -623,9 +623,13 @@ The psychopath frequently engages in promiscuous sexual behavior or has many sho
 > Polygamous scenarios often result in the phenomenon of polygyny, where males show renewed sexual interest upon encountering new females , unlike females who are unaffected by the Coolidge effect. (146)
 > Studies have indicated that men exhibit a higher preference for variety in short-term partners as compared to women. A Tinder-style experiment also found that men selected more potential sex partners than women.(151,152)
 
-Polygamy aka. Polygyny empowers or abuse Woman as Modern Barbarism?
-“Arguments that many women favor polygyny and should be free to choose it assume that in polygynous societies women would be free to choose their husbands. They assume that women’s far stronger rights, status, and freedoms in monogamous societies and traditions don’t depend upon monogamy”. (147)
-Effects on women
+#### women favor polygynous societies?
+
+>The argument for women's choice in polygyny posits that they would have the autonomy to select their partners in polygynous societies. Additionally, it assumes that women's rights, stature, and freedoms in traditions of monogamy aren't constrained by the institution itself.(147)
+
+Polygamy aka. Polygyny empowers or 
+
+Effects on women abuse Woman as Modern Barbarism?
 • Women in polygynous societies have low status and less freedom than women in monogamous societies.
 • Co-wives must compete with each other for love, sex, and money, and for education, inheritances, and paternal care and attention for their children. One study report, “Co-wife conflict is ubiquitous in polygynous households.
 • Polygynous wives suffer more violence and abuse. The age gap between polygynous husbands and their younger wives often increases marital conflict.
