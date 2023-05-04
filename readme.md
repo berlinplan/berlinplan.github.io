@@ -1,5 +1,5 @@
 # Berlinplan - 
-## human Freedom sustainability
+## human freedom sustainability
  
 boring at the beginning , exciting at the end.
 
