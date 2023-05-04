@@ -401,9 +401,7 @@ The UK’s Indian, Pakistani, and Asian population surprised London by voting pr
  
 > Oversociety must decide how to proceed against this behavior as it causes harm to all.
 
-More Advantages of app :
-1 . solve psychopaths Problem 2. More flexible as  confessions in Religions 
- 
+
 > <sub> Society 1: 60% -> Islamic values include wearing hijab, avoiding alcohol, abstaining from premarital sex, and not engaging in open relationships. </sub>
 
 > <sub> Society 2: 70% -> xxx values-> Drinking alcohol and engaging in premarital sex are permissible, but open relationships are not allowed. </sub>
@@ -589,7 +587,9 @@ Summary: Engaging in premarital sex, Alcohol, religious beliefs, Educational att
 
 > Could accepting Islamic values be an effective way to counter the expansion of Islam as it gains influence around the world?
 
-#### How does honoring Traditional Factors reduce inequality and enhance consistency?
+**Values are defined by individuals in the Voting app, similar to religion but without institution and corruption**
+
+#### does "religion" provide the most sustainable freedom?
 
 > Studies reveal that respecting and defining certain factors result in stable relationships which leads to sustainability and equality.
 
@@ -601,7 +601,8 @@ Summary: Engaging in premarital sex, Alcohol, religious beliefs, Educational att
 
 if a Freedom harms others, is it sustainable?
 
-> if all individuals in a society Decide  to have freedom in their sex life and  be in open Relationships , which ends in ageing population and importing Migrants , is it sustainable? 
+> a society that adopts open relationships and sexual freedom, resulting in an aging population and increased immigration, is that freedom: sustainable? 
+
 
 #### Which criteria are crucial for establishing a stable family?
 
@@ -641,11 +642,6 @@ Online dating has been linked to an increase in sexual activity. Multiple sexual
 #### How does polygyny affect men, women, and children in society?
 
 > </sub> Polygynous societies result in lower status and freedom for women, increased violence, and abuse, and poorer mental and physical health. Children in polygynous families also experience more problems and have higher mortality rates. Polygyny creates an imbalance in the number of unmarried men and women, leading to intense competition among men for mates and motivating male control over their female family members. Unmarried men are more likely to commit crimes than married men, and polygynous husbands have more extramarital affairs than monogamous husbands. Additionally, competition for wives increases in societies where women and children are important laborers, leading to a larger number of unmarried males.</sub>
-
-
-defined values/relegion the most POSSIBLE consistent kind of Freedom for man and Woman?
-Maximum enjoyment is achieved when you settle for minimum?
-The Most Freedom for he/She in church /islam? 
 
 #### Do competitions on psychopathic platforms generate value and Improvment?
 
