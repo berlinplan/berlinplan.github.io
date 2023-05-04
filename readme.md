@@ -174,6 +174,10 @@ People’s taxes finance the executive, legislative, and judiciary of modern soc
 
 > <sub> The President’s duties include making treaties, vetoing and signing bills, representing the nation in talks with foreign countries, enforcing laws passed by Congress, making suggestions about new laws, leading their political party, entertaining foreign guests, recognizing foreign countries and granting pardons. The parliamentarian’s tasks are to legislate and control the work of the government. (66,67) </sub>
 
+#### Is a step-by-step reduction and replacement of the current psychopathic structure feasible?
+
+> Existing democracies can gradually integrate an anti-psychopathic app without the need for revolutionary change. A beta or pilot project can be tested in a village of 100 people.
+
 #### What are the benefits of having money in your own wallet instead of letting psychopaths decide?
 
 > <sub> A voting app for laws and suggestions with a separate sector for comments that includes pros and cons. Users can vote for their favorite arguments. </sub>
@@ -348,15 +352,15 @@ The UK’s Indian, Pakistani, and Asian population surprised London by voting pr
 
 > <sub> Comparisons are a normal part of human cognition and can be good for the self-improvement process.(185) <sub>
 
-#### Why do migrants resist to accept the traditions of people who are already living in a psychopathic system?
+#### Why do migrants reject the traditions of people in a psychopathic system?
 
 > while populations, cultures, and values of people in industrial systems are disappearing,should one follow the path of someone who has sunk their ship?(186)
 
-#### is there any benefits from dialogue between different cultures within one society?
+#### What are the benefits of cultural dialogue within a society?
 
-> As previously mentioned debates, free information exchange and dialogue lead to more polarization.
+> The exchange of ideas and debates lead to more polarization, as stated before.
 
-#### How does polarization lead to the rise of tribalism?
+#### How is tribalism fueled by polarization?
 
 > The decrease in the percentage of people who take friends or marry someone with different political viewpoints reflects how social media has made the atmosphere so polarizing.
 
@@ -423,9 +427,6 @@ Best Activism Hashtags to get most attention on Instagram (78)
 #activism - 48% #activist - 8% #blacklivesmatter - 6% #feminism - 5% #humanrights - 5% #equality - 5% #socialjustice - 5% #love - 4% #change - 4% #nonprofit - 4%
 #climatechange #vegan #peace #women #freedom #lgbt  #support #pride #mentalhealth #community   #change #lgbtq  #charity  #govegan #awareness #Bodybositivity # WomensMarch  #YouAintNoMuslimBruv #Metoo
 
-#### How to replace current system softly? 
-
-> Existing democracies can gradually integrate an anti-psychopathic app without the need for revolutionary change. A beta or pilot project can be tested in a village of 100 people.
 
 
 
