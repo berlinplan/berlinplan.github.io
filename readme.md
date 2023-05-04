@@ -593,7 +593,7 @@ right Question is (After 100 years) :  how to remove Psychopathic Structures in 
 
 #### Which criteria are crucial for establishing a stable family?
 
-Red rules of stable Relationships:
+Red Flags for stable Relationships:
 <sub> *if someone* </sub>
 - have a history of multiple partners prior to marriage
 - Was sexually active in their teenage years.
@@ -612,11 +612,13 @@ Red rules of stable Relationships:
 Beauty Operations, dating, Pickup & Alpha masculinity Coaches, hook up & Ghost culture, Style coaches, online dating Profile Designer etc Side effects of growing psychopathic Platforms?
 Dating Apps have millions of users (55) 95% of females wants to date only 5% of men (56) the is new Standard of dating Culture (hook up culture) (58) Number of Alpha /Pick up Coaches is rising (57) PUA Coaches Promote their customers by using Psychological Tricks and Manipulations techniques to sleep with as more women as possible (60)
  
-Leads Psychopathic Dating Plattforms to internationale inequality?
-Online Dating increase sexual activity (62) Multiple Sexual Activity Is Linked to Higher Turnover Rates Among Sexual Partners (61) which decrease Birthrates (13) that causes Ageing Population (14)
+#### How do psychopathic dating platforms lead to international inequality?
 
-Online dating, Tinder etc best  Environment for psychopaths to Grow?
-The psychopath frequently engages in promiscuous sexual behavior or has many short-term marital relationships (59) Sociopathic behavior is rising (53)
+Online dating has been linked to an increase in sexual activity. Multiple sexual activity leads to higher turnover rates among sexual partners, which can decrease birthrates and cause ageing population.(13,14,61,62)
+
+#### why psychopaths thrive in online dating environments?
+
+> Psychopaths tend to engage in promiscuous sexual behavior and have short-term marital relationships.(59)
 
 #### How do dating apps contribute to the emergence of open relationships and polygyny?
 > Dating apps facilitate access for the top 5% of men to 95% of women, leading to an increase in sexual activity and a rise in open relationships.(56,62,149)
