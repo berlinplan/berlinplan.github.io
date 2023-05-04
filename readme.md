@@ -527,6 +527,7 @@ education and intelligence
 - 60 percent of cohabiting couples will eventually marry. However, living together prior to marriage can increase the chance of getting divorced by as much as 40 percent.
 - If you are a female serial cohabiter – a woman who has lived with more than one partner before your first marriage – then you’re 40 percent more likely to get divorced than women who have never done so.
  
+
 where you met
 - According to this study at least, if you met your spouse in high school, college, or grad school, you are 41 percent less likely to get divorced.
 - The other major difference was couples who met in bars were 24 percent more likely to get divorced than expected
@@ -577,7 +578,8 @@ Professions with lowest divorce rates:
 - Optometrists – 4.01
 - Agricultural Engineers – 1.78
  
-<sub> Summary: Engaging in premarital sex, Alcohol, religious beliefs, Educational attainment level of high school or college completion, Pre-marital cohabitation, Meeting  in college or in bar, sexual debut during teenage years, early initiation of sexual activity, social media use, exposure to pornography or games, parental divorce, premarital parenthood, tobacco or alcohol consumption, relationships with divorced family members or friends, and jobs with exposure to nudity </sub>
+
+Summary: Engaging in premarital sex, Alcohol, religious beliefs, Educational attainment level of high school or college completion, Pre-marital cohabitation, Meeting  in college or in bar, sexual debut during teenage years, early initiation of sexual activity, social media use, exposure to pornography or games, parental divorce, premarital parenthood, tobacco or alcohol consumption, relationships with divorced family members or friends, and jobs with exposure to nudity.
 
 #### Do stable family values align with religious values?(137)
 
@@ -602,22 +604,25 @@ Red rules of stable Relationships:
 - seeking partners through dating apps prioritize physical appearance.(~40%)(126)
 - who approach strangers on the street without hesitation and inhibitions with sexual intentions.
 
+Do dating apps empower or disempower women
+> online dating apps claims to empower women and promote equality. (150)
+
+
+
 Beauty Operations, dating, Pickup & Alpha masculinity Coaches, hook up & Ghost culture, Style coaches, online dating Profile Designer etc Side effects of growing psychopathic Platforms?
 Dating Apps have millions of users (55) 95% of females wants to date only 5% of men (56) the is new Standard of dating Culture (hook up culture) (58) Number of Alpha /Pick up Coaches is rising (57) PUA Coaches Promote their customers by using Psychological Tricks and Manipulations techniques to sleep with as more women as possible (60)
  
 Leads Psychopathic Dating Plattforms to internationale inequality?
 Online Dating increase sexual activity (62) Multiple Sexual Activity Is Linked to Higher Turnover Rates Among Sexual Partners (61) which decrease Birthrates (13) that causes Ageing Population (14)
-Dating Apps empower woman or disempower woman?
-online dating app Bumble claims to empower women and promote equality. (150)
 
 Online dating, Tinder etc best  Environment for psychopaths to Grow?
 The psychopath frequently engages in promiscuous sexual behavior or has many short-term marital relationships (59) Sociopathic behavior is rising (53)
 
-Leads Dating APPs to Open relationships/ Polygamy then to Polygyny?
-In Dating Apps top 5% men have “access” to 95% females (56) Dating Apps increase sexual Activity (62), Open relationships are on the rise (149) polygamy leads to Polygyny: males exhibit renewed sexual interest whenever a new female is introduced, while Females are not influenced by the Coolidge Effect (146)
-Other studies: “…In two experimental studies that employed different manipulations, we found converging evidence that men showed a greater preference for variety in potential short-term mates than did women.” (151)
-Another study: “--The experimental design involved a setup similar to the dating app Tinder… men selected more potential sex partners than the women did” (152)
- 
+#### How do dating apps contribute to the emergence of open relationships and polygyny?
+> Dating apps facilitate access for the top 5% of men to 95% of women, leading to an increase in sexual activity and a rise in open relationships.(56,62,149)
+> Polygamous scenarios often result in the phenomenon of polygyny, where males show renewed sexual interest upon encountering new females , unlike females who are unaffected by the Coolidge effect. (146)
+> Studies have indicated that men exhibit a higher preference for variety in short-term partners as compared to women. A Tinder-style experiment also found that men selected more potential sex partners than women.(151,152)
+
 Polygamy aka. Polygyny empowers or abuse Woman as Modern Barbarism?
 “Arguments that many women favor polygyny and should be free to choose it assume that in polygynous societies women would be free to choose their husbands. They assume that women’s far stronger rights, status, and freedoms in monogamous societies and traditions don’t depend upon monogamy”. (147)
 Effects on women
