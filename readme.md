@@ -627,30 +627,12 @@ The psychopath frequently engages in promiscuous sexual behavior or has many sho
 
 >The argument for women's choice in polygyny posits that they would have the autonomy to select their partners in polygynous societies. Additionally, it assumes that women's rights, stature, and freedoms in traditions of monogamy aren't constrained by the institution itself.(147)
 
-Polygamy aka. Polygyny empowers or 
+  empowers or 
 
-Effects on women abuse Woman as Modern Barbarism?
-• Women in polygynous societies have low status and less freedom than women in monogamous societies.
-• Co-wives must compete with each other for love, sex, and money, and for education, inheritances, and paternal care and attention for their children. One study report, “Co-wife conflict is ubiquitous in polygynous households.
-• Polygynous wives suffer more violence and abuse. The age gap between polygynous husbands and their younger wives often increases marital conflict.
-• The shortage of women in polygyny forces men to seek younger and younger wives. Women’s average age at marriage is 10 years younger than in monogamy, they are much younger when they first give birth, and they have a wider marital age gap.
-• Early marriage and child-bearing contribute heavily to poorer mental and physical health for women—more depression, nervous breakdowns, and higher mortality and shorter lives than monogamous women.
-Effects on children
-• Children in polygynous relationships receive much less paternal attention and care. Polygyny reduces a man’s investment of time and resources in each of his more numerous offspring. One man with several wives and a lot of children can’t give any of them the time and attention a monogamous man can give each member of his family. (So far, Kody Brown seems to have 18 children. FLDS recommends that each man takes at least three wives; its leaders sometimes have staggering numbers—for example, Canadian FLDS leader Winston Blackmore has 150 children by 27 wives.)
-• Excess boys have been abandoned or forced out of some fundamentalist Mormon communities.
-• Children in polygynous families suffer more abuse, neglect, and violence than those in monogamous families, and have more physical, emotional, and behavioral problems.
-• Infant mortality is much higher in polygynous than in comparable monogamous societies. Within polygynous societies, children in monogamous families also have lower mortality rates than those in polygynous families. In 19th century American polygyny, the children of poor men’s monogamous marriages had significantly better survival rates than the children of rich polygynists.
-Effects on men
-• Polygyny, even at low-sounding percentage rates, creates a shortage of unmarried women and an excess of unmarried men. In a simple society of 100 people, suppose only three out of 50 men (or six percent) are polygynous. Suppose two of them have three wives each and the third, a very rich man, has 10. That means those three men marry 32 percent of the women, leaving just 34 for the remaining 47 men. Over a quarter of the men will have no wives. Even these modest levels of polygyny are sometimes exceeded in real life. In Burkina Faso and Nigeria, 36 percent and 28 percent of households, respectively, are polygynous; in Togo 54 percent of married women are in polygynous marriages. Some United States polygynous communities have had very high rates.
- 
-• Polygyny creates intense male competition for mates. In polygynous societies, all married men are still in the marriage market because they can always marry more wives. In a monogamous society, once a man marries, he exits the competition.
- 
-• In polygynous societies, competition among men for mates motivates male control over their sisters, daughters, and wives. Sisters and daughters can be traded for a new wife or for money, goods, labor, favors, and political or military support from other men. To consolidate these deals, they need the power to force the girls and women to marry. Polygynous husbands may seek control over their wives so as to compel their labor, and also because their wives’ sexual opportunities with them are limited compared to those of monogamous women’s. Young wives, meanwhile, may prefer young men to old husbands.
-• In societies where women and children are important as laborers for their husbands and fathers—as they often are in polygynous relationships in the United States—competition for wives increases, creating a larger number of unmarried males.
- 
-• Unmarried men in both polygynous and monogamous societies commit far more crimes than married men. Having a wife reduces the chance that a man will commit a crime by half. (Unmarried cohabitation doesn’t reduce crime.)
-• A study in Malawi found that polygynous husbands had more extramarital affairs than monogamous husbands.
- 
+#### which effect Polygynous society have on women children and Men ?
+
+> </sub> Polygynous societies result in lower status and freedom for women, increased violence, and abuse, and poorer mental and physical health. Children in polygynous families also experience more problems and have higher mortality rates. Polygyny creates an imbalance in the number of unmarried men and women, leading to intense competition among men for mates and motivating male control over their female family members. Unmarried men are more likely to commit crimes than married men, and polygynous husbands have more extramarital affairs than monogamous husbands. Additionally, competition for wives increases in societies where women and children are important laborers, leading to a larger number of unmarried males.</sub>
+
 Respecting values -> stable Relationships -> sustainability ->equality. 
 By having defined values aka. Religion -> Reach Equality?
 Monogamy is the only consistent relationship for men, woman and children, values to keep a relationship stable and long: very similar to religious Values.
