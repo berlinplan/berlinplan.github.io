@@ -633,6 +633,7 @@ Online dating has been linked to an increase in sexual activity. Multiple sexual
 > Psychopaths tend to engage in promiscuous sexual behavior and have short-term marital relationships.(59)
 
 #### How do dating apps contribute to the emergence of open relationships and polygyny?
+
 > The popularity of dating apps is on the rise, with millions of users (55, 56)
 > Dating apps facilitate access for the top 5% of men to 95% of women, leading to an increase in sexual activity and a rise in open relationships.(56,62,149)
 > Polygamous scenarios often result in the phenomenon of polygyny, where males show renewed sexual interest upon encountering new females , unlike females who are unaffected by the Coolidge effect. (146)
@@ -640,7 +641,7 @@ Online dating has been linked to an increase in sexual activity. Multiple sexual
 
 #### How does polygyny affect men, women, and children in society?
 
-> </sub> Polygynous societies result in lower status and freedom for women, increased violence, and abuse, and poorer mental and physical health. Children in polygynous families also experience more problems and have higher mortality rates. Polygyny creates an imbalance in the number of unmarried men and women, leading to intense competition among men for mates and motivating male control over their female family members. Unmarried men are more likely to commit crimes than married men, and polygynous husbands have more extramarital affairs than monogamous husbands. Additionally, competition for wives increases in societies where women and children are important laborers, leading to a larger number of unmarried males.</sub>
+> <sub> Polygynous societies result in lower status and freedom for women, increased violence, and abuse, and poorer mental and physical health. Children in polygynous families also experience more problems and have higher mortality rates. Polygyny creates an imbalance in the number of unmarried men and women, leading to intense competition among men for mates and motivating male control over their female family members. Unmarried men are more likely to commit crimes than married men, and polygynous husbands have more extramarital affairs than monogamous husbands. Additionally, competition for wives increases in societies where women and children are important laborers, leading to a larger number of unmarried males.</sub>
 
 #### Do competitions on psychopathic platforms generate value and Improvment?
 
@@ -676,11 +677,13 @@ The use of beauty operations, dating apps, pickup and alpha masculinity coaches,
 ---------
 
 
-## e-car: good for Environment and Atomic war for earth ? 
-e-cars Create such a inequality that only can be solveb by a "violent shock ". 
+## e-cars: positive impact on the environment but destruction of the earth through atomic war?
+
+E-cars lead to such inequality that only a violent shock can solve it.
+
 Joe Biden passed the Chips Act to restrict the use of US technology in producing semiconductors below 14 nanometers. Electric cars require ten times as many chips as petrol or diesel, leading to chip shortages. Technology producers prioritize profit, leading to poorer countries importing the technology. This creates a cycle of wealth inequality, where the rich get richer and the poor get poorer.(139,140)
 
-Would Economic Sanctions, brain drain,  Migration of youth,  negativ handle Balance.  Corroupt psychopathic goverment pushes a society to "international violent shock"?
+
 
 Which is the correct Solution? 
 solve Environment Issues -> Block streets?activity Instagram? get Position in Psychopathical System, collect Follower, Money, popoularity?
@@ -703,8 +706,10 @@ loser countries via Oversociety?
 • A real egoist - Bound himself to values for Create a Family and avoid Import. Workers from other countries, because it Makes the World inequal?
 • A real egoist avoids multi-cultirism in the Form of psychopathic Systems because it leads to inequality! Parallel societies! And conflicts.
 
+#### Could economic sanctions, brain drain, youth migration, and inadequate handling of the balance contribute to a society adopting a violent shock strategy?
 
-#### How near is Atomic war?
+## How near was an Atomic war?
+
 January 2006 Iranian poll: 85 percent of Iranians supported the nuclear program (156) Poll 2010: 71% of Iranians want nuclear arsenal (155) Gallup Poll 2013: Iranians Strongly Support Nuclear Program Despite Sanctions (157) (160)2013 Zogby Poll: 84% Iranians want nuclear weapon (159) (158) CISSM October 2020 Poll: 84.5% Iranian think Ending uranium enrichment in Iran is unacceptable. Ending all ballistic missile testing by Iran is for 83,4% of Iranian unacceptable (161)
 
 2013 Gallup Iran poll: Which of following groups do you hold most responsible for sanctions against Iran? (165)46% The U.S 16% don´t know 13% The Iranian government 12% UN and EU.
