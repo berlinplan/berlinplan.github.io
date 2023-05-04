@@ -434,16 +434,10 @@ Best Activism Hashtags to get most attention on Instagram (78)
 
 standards of behaviour; principles of right and wrong. (190)
 
-#### why Ideological Groups Like ISIS and Taliban perfom better than Most Modern armies? 
+#### What makes ideological groups like ISIS and Taliban outperform most modern armies?
 
-Ideological little Groups:
-- very clear defined values 
-- non Hierarchic Structure: equality 
+Clear values and non-hierarchical structures (equality) in Ideological Groups versus Pathocratic armies claim to uphold non-negotiable human rights, but maintain strong ties with Saudi Arabia while imposing heavy sanctions on Iran for their human rights violations.
 
-Modern armies:
-pathocracy  ->  Human rights -> non-negoatiateable 
-Saudi Arabia big Human rights violation-> best Partners with  germany 
-Iran Human rights violation -> sanctions 
 
 #### Can a moral act be performed without clear values?
 
@@ -458,41 +452,42 @@ Is it morally acceptable to use barbaric torture methods with an 80% success rat
 > Religious and political psychopaths suggest seek moral justification from leaders or judges.
 
 
-#### How can the Voting app solve ethical problems for the first time in human history?
+#### Can the Voting app revolutionize ethics by solving problems for the first time in human history?
 
->The ethical dilemma of allowing a bomb to explode or using torture can only be resolved by society. If society votes for it for a limited time, then torture is morally acceptable, but doing it for months is unethical.
+> Resolving the ethical dilemma of torture or allowing a bomb to explode can only be done by society, which may approve of limited use of torture but not prolonged use.
 
 #### does end justify the means?
 
 > - End: save 1 life
 > - Mean: kill 1 
 > - No: due to App -> kill -> big damage
-
+--------------
 
 > - End: save 7 lifes
 > - Mean: kill 1
 > - No: due to App -> kill -> big damage
-
+--------------
 
 > - End: save all human kind </sub>
 > - Mean: kill 1 </sub>
 > - X: An emergency situation will trigger an app notification for all people on the planet to vote.
-
+--------------
 
 > - End: rescue a dog trapped inside a car 
 > - Mean: break others property, enter privat room
 > - Yes: app-> Choosing not to save a life is a greater harm than entering a private room.
-
+--------------
 <sub> **Can lying in an election to achieve power for a good cause later be morally justified?** </sub>
+
 > - End : save lifes  
 > - Mean : lie through election
 > - No : app-> Systematic lying in elections causes greater societal and personal damage than the benefit of saving lives later.
-
+--------------
 
 > - End : save milion lifes
 > - Mean : kill thousends, Atom bomb Hiroshima? 
 > - app
-
+--------------
  
 ## How to stop the Islamization of Europe?
 
@@ -583,7 +578,7 @@ Professions with lowest divorce rates:
 - Clergy – 5.61
 - Optometrists – 4.01
 - Agricultural Engineers – 1.78
- 
+--------------
 
 Summary: Engaging in premarital sex, Alcohol, religious beliefs, Educational attainment level of high school or college completion, Pre-marital cohabitation, Meeting  in college or in bar, sexual debut during teenage years, early initiation of sexual activity, social media use, exposure to pornography or games, parental divorce, premarital parenthood, tobacco or alcohol consumption, relationships with divorced family members or friends, and jobs with exposure to nudity.
 
@@ -620,7 +615,7 @@ Red Flags for stable Relationships:
 - look for a partner in bars and clubs.
 - seeking partners through dating apps prioritize physical appearance.(~40%)(126)
 - who approach strangers on the street without hesitation and inhibitions with sexual intentions.
-
+--------------
 #### Do dating apps empower or disempower women
 
 > online dating apps claims to empower women and promote equality. (150)
