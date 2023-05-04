@@ -277,7 +277,6 @@ The UK’s Indian, Pakistani, and Asian population surprised London by voting pr
 
 > euroscepticism within the British South Asian population was stronger than previously anticipated.(197) 
 
-
 #### Do the residents of Germany share any common values as one **"society"**?
 
 > <sub> The EU considers “human rights” a non-negotiable value, but the German football team participated in the 2022 World Cup in Qatar without wearing a “one love” band. (106) </sub>
@@ -400,7 +399,7 @@ The UK’s Indian, Pakistani, and Asian population surprised London by voting pr
 > Example: Society 6 start psychopathic economy leading to inequality, an aging population, migration, loss of working power, harm to families and children left behind, society issues, increased flights due to intercontinental families, and increasing polarization and inequality.
  
 > Oversociety must decide how to proceed against this behavior as it causes harm to all.
-
+------------
 
 > <sub> Society 1: 60% -> Islamic values include wearing hijab, avoiding alcohol, abstaining from premarital sex, and not engaging in open relationships. </sub>
 
