@@ -678,13 +678,7 @@ The use of beauty operations, dating apps, pickup and alpha masculinity coaches,
 
 -less Hierarchic /Ideological Armies Like Taliban /Iranian irgc/ Isis stronger or Classic Armies?
  
-If Parents get voting Power of their Children-> solve  Environment Problem?
 
--the half-lives of some of radioisotopes produced are greater than a million years. 
-Should we give children (over Parents) voting Power? 
- 
-App->Destroy Psychopathical Systems ->equality -> No Mass Migration -> less Flights -> good Environment -> societies with similar values  melt -> No borders -> no Investment in Armies
- 
 e-car->maybe good for Environment -> Create huge inequality -> Atomic war -> bad for Environment? 
 
 Electric cars would need ten times as many chips as petrol or diesel (140) Joe Biden passed the Chips Act. This states that no US technology may be used in the production of semiconductors with a structure width of less than 14 nanometers. (139)
@@ -699,13 +693,13 @@ Or solve Environment Issues -> equality -> including losers in voting ->children
 loser countries via Oversociety? 
 
 
-Which Options is There to reduce inequality?
+#### Which Options is There to reduce inequality?
 1. Non psychopathic app for political, Economic, value, Environmental equality?
 2. Violent shock, big enough to destroy inequality and do action 1 to Keep it?
 
- Since 1960 inequality is Rising in the World (138), the only way to destroy inequality is "violent shock"
+> Since 1960 inequality is Rising in the World (138), the only way to destroy inequality is "violent shock"
 
-Why egoism is the best Solution? 
+#### Why egoism is the best Solution? 
  
 • A real egoist - don’t want inequality in World, because he is self-centered and don’t like to get atomic bomb on His Head.
 • A real egoist - even in a country wants to have equality. Then the only way to live in a long term Safe and clean area without Revolutions etc.
@@ -714,12 +708,12 @@ Why egoism is the best Solution?
 • A real egoist avoids multi-cultirism in the Form of psychopathic Systems because it leads to inequality! Parallel societies! And conflicts.
 
 
-How near is Atomic war?
+#### How near is Atomic war?
 January 2006 Iranian poll: 85 percent of Iranians supported the nuclear program (156) Poll 2010: 71% of Iranians want nuclear arsenal (155) Gallup Poll 2013: Iranians Strongly Support Nuclear Program Despite Sanctions (157) (160)2013 Zogby Poll: 84% Iranians want nuclear weapon (159) (158) CISSM October 2020 Poll: 84.5% Iranian think Ending uranium enrichment in Iran is unacceptable. Ending all ballistic missile testing by Iran is for 83,4% of Iranian unacceptable (161)
 
 2013 Gallup Iran poll: Which of following groups do you hold most responsible for sanctions against Iran? (165)46% The U.S 16% don´t know 13% The Iranian government 12% UN and EU.
 
-Why psychopathic Leaders Would never use Atom bombs?
+#### Why psychopathic Leaders Would never use Atom bombs?
 
 Psychopaths are not crazy. They are fully aware of what they do and the consequences of those actions.(195)
  
@@ -729,7 +723,7 @@ Iran Poll Jul 2022: 54% of Iranian think developing nuclear weapons is against t
 2023 Iran religious Leader Khamenei says: he opposes holding referendum because 'not all people have the power to analyze the issue' proposed for a vote (164)
  While ordinary people wants Atomic Bomb. Leaders dont want. 
 
-Psychopathical religious Leaders invent Islamic law to forbid it?
+#### Psychopathical religious Leaders invent Islamic law to forbid it?
 Atomic War ->equality
 Psychopathical Political and Religious Leaders -> gain or lose Power?
 
@@ -754,7 +748,7 @@ Poll as Jul.2022: Why do you think Iran should develop atomic bombs? (On Pro bom
 • 4.5% don’t know
 
 
-Why a Terrorist See innocent people living in a psychopathical System as enemy? 
+#### Why a Terrorist See innocent people living in a psychopathical System as enemy? 
 
 Example 1  :
 Imagine You are Inside your home in Your Village in pashganistan, your home get Bombed by some psychopathical Military Armies. (By mistake or for spread democracy etc) Your Family got killed. 
@@ -771,7 +765,7 @@ Example 2:
 You live in pashganistan. Psychopathical System makes sanctions on Your country. Google Support that System and delete all Your Banking, Taxi etc apps from Android. A Youtube Video Creator for peace love and climate, YT runned by Google, which Make sanctions => inequality? 
 
 
-How much a pashganistani  Benefits from luxury elektro Cars /NASA traveller Or super Yachts?
+#### How much a 3rd-world citizen Benefits from luxury elektro Cars /NASA traveller Or super Yachts?
 
 You work in a Microchip Producer Company, that could be used in highest super Computers, best luxury elektro Cars, Air space and in Rockets and Aircrafts and drones that ONLY get used in Afghanistan, iran, iraq some times in  Syria, north Korea, Sudan.
 If the VOTE of pashganistanis get Counted, could we Then See if you help Them or not? 
