@@ -305,7 +305,7 @@ The UK’s Indian, Pakistani, and Asian population surprised London by voting pr
 
   <sub> Germany is the biggest winner. According to Brücker in 2013, without immigration, the labor force potential in Germany would fall by around 40% by 2050. (117) <sub>
 
-#### Are countries that migrants come from the biggest winners,too?
+#### Are the "Homeland countries" of migrants the biggest Winners, too?
 
 > Immigration leads to a decrease in IQ in origin countries. Scotland has the lowest average IQ in the UK and performs poorly compared to most of Europe, according to studies.(119)
 
