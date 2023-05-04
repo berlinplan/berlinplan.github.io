@@ -235,7 +235,7 @@ People’s taxes finance the executive, legislative, and judiciary of modern soc
 
 > <sub> youtuber, instagramer, tik toker, porn performer? </sub>
  
-## Is there a way to have a non-psychopathic economy without turning to communism?
+#### Is there a way to have a non-psychopathic economy without turning to communism?
 
 1. Can equal treatment of employees in a company affect quality, work ethic, effectiveness, and non-wasteful use of resources?
 2. Although communism has never worked, the most social system in the world (Germany) has the highest industry quality and production.
