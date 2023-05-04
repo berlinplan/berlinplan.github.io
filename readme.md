@@ -690,14 +690,6 @@ E-cars lead to such inequality that only a violent shock can solve it.
 Joe Biden passed the Chips Act to restrict the use of US technology in producing semiconductors below 14 nanometers. Electric cars require ten times as many chips as petrol or diesel, leading to chip shortages. Technology producers prioritize profit, leading to poorer countries importing the technology. This creates a cycle of wealth inequality, where the rich get richer and the poor get poorer.(139,140)
 
 
-
-Which is the correct Solution? 
-solve Environment Issues -> Block streets?activity Instagram? get Position in Psychopathical System, collect Follower, Money, popoularity?
-
-Or solve Environment Issues -> equality -> including losers in voting ->children via Parents 
-loser countries via Oversociety? 
-
-
 #### Which Options is There to reduce inequality?
 1. Non psychopathic app for political, Economic, value, Environmental equality?
 2. Violent shock, big enough to destroy inequality and do action 1 to Keep it?
@@ -787,19 +779,25 @@ Start to Produce food instead of letting Avocado shipped from 10000km?
 
 Clean the damage of last years?
 
+## How can the environmental crisis be resolved?
 
-Sociopaths  Solution could work ? 
+> Increase polarization by blocking streets, engaging in Instagram activity, and competing within the psychopathic system for popularity and monetary benefits.
 
-Boris Palmer : with the abolition of social benefits, forcing asylum seekers to work and sending the bad ones back home.(196) or other Solution : Brexit : Indians, Asian in uk voted pro brexit (197)
-Aka. Import good and Most healthy Workers. The bad ones get dipprted to countries of origin
- 
--as the Next step Would be meaningful Building big Walls outside Germany /EU. 
+> Promote equality by involving marginalized groups such as children and disadvantaged nations in the voting process.
 
--Make sure that pashganistan never build Atomic bombs, pashganistan have psychopathical System that never use Them. 
+#### Can solutions proposed by psychopaths address the inequality caused by the psychopathic system?
 
+> or: how recruiting talented individuals from abroad and repatriate underperforming ones, will solve the international inequality?
 
-Question : What if a little Group out side of Power in pashganistan Create an app, totaly equality, and by Developing Technologie 3D Printer etc in 10/20 years build an underground Atom bomb?
-------
+In his proposal, Boris Palmer suggested that asylum seekers must work, social benefits should be removed, and those who fail to follow the rules should be deported.(196)
+
+#### Which solutions could be proposed by psychopaths to solve the inequality caused by the psychopathic system?
+
+-construct massive walls beyond Germany/EU borders.
+-Prevent the production of atomic bombs in marginalized societies.
+
+#### Can a small, equally managed terrorist group in marginalized societies outside of a psychopathic regime produce an atomic bomb with the help of new technologies such as 3D printers?
+
 Is Europa Like USA out of Radar?
 Importing good Workers, send bad ones back, build Walls, sanctions Make more inequality,  push "pashganistan loser society more want to use Atomic bomb " to have the highest Range of equality After using some. Is more dangerous for europe or USA? 
  
