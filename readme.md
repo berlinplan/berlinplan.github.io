@@ -1,7 +1,6 @@
 # Berlinplan - 
 ## freedom sustainability terror
  
-boring at the beginning , exciting at the end.
 
 -all this Content can be changed by you. 
 #### What is the total number of generations that have lived over the past 2000 years?
