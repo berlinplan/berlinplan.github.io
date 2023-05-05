@@ -427,7 +427,6 @@ The merging of two societies occurs when they have the same values.
 > Can Christians be inspired by Muslims to reduce alcohol consumption and have more stable relationships?
 
 
-
 ## What is morality?
 
 standards of behaviour; principles of right and wrong. (190)
@@ -600,7 +599,6 @@ if a Freedom harms others, is it sustainable?
 
 > a society that adopts open relationships and sexual freedom, resulting in an aging population and increased immigration, is that freedom: sustainable? 
 
-
 #### Which criteria are crucial for establishing a stable family?
 
 Red Flags for stable Relationships:
@@ -658,7 +656,7 @@ The use of beauty operations, dating apps, pickup and alpha masculinity coaches,
 > <sub> Sports have become commercialized for TV, leading to loss of fun. Athletes are turned into marketing products, losing their personalities. Legitimacy of sports results is questioned due to match-fixing and doping. Only top-level tournaments are profitable because people prefer to watch the best. </sub>
 
 
-#### if psychopathical Entertainments are reduced. What to do in free time? 
+#### How can an individual spend their free time if they decrease their involvement in psychopathic entertainment?
 
 > Opt for spending quality time with family through activities such as outdoor recreation, creative pursuits, playing games, reading, education, and volunteering, rather than being exposed to sexualization on social media channels like TikTok and Instagram.
 > Tackle past environmental damage while also producing food locally instead of importing avocados from faraway places.
@@ -684,13 +682,11 @@ The use of beauty operations, dating apps, pickup and alpha masculinity coaches,
 ---------
 
 
-## e-cars: positive impact on the environment but destruction of the earth through atomic war?
-
-E-cars lead to such inequality that only a violent shock can solve it.
+## e-cars: benefiting the environmen; leading to inequality; possiblity of atomic war?
 
 Joe Biden passed the Chips Act to restrict the use of US technology in producing semiconductors. e-cars require ten times as many chips as petrol or diesel. Technology producers prioritize profit, leading to poorer countries importing the technology. This creates a cycle of wealth inequality, where the rich get richer and the poor get poorer.(139,140)
 
-#### While in the most 3rd-world countries , There are only few roads , How much do luxury self Pilot e-cars, NASA space travel, or Hi-Tech super yachts contribute to the well-being of third-world citizens?
+#### While most 3rd-world countries have no roads, How much do luxury self Pilot e-cars, NASA space travel, or Hi-Tech super yachts contribute to the well-being of their citizens?
 
 ###Is it probable that citizens of the Middle East see on their damaged streets, self-driving e-cars or psychopathic countries military technology, including supercomputers, drones, satellites, rockets, and aircrafts?
 #### could we have better Smartphones and higher Technology, If slavery could continue further? 
