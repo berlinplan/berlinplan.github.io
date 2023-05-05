@@ -718,16 +718,10 @@ January 2006 Iranian poll: 85 percent of Iranians supported the nuclear program 
 
 2013 Gallup Iran poll: Which of following groups do you hold most responsible for sanctions against Iran? (165)46% The U.S 16% don´t know 13% The Iranian government 12% UN and EU.
 
-#### Why psychopathic Leaders Would never use Atom bombs?
+#### Why psychopathic leaders would never utiliz an atom bombs?
+ Despite common misconceptions, psychopaths are fully cognizant of the consequences of their actions. ; they are not insane.(195)
 
-Psychopaths are not crazy. They are fully aware of what they do and the consequences of those actions.(195)
- 
-2013 Iran's religious Leader Khamenei says building, using nuclear bomb is forbidden under religion (154) he used his special religious Power and made a non-changeable Islamic rule on it Haram-fatwa (178) Mahmoud Ahmadinejad the most Popular Iranian President who was pushing nuclear development program 'disqualified' from every Iran’s election since 2013 (162)
- 
-Iran Poll Jul 2022: 54% of Iranian think developing nuclear weapons is against the teachings of Islam. (163)
-2023 Iran religious Leader Khamenei says: he opposes holding referendum because 'not all people have the power to analyze the issue' proposed for a vote (164)
- While ordinary people wants Atomic Bomb. Leaders dont want. 
-
+In 2013, Iran's religious leader Khamenei prohibited the development and deployment of nuclear weapons under Islamic law by issuing an irrevocable Fatwa, Following this, Mahmoud Ahmadinejad, who strongly supported Iran's nuclear program, has been disqualified from all Iranian elections since then. (154,162,163,164,178)
 #### Psychopathical religious Leaders invent Islamic law to forbid it?
 Atomic War ->equality
 Psychopathical Political and Religious Leaders -> gain or lose Power?
@@ -742,15 +736,7 @@ Idealogical - equal - value based Group Like Al-qaida?, ISIS? Whatever With New 
 
 
 People wants Atom bomb. to kill others or it is an inequality thing?
- (~80% Because others have it)
-Poll as Jul.2022: Why do you think Iran should develop atomic bombs? (On Pro bomb voters) (163)
-• 33.8% to prevent others from attacking Iran
-• 14.1% Because countries with nuclear weapons are threatening Iran
-• 13.2% To show our power
-• 10.5% Because other countries have it
-• 7.2% to increase our defense capabilities
-• 5.4% it would increase our security
-• 4.5% don’t know
+Approximately 80% of those surveyed expressed support for defense based on the possession of others, according to poll results.(163)
 
 
 #### Why a Terrorist See innocent people living in a psychopathical System as enemy? 
@@ -798,6 +784,12 @@ In his proposal, Boris Palmer suggested that asylum seekers must work, social be
 Is Europa Like USA out of Radar?
 Importing good Workers, send bad ones back, build Walls, sanctions Make more inequality,  push "pashganistan loser society more want to use Atomic bomb " to have the highest Range of equality After using some. Is more dangerous for europe or USA? 
  
+
+##What was the Benefit of slavery and colonization to World Development?
+- slavery was the engine of us growth (214)
+- colonization had a huge Impact on Development in Western countries (215)
+
+## Would granting voting power to marginalized groups such as children and those in third-world countries, lead to a reduction in inequality? (as former slaves in the US)
 
 
 How to understand Sociopathic behavior? 
