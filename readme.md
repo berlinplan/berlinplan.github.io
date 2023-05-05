@@ -692,7 +692,7 @@ Joe Biden passed the Chips Act to restrict the use of US technology in producing
 
 #### While in the most 3rd-world countries , There are only few roads , How much do luxury self Pilot e-cars, NASA space travel, or Hi-Tech super yachts contribute to the well-being of third-world citizens?
 
-
+###Is it probable that citizens of the Middle East see on their damaged streets, self-driving e-cars or psychopathic countries military technology, including supercomputers, drones, satellites, rockets, and aircrafts?
 #### could we have better Smartphones and higher Technology, If slavery could continue further? 
 #### What was the Benefits of slavery and colonization to World Development?
 - slavery was the engine of us growth (214)
