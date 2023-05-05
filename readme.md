@@ -427,12 +427,6 @@ The merging of two societies occurs when they have the same values.
 
 > Can Christians be inspired by Muslims to reduce alcohol consumption and have more stable relationships?
 
-Moraly right?
-Activity in social media -> psychopathic inequality ->  Fighting for equality while benefiting from inequality?
-Best Activism Hashtags to get most attention on Instagram (78)
-#activism - 48% #activist - 8% #blacklivesmatter - 6% #feminism - 5% #humanrights - 5% #equality - 5% #socialjustice - 5% #love - 4% #change - 4% #nonprofit - 4%
-#climatechange #vegan #peace #women #freedom #lgbt  #support #pride #mentalhealth #community   #change #lgbtq  #charity  #govegan #awareness #Bodybositivity # WomensMarch  #YouAintNoMuslimBruv #Metoo
-
 
 
 ## What is morality?
@@ -690,19 +684,20 @@ E-cars lead to such inequality that only a violent shock can solve it.
 Joe Biden passed the Chips Act to restrict the use of US technology in producing semiconductors below 14 nanometers. Electric cars require ten times as many chips as petrol or diesel, leading to chip shortages. Technology producers prioritize profit, leading to poorer countries importing the technology. This creates a cycle of wealth inequality, where the rich get richer and the poor get poorer.(139,140)
 
 
-#### Which Options is There to reduce inequality?
-1. Non psychopathic app for political, Economic, value, Environmental equality?
-2. Violent shock, big enough to destroy inequality and do action 1 to Keep it?
 
-> Since 1960 inequality is Rising in the World (138), the only way to destroy inequality is "violent shock"
+## Activism in social media: fighting for equality while creating and benefiting from inequality?
+Get maximum attention for your Instagram activism with these top hashtags: (78)
+#activism (48%), #activist (8%), #blacklivesmatter (6%), #feminism (5%), #humanrights (5%), #equality (5%), #socialjustice (5%), #love (4%), #change (4%), and #nonprofit (4%).climatechange, #vegan, #peace, #women, #freedom, #lgbt, #support, #pride, #mentalhealth, #community, #change, #lgbtq, #charity, #govegan, #awareness, #bodypositivity, #WomensMarch, #YouAintNoMuslimBruv, and #MeToo.
 
-#### Why egoism is the best Solution? 
- 
-• A real egoist - don’t want inequality in World, because he is self-centered and don’t like to get atomic bomb on His Head.
-• A real egoist - even in a country wants to have equality. Then the only way to live in a long term Safe and clean area without Revolutions etc.
-• A real egoist - Not Drinking Alk, cigarette, avoid multiple sexual Activity, avoid consumption of porn,social Media, avoid polluting Environment.
-• A real egoist - Bound himself to values for Create a Family and avoid Import. Workers from other countries, because it Makes the World inequal?
-• A real egoist avoids multi-cultirism in the Form of psychopathic Systems because it leads to inequality! Parallel societies! And conflicts.
+
+#### Aside from violent methods, what strategies can be employed to effectively address the increasing global inequality that has persisted since 1960?(138)
+
+#### Why is egoism considered the most effective solution?
+> <sub> Authentic egoists: </sub>
+
+- oppose global inequality due to their aversion to the possibility of a nuclear attack
+- prioritize equality as the only means to ensure long-term safety and cleanliness within societies, while preventing revolutions and theft.• A real egoist - Not Drinking Alk, cigarette, avoid multiple sexual Activity, avoid consumption of porn,social Media, avoid polluting Environment.
+- dedicate themselves to sustainable values to achieve a stable family unit, eliminate the reliance on imported labor, and prevent the rise of psychopathic multiculturalism, parallel societies, inequality, and societal unrest.
 
 #### Could economic sanctions, brain drain, youth migration, and inadequate handling of the balance contribute to a society adopting a violent shock strategy?
 
