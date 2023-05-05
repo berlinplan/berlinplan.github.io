@@ -743,6 +743,8 @@ the bomb, the pilot, the airplane, the semiconductor manufacturer for the airpla
  
 Example 2: When a psychopathic system enforces sanctions on a country and a company like Google complies, with YouTube being one of its subsidiaries, how much responsibility should be placed on a peace-loving YouTube video creator for contributing to the issue of inequality in the world?
 
+
+### Can human envy and voting power serve as a check on rapid development, leading to greater equality and environmental protection?
 #### How much a 3rd-world citizen Benefits from luxury elektro Cars /NASA traveller Or super Yachts?
 
 You work in a Microchip Producer Company, that could be used in highest super Computers, best luxury elektro Cars, Air space and in Rockets and Aircrafts and drones that ONLY get used in Afghanistan, iran, iraq some times in  Syria, north Korea, Sudan.
