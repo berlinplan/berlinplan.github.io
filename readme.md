@@ -722,7 +722,7 @@ Despite common misconceptions, psychopaths are fully cognizant of the consequenc
 
 In 2013, Iran's religious leader Khamenei prohibited the development and deployment of nuclear weapons under Islamic law by issuing an irrevocable Fatwa, Following this, Mahmoud Ahmadinejad, who strongly supported Iran's nuclear program, has been disqualified from all Iranian elections since then. (154,162,163,164,178)
 
-#### would a current supreme leader favor the production and use of nuclear weapons or supporting a managed terrorist group in marginalized societies outside of a psychopathic regime?
+#### would a current supreme leader favor the production and use of nuclear weapons or an equaly managed terrorist group in marginalized societies outside of a psychopathic regime?
 
 ### could inequality be the Motivation of making an Atomb bomb?
 
@@ -769,13 +769,12 @@ In his proposal, Boris Palmer suggested that asylum seekers must work, social be
 -construct massive walls beyond Germany/EU borders.
 -Prevent the production of atomic bombs in marginalized societies.
 
-#### Can a small, equally managed terrorist group in marginalized societies outside of a psychopathic regime produce an atomic bomb with the help of new technologies such as 3D printers?
 
 Is Europa Like USA out of Radar?
 Importing good Workers, send bad ones back, build Walls, sanctions Make more inequality,  push "pashganistan loser society more want to use Atomic bomb " to have the highest Range of equality After using some. Is more dangerous for europe or USA? 
  
-
-##What was the Benefit of slavery and colonization to World Development?
+#### could we have better Smartphones and higher Technology, If slavery could continue further? 
+#### What was the Benefit of slavery and colonization to World Development?
 - slavery was the engine of us growth (214)
 - colonization had a huge Impact on Development in Western countries (215)
 
