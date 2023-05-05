@@ -714,10 +714,9 @@ Get maximum attention for your Instagram activism with these top hashtags: (78)
 
 ## How near was an Atomic war?
 
-January 2006 Iranian poll: 85 percent of Iranians supported the nuclear program (156) Poll 2010: 71% of Iranians want nuclear arsenal (155) Gallup Poll 2013: Iranians Strongly Support Nuclear Program Despite Sanctions (157) (160)2013 Zogby Poll: 84% Iranians want nuclear weapon (159) (158) CISSM October 2020 Poll: 84.5% Iranian think Ending uranium enrichment in Iran is unacceptable. Ending all ballistic missile testing by Iran is for 83,4% of Iranian unacceptable (161)
+Over the years, Iranians have consistently expressed strong support for their country's nuclear program, according to polls. In 2006, 85% of Iranians supported it; in 2010, the figure was 71%. Even in the face of sanctions, Gallup's 2013 poll found that Iranians remained staunchly in favor of the program, with 84% saying they wanted a nuclear weapon. A 2013 Zogby poll similarly found that a large majority of Iranians opposed ending uranium enrichment (84.5%) and ballistic missile testing (83.4%). These views were reaffirmed by a 2020 CISSM poll.(155,156,157,158,159,160,161)
 
-2013 Gallup Iran poll: Which of following groups do you hold most responsible for sanctions against Iran? (165)46% The U.S 16% don´t know 13% The Iranian government 12% UN and EU.
-
+In a 2013 Gallup Iran poll, respondents were asked about their views on sanctions against Iran. 46% of those surveyed held the U.S. responsible, while 13% held the Iranian government responsible and 12% held the UN and EU responsible. 16% of respondents did not know who was responsible.(165)
 #### Why psychopathic leaders would never utiliz an atom bombs?
  Despite common misconceptions, psychopaths are fully cognizant of the consequences of their actions. ; they are not insane.(195)
 
