@@ -644,7 +644,6 @@ Online dating has been linked to an increase in sexual activity. Multiple sexual
 
 The use of beauty operations, dating apps, pickup and alpha masculinity coaches, hook up and ghost culture, style coaches, and online dating profile designers is on the rise. (58, 57, 60)
 
-
 #### Is it morally justifiable to allow transgender individuals to participate in women's sports competitions? (193)
 
 #### What is the fairness of sports competitions and the reasons behind 3rd-world citizens being perceived as losers, before delving into gender morality?
@@ -660,7 +659,6 @@ The use of beauty operations, dating apps, pickup and alpha masculinity coaches,
 
 > Opt for spending quality time with family through activities such as outdoor recreation, creative pursuits, playing games, reading, education, and volunteering, rather than being exposed to sexualization on social media channels like TikTok and Instagram.
 > Tackle past environmental damage while also producing food locally instead of importing avocados from faraway places.
- 
 
 
 ### What characterized the pre-religious barbaric era?
@@ -681,21 +679,26 @@ The use of beauty operations, dating apps, pickup and alpha masculinity coaches,
 - Profiteering and usury -> Crypto trading, forex, passive income, Invest Bank Money in Appartements (189)
 ---------
 
+## e-cars: benefiting the environment; leading to inequality; possiblity of atomic war?
 
-## e-cars: benefiting the environmen; leading to inequality; possiblity of atomic war?
-
-Joe Biden passed the Chips Act to restrict the use of US technology in producing semiconductors. e-cars require ten times as many chips as petrol or diesel. Technology producers prioritize profit, leading to poorer countries importing the technology. This creates a cycle of wealth inequality, where the rich get richer and the poor get poorer.(139,140)
+> Joe Biden passed the Chips Act to restrict the use of US technology in producing semiconductors. e-cars require ten times as many chips as petrol or diesel. Technology producers prioritize profit, leading to poorer countries importing the technology. This creates a cycle of wealth inequality, where the rich get richer and the poor get poorer.(139,140)
 
 #### While most 3rd-world countries have no roads, How much do luxury self Pilot e-cars, NASA space travel, or Hi-Tech super yachts contribute to the well-being of their citizens?
 
-###Is it probable that citizens of the Middle East see on their damaged streets, self-driving e-cars or psychopathic countries military technology, including supercomputers, drones, satellites, rockets, and aircrafts?
-#### could we have better Smartphones and higher Technology, If slavery could continue further? 
+#### Is it probable that citizens of the Middle East see on their damaged streets, self-driving e-cars or psychopathic countries military technology, including supercomputers, drones, satellites, rockets, and aircrafts?
+
+#### Would the advancement of smartphones and higher technology be possible if slavery were to persist?
+
 #### What was the Benefits of slavery and colonization to World Development?
 - slavery was the engine of us growth (214)
 - colonization had a huge Impact on Development in Western countries (215)
 
-## Would granting voting power to marginalized groups such as children and those in third-world countries, lead to a reduction in inequality? (as former slaves in the US)
+## Would granting voting power to marginalized groups such as children & 3rd-world citizens, lead to equality? (as former slaves in the US)
 
+
+### Can human envy and voting power serve as a check on rapid development, leading to greater equality and environmental protection?
+
+#### What is the most effective approach to addressing the environmental crisis: blocking streets, increasing polarization, engaging in Instagram activity, and competing within a psychopathic system, or promoting equality by involving marginalized groups like children and disadvantaged societies in the voting process?
 
 ## Activism in social media: fighting for equality while creating and benefiting from inequality?
 Get maximum attention for your Instagram activism with these top hashtags: (78)
@@ -743,13 +746,6 @@ the bomb, the pilot, the airplane, the semiconductor manufacturer for the airpla
 Example 2: When a psychopathic system enforces sanctions on a country and a company like Google complies, with YouTube being one of its subsidiaries, how much responsibility should be placed on a peace-loving YouTube video creator for contributing to the issue of inequality in the world?
 
 
-### Can human envy and voting power serve as a check on rapid development, leading to greater equality and environmental protection?
-
-## How can the environmental crisis be resolved?
-
-> Increase polarization by blocking streets, engaging in Instagram activity, and competing within the psychopathic system for popularity and monetary benefits.
-
-> Promote equality by involving marginalized groups such as children and disadvantaged nations in the voting process.
 
 
 High Tech.
