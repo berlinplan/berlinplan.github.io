@@ -688,7 +688,10 @@ The use of beauty operations, dating apps, pickup and alpha masculinity coaches,
 
 E-cars lead to such inequality that only a violent shock can solve it.
 
-Joe Biden passed the Chips Act to restrict the use of US technology in producing semiconductors below 14 nanometers. Electric cars require ten times as many chips as petrol or diesel, leading to chip shortages. Technology producers prioritize profit, leading to poorer countries importing the technology. This creates a cycle of wealth inequality, where the rich get richer and the poor get poorer.(139,140)
+Joe Biden passed the Chips Act to restrict the use of US technology in producing semiconductors. e-cars require ten times as many chips as petrol or diesel. Technology producers prioritize profit, leading to poorer countries importing the technology. This creates a cycle of wealth inequality, where the rich get richer and the poor get poorer.(139,140)
+
+#### While in the most 3rd-world countries , There are only few roads , How much do luxury self Pilot e-cars, NASA space travel, or Hi-Tech super yachts contribute to the well-being of third-world citizens?
+
 
 #### could we have better Smartphones and higher Technology, If slavery could continue further? 
 #### What was the Benefits of slavery and colonization to World Development?
@@ -745,10 +748,6 @@ Example 2: When a psychopathic system enforces sanctions on a country and a comp
 
 
 ### Can human envy and voting power serve as a check on rapid development, leading to greater equality and environmental protection?
-
-#### While in the most 3rd-world countries , There are only few roads , How much do luxury self Pilot e-cars, NASA space travel, or Hi-Tech super yachts contribute to the well-being of third-world citizens?
-You work in a Microchip Producer Company, that could be used in highest super Computers, best luxury elektro Cars, Air space and in Rockets and Aircrafts and drones that ONLY get used in Afghanistan, iran, iraq some times in  Syria, north Korea, Sudan.
-If the VOTE of pashganistanis get Counted, could we Then See if you help Them or not? 
 
 ## How can the environmental crisis be resolved?
 
