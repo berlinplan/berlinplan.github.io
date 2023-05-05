@@ -658,6 +658,14 @@ The use of beauty operations, dating apps, pickup and alpha masculinity coaches,
 
 > <sub> Sports have become commercialized for TV, leading to loss of fun. Athletes are turned into marketing products, losing their personalities. Legitimacy of sports results is questioned due to match-fixing and doping. Only top-level tournaments are profitable because people prefer to watch the best. </sub>
 
+
+#### What valuable activities can someone do with their family and children during free time?
+
+> Opt for spending quality time with family through activities such as outdoor recreation, creative pursuits, playing games, reading, education, and volunteering, rather than being exposed to sexualization on social media channels like TikTok and Instagram.
+> Tackle past environmental damage while also producing food locally instead of importing avocados from faraway places.
+ 
+
+
 ### What characterized the pre-religious barbaric era?
 
 > common behaviors: living in clans, following little prophets and gods, pride, boasting, polygyny, gambling, alcohol, superstitions, various sexual activities, profiteering, and usury. Bloody fights were a regular occurrence, and physical attributes such as muscles, height, testosterone for men and physical features like breast and hip size for women were important factors for attraction. (188) 
@@ -800,7 +808,7 @@ Is Europa Like USA out of Radar?
 Importing good Workers, send bad ones back, build Walls, sanctions Make more inequality,  push "pashganistan loser society more want to use Atomic bomb " to have the highest Range of equality After using some. Is more dangerous for europe or USA? 
  
 
- 
+
 How to understand Sociopathic behavior? 
 As soon as some one try to be Popular or celebrity in any way!
 Show His face, name etc. 
