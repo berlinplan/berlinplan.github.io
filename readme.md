@@ -745,16 +745,10 @@ Example 2: When a psychopathic system enforces sanctions on a country and a comp
 
 
 ### Can human envy and voting power serve as a check on rapid development, leading to greater equality and environmental protection?
-#### How much a 3rd-world citizen Benefits from luxury elektro Cars /NASA traveller Or super Yachts?
 
+#### While in the most 3rd-world countries , There are only few roads , How much do luxury self Pilot e-cars, NASA space travel, or Hi-Tech super yachts contribute to the well-being of third-world citizens?
 You work in a Microchip Producer Company, that could be used in highest super Computers, best luxury elektro Cars, Air space and in Rockets and Aircrafts and drones that ONLY get used in Afghanistan, iran, iraq some times in  Syria, north Korea, Sudan.
 If the VOTE of pashganistanis get Counted, could we Then See if you help Them or not? 
-
-High Tech.
-If societies Decide - they could Invest to Invest in Laboratories how - Technologies
-
-
-
 
 ## How can the environmental crisis be resolved?
 
@@ -762,11 +756,16 @@ If societies Decide - they could Invest to Invest in Laboratories how - Technolo
 
 > Promote equality by involving marginalized groups such as children and disadvantaged nations in the voting process.
 
+
+High Tech.
+If societies Decide - they could Invest to Invest in Laboratories how - Technologies
+
+
 #### Would psychopathic Solutions solve the inequality caused by the psychopathic system?
 
 In his proposal, Boris Palmer suggested that asylum seekers must work, social benefits should be removed, and those who fail to follow the rules should be deported.(196)
 
-#### Which solutions could be proposed by psychopaths to solve the inequality caused by the psychopathic system?
+#### Which further solutions could be proposed by psychopaths to solve the inequality caused by the psychopathic system?
 
 -construct massive walls beyond Germany/EU borders.
 -Prevent the production of atomic bombs in marginalized societies.
