@@ -658,7 +658,7 @@ The use of beauty operations, dating apps, pickup and alpha masculinity coaches,
 > <sub> Sports have become commercialized for TV, leading to loss of fun. Athletes are turned into marketing products, losing their personalities. Legitimacy of sports results is questioned due to match-fixing and doping. Only top-level tournaments are profitable because people prefer to watch the best. </sub>
 
 
-#### What valuable activities can someone do with their family and children during free time?
+#### if psychopathical Entertainments are reduced. What to do in free time? 
 
 > Opt for spending quality time with family through activities such as outdoor recreation, creative pursuits, playing games, reading, education, and volunteering, rather than being exposed to sexualization on social media channels like TikTok and Instagram.
 > Tackle past environmental damage while also producing food locally instead of importing avocados from faraway places.
@@ -745,12 +745,8 @@ If the VOTE of pashganistanis get Counted, could we Then See if you help Them or
 High Tech.
 If societies Decide - they could Invest to Invest in Laboratories how - Technologies
 
- if psychopathical Entertainments are reduced. What to do in free time? 
--Time to play and educate children -instead of tik tok Instagram sexualsation?
 
-Start to Produce food instead of letting Avocado shipped from 10000km?
 
-Clean the damage of last years?
 
 ## How can the environmental crisis be resolved?
 
@@ -770,9 +766,6 @@ In his proposal, Boris Palmer suggested that asylum seekers must work, social be
 -Prevent the production of atomic bombs in marginalized societies.
 
 
-Is Europa Like USA out of Radar?
-Importing good Workers, send bad ones back, build Walls, sanctions Make more inequality,  push "pashganistan loser society more want to use Atomic bomb " to have the highest Range of equality After using some. Is more dangerous for europe or USA? 
- 
 #### could we have better Smartphones and higher Technology, If slavery could continue further? 
 #### What was the Benefit of slavery and colonization to World Development?
 - slavery was the engine of us growth (214)
