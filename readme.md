@@ -732,6 +732,8 @@ In 2013, Iran's religious leader Khamenei prohibited the development and deploym
 
 #### would a current supreme leader favor the production and use of nuclear weapons or an equaly managed terrorist group in marginalized societies outside of a psychopathic regime?
 
+#### can a Terrorist in near Future pruduce Weapons of Mass Destruction? (216)
+Experts warn that new technology Like 3-D Printing makes it easier to covertly produce WMDs?
 ### could inequality be the Motivation of making an Atomb bomb?
 
 Approximately 80% of those surveyed expressed support for defense based on the possession of others, according to poll results.(163)
@@ -740,11 +742,9 @@ Approximately 80% of those surveyed expressed support for defense based on the p
 #### Why a Terrorist See innocent people living in a psychopathical System as enemy? 
 
 Example 1  : In the event that a military force from another country mistakenly causes the loss of a person's family in their village in xxxistan, who bears responsibility for this tragic outcome?
-Imagine You are Inside your home in Your Village in pashganistan, your home get Bombed by some psychopathical Military Armies. (By mistake or for spread democracy etc) Your Family got killed. 
 the bomb, the pilot, the airplane, the semiconductor manufacturer for the airplane company, the tool manufacturer for the semiconductor company, or even the doner kebab-seller who fed the workers at the tool company?
  
 Example 2: When a psychopathic system enforces sanctions on a country and a company like Google complies, with YouTube being one of its subsidiaries, how much responsibility should be placed on a peace-loving YouTube video creator for contributing to the issue of inequality in the world?
-
 
 
 
