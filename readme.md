@@ -1,5 +1,5 @@
 # Berlinplan - 
-## human freedom sustainability
+## freedom sustainability terror
  
 boring at the beginning , exciting at the end.
 
@@ -755,20 +755,11 @@ Poll as Jul.2022: Why do you think Iran should develop atomic bombs? (On Pro bom
 
 #### Why a Terrorist See innocent people living in a psychopathical System as enemy? 
 
-Example 1  :
+Example 1  : In the event that a military force from another country mistakenly causes the loss of a person's family in their village in xxxistan, who bears responsibility for this tragic outcome?
 Imagine You are Inside your home in Your Village in pashganistan, your home get Bombed by some psychopathical Military Armies. (By mistake or for spread democracy etc) Your Family got killed. 
-Who is guilty? 
-Only the bomb itself? 
-The Pilot is guilty?
- Airplane? 
-The Company that Produces semi-conductor for that airplane Company?
+the bomb, the pilot, the airplane, the semiconductor manufacturer for the airplane company, the tool manufacturer for the semiconductor company, or even the doner kebab-seller who fed the workers at the tool company?
  
-The Döner kebab-seller who feed the Workers in the Company that Produces Tools that are used in the Company of semi cundoctor Company? 
- 
- 
-Example 2: 
-You live in pashganistan. Psychopathical System makes sanctions on Your country. Google Support that System and delete all Your Banking, Taxi etc apps from Android. A Youtube Video Creator for peace love and climate, YT runned by Google, which Make sanctions => inequality? 
-
+Example 2: When a psychopathic system enforces sanctions on a country and a company like Google complies, with YouTube being one of its subsidiaries, how much responsibility should be placed on a peace-loving YouTube video creator for contributing to the issue of inequality in the world?
 
 #### How much a 3rd-world citizen Benefits from luxury elektro Cars /NASA traveller Or super Yachts?
 
