@@ -692,11 +692,14 @@ Get maximum attention for your Instagram activism with these top hashtags: (78)
 
 #### Aside from violent methods, what strategies can be employed to effectively address the increasing global inequality that has persisted since 1960?(138)
 
-#### Why is egoism considered the most effective solution?
-<sub> *Authentic egoists:* </sub>
+#### Why is egoism considered the most effective solution? <sub> *Authentic egoists:* </sub>
+
 > <sub> oppose global inequality due to their aversion to the possibility of a nuclear attack </sub>
+
 > <sub> prioritize equality as the only means to ensure long-term safety and cleanliness within societies, while preventing revolutions and theft. </sub>
+
 > <sub> avoid alcohol, cigarettes, promiscuity, pornography, social media, and environmental pollutants. </sub>
+
 > <sub> dedicate themselves to sustainable values to achieve a stable family unit, eliminate the reliance on imported labor, and prevent the rise of psychopathic multiculturalism, parallel societies, inequality, and societal unrest. </sub>
 
 #### Could economic sanctions, brain drain, youth migration, and inadequate handling of the balance contribute to a society adopting a violent shock strategy?
