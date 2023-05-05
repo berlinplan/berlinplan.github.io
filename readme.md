@@ -690,6 +690,12 @@ E-cars lead to such inequality that only a violent shock can solve it.
 
 Joe Biden passed the Chips Act to restrict the use of US technology in producing semiconductors below 14 nanometers. Electric cars require ten times as many chips as petrol or diesel, leading to chip shortages. Technology producers prioritize profit, leading to poorer countries importing the technology. This creates a cycle of wealth inequality, where the rich get richer and the poor get poorer.(139,140)
 
+#### could we have better Smartphones and higher Technology, If slavery could continue further? 
+#### What was the Benefits of slavery and colonization to World Development?
+- slavery was the engine of us growth (214)
+- colonization had a huge Impact on Development in Western countries (215)
+
+## Would granting voting power to marginalized groups such as children and those in third-world countries, lead to a reduction in inequality? (as former slaves in the US)
 
 
 ## Activism in social media: fighting for equality while creating and benefiting from inequality?
@@ -754,9 +760,7 @@ If societies Decide - they could Invest to Invest in Laboratories how - Technolo
 
 > Promote equality by involving marginalized groups such as children and disadvantaged nations in the voting process.
 
-#### Can solutions proposed by psychopaths address the inequality caused by the psychopathic system?
-
-> or: how recruiting talented individuals from abroad and repatriate underperforming ones, will solve the international inequality?
+#### Would psychopathic Solutions solve the inequality caused by the psychopathic system?
 
 In his proposal, Boris Palmer suggested that asylum seekers must work, social benefits should be removed, and those who fail to follow the rules should be deported.(196)
 
@@ -765,13 +769,6 @@ In his proposal, Boris Palmer suggested that asylum seekers must work, social be
 -construct massive walls beyond Germany/EU borders.
 -Prevent the production of atomic bombs in marginalized societies.
 
-
-#### could we have better Smartphones and higher Technology, If slavery could continue further? 
-#### What was the Benefit of slavery and colonization to World Development?
-- slavery was the engine of us growth (214)
-- colonization had a huge Impact on Development in Western countries (215)
-
-## Would granting voting power to marginalized groups such as children and those in third-world countries, lead to a reduction in inequality? (as former slaves in the US)
 
 
 How to understand Sociopathic behavior? 
