@@ -1,7 +1,6 @@
 # Berlinplan - 
 ## freedom sustainability terror
- 
-#### Can luxury be ethical?
+## Can luxury be ethical?
 
 > Luxury brands such as Louis Vuitton and Gucci leverage their influential social media accounts to endorse #blacklivesmatter in the fight against social injustices.(218)
 
