@@ -349,13 +349,15 @@ a Migrant,who leave his country Against social  & Religious Principal, to endors
 
 > <sub> Psychopaths are born while sociopaths are created by life experiences. Sociopaths have learned their behavior and are capable of feeling emotions but usually don’t control them. Psychopaths, on the other hand, suffer from a genetic effect (50,51) </sub>
 
-#### Can sociopaths from all around the world be caught by psychopathic systems?
+#### Do Economy prefer the new psychopathegrated population instead of old population? 
+
+- as Migrants have more Potential to be psychopathegrated as they have already Lower Bound to their original values . 
 
 The UK’s Indian, Pakistani, and Asian population surprised London by voting pro-Brexit.
 
 > euroscepticism within the British South Asian population was stronger than previously anticipated.(197) 
 
-
+> Iranian migrants Demonstrations out of iran for more sanctions Against Iran (221)
 
 
 #### Why do migrants reject the traditions of people in a psychopathic system?
