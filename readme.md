@@ -134,8 +134,8 @@ porn addiction, or problematic pornography use, affects approximately 3% to 6% o
 
 > <sub> North Korea 100 Kiloton Atomic bomb.[209](https://www.bbc.com/news/world-asia-41174689.amp) Iran has enough enriched uranium to build ‘several’ nuclear weapons, UN says (30)</sub>
 
-**Is taking benefits at the expense of others a sign of psychopathy?**
-
+## Why is nuclear war inevitable for a democracy?
+Research has demonstrated that power can influence brain dynamics, with individuals of higher status exhibiting decreased accuracy in empathizing with individuals of lower status. Scientists have employed a clever paradigm to investigate the correlation between brain regions associated with empathy and one's power status.
 ## What is psychopathy? 
 
 > Psychopathy is a serious personality disorder characterized by antisocial behavior, untruthfulness, irresponsibility, and lack of remorse or empathy. (172)
@@ -151,6 +151,7 @@ porn addiction, or problematic pornography use, affects approximately 3% to 6% o
 > <sub> Psychopaths are born while sociopaths are created by life experiences. Sociopaths have learned their behavior and are capable of feeling emotions but usually don’t control them. Psychopaths, on the other hand, suffer from a genetic effect (50,51) </sub>
 
 #### Can psychopaths be prevented from obtaining power?
+
 
 > <sub> Democracy has been the best political system for 2500 years. Social hierarchies exist in democracies, and since psychopaths have no limitations on what they can or will do to get to the top, all hierarchies inevitably become top-heavy with psychopaths. This turns democracy into pathocracy. (64,68,79,80) </sub>
 
