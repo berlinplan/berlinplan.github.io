@@ -302,16 +302,6 @@ People’s taxes finance the executive, legislative, and judiciary of modern soc
 **Despite martial law 8,2 milions have fled Ukraine, What would be the number of Ukrainians leaving the country if martial law was not in place?**
 
 
-#### Do psychopathic systems contribute to the development of sociopathic behavior?
-
-> <sub> Psychopaths are born while sociopaths are created by life experiences. Sociopaths have learned their behavior and are capable of feeling emotions but usually don’t control them. Psychopaths, on the other hand, suffer from a genetic effect (50,51) </sub>
-
-#### Can sociopaths from all around the world be caught by psychopathic systems?
-
-The UK’s Indian, Pakistani, and Asian population surprised London by voting pro-Brexit.
-
-> euroscepticism within the British South Asian population was stronger than previously anticipated.(197) 
-
 
 ## Multiculturalism: Does it lead to a tolerant and open-minded society or paralyzed parallel societies?
 
@@ -354,6 +344,19 @@ The UK’s Indian, Pakistani, and Asian population surprised London by voting pr
 <sub> Imagine there were no economic differences between living and working in a 3rd-world  & an industrial country, would anyone be a refugee anymore? </sub>
 
 a Migrant,who leave his country Against social  & Religious Principal, to endorse a more Psychopathic System which perpetuates inequality, is fully psychopathegriert.
+
+## is psychopathegration borned or a learned behavior?
+
+> <sub> Psychopaths are born while sociopaths are created by life experiences. Sociopaths have learned their behavior and are capable of feeling emotions but usually don’t control them. Psychopaths, on the other hand, suffer from a genetic effect (50,51) </sub>
+
+#### Can sociopaths from all around the world be caught by psychopathic systems?
+
+The UK’s Indian, Pakistani, and Asian population surprised London by voting pro-Brexit.
+
+> euroscepticism within the British South Asian population was stronger than previously anticipated.(197) 
+
+
+
 
 #### Why do migrants reject the traditions of people in a psychopathic system?
 
