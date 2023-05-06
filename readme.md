@@ -703,7 +703,6 @@ The use of beauty operations, dating apps, pickup and alpha masculinity coaches,
 Get maximum attention for your Instagram activism with these top hashtags: (78)
 #activism (48%), #activist (8%), #blacklivesmatter (6%), #feminism (5%), #humanrights (5%), #equality (5%), #socialjustice (5%), #love (4%), #change (4%), and #nonprofit (4%).climatechange, #vegan, #peace, #women, #freedom, #lgbt, #support, #pride, #mentalhealth, #community, #change, #lgbtq, #charity, #govegan, #awareness, #bodypositivity, #WomensMarch, #YouAintNoMuslimBruv, and #MeToo.
 
-
 #### Aside from violent methods, what strategies can be employed to effectively address the increasing global inequality that has persisted since 1960?(138)
 
 #### Why is egoism considered the most effective solution? <sub> *Authentic egoists:* </sub>
@@ -725,18 +724,20 @@ Over the years, Iranians have consistently expressed strong support for their co
 In a 2013 Gallup Iran poll, respondents were asked about their views on sanctions against Iran. 46% of those surveyed held the U.S. responsible, while 13% held the Iranian government responsible and 12% held the UN and EU responsible. 16% of respondents did not know who was responsible.(165)
 
 #### Why psychopathic leaders would never utiliz an atom bombs?
-Despite common misconceptions, psychopaths are fully cognizant of the consequences of their actions; they are not insane.(195)
 
-In 2013, Iran's religious leader Khamenei prohibited the development and deployment of nuclear weapons under Islamic law by issuing an irrevocable Fatwa, Following this, Mahmoud Ahmadinejad, who strongly supported Iran's nuclear program, has been disqualified from all Iranian elections since then. (154,162,163,164,178)
+> Despite common misconceptions, psychopaths are fully cognizant of the consequences of their actions; they are not insane.(195)
 
-#### would a current supreme leader favor the production and use of nuclear weapons or an equaly managed terrorist group in marginalized societies outside of a psychopathic regime?
+> In 2013, Iran's religious leader Khamenei prohibited the development and deployment of nuclear weapons under Islamic law by issuing an irrevocable Fatwa, Following this, Mahmoud Ahmadinejad, who strongly supported Iran's nuclear program, has been disqualified from all Iranian elections since then. (154,162,163,164,178)
 
-#### can a Terrorist in near Future pruduce Weapons of Mass Destruction? (216)
-Experts warn that new technology Like 3-D Printing makes it easier to covertly produce WMDs?
+#### Do supreme leaders endorse the utilization of nuclear weapons or a well-organized group in marginalized societies outside of a psychopathic regime?
+
+#### Can a small group potentially manufacture weapons of mass destruction in the near future? (216)
+
+> Experts warn that new technology Like 3-D Printing makes it easier to covertly produce WMDs?
+
 ### could inequality be the Motivation of making an Atomb bomb?
 
-Approximately 80% of those surveyed expressed support for defense based on the possession of others, according to poll results.(163)
-
+> Approximately 80% of those surveyed expressed support for defense based on the possession of others, according to poll results.(163)
 
 #### Why a Terrorist See innocent people living in a psychopathical System as enemy? 
 
@@ -744,8 +745,6 @@ Example 1  : In the event that a military force from another country mistakenly 
 the bomb, the pilot, the airplane, the semiconductor manufacturer for the airplane company, the tool manufacturer for the semiconductor company, or even the doner kebab-seller who fed the workers at the tool company?
  
 Example 2: When a psychopathic system enforces sanctions on a country and a company like Google complies, with YouTube being one of its subsidiaries, how much responsibility should be placed on a peace-loving YouTube video creator for contributing to the issue of inequality in the world?
-
-
 
 High Tech.
 If societies Decide - they could Invest to Invest in Laboratories how - Technologies
@@ -762,42 +761,20 @@ In his proposal, Boris Palmer suggested that asylum seekers must work, social be
 
 
 
-How to understand Sociopathic behavior? 
-As soon as some one try to be Popular or celebrity in any way!
-Show His face, name etc. 
-" i am the Sound of.... "  
-I am here to show....., 
-get attention. get Profit.
- Goes to university and gives lectures, Youtube, TV Shows. 
+#### Can a group of people create a non-psychopathic platform?
 
-Claims to be the owner of this content and wants Credit for it. While this content is writen and edited by people. 
+<sub> **What defines an equitable non-psychopathic group?** </sub>
+
+> A boardless association: a group with no proprietorship, absence of hierarchy, and unattractiveness to psychopaths.
+
+The group has two primary objectives: first, to devise strategies for establishing a non-psychopathic platform for conducting initial societal voting; and second, to make decisions regarding the website's content, including questions and methods for engaging and mobilizing individuals.
 
 
- How is an equal  Non psychopathic Group? 
-Not attractiv for psychopaths. 
-A Group that has No owner, no Hierarchie.  
+#### how to explore sociopathic behavior?
+
+>Recognizing patterns such as the desire for popularity, pursuit of profit, claims of ownership, aspirations for celebrity status, public disclosure of identity, engagement in university lectures, YouTube presence
 
 
-Association without a board of directors. for a lot of people it is not imaginable. as all political, reliogius system are psychopathical hierarchies. for us is impossible to imagine a system where people can do the duties of a boss by themselves.
-
-
-Even if in the beginning an admin is needed,  For the first poll. Admin (publisher)  Make a poll if he/She should be  Keeped admin with expire time 
-
-Can an equal Group of people build a non psychopathic Plattform? 
-
-A Group with 2 destination: 
-1. Create a non psychopathic Platform.
-
-After this is Done and societies are Created. First Strategies can be Created.
- 
-First Groups of people can Decide how to go ahead.
-
-2. Decision about the content of this Website. 
-
-
-The content of questions and methods to activate people to think can be Changed 
-
- 
 Solution for spread : 
 
 Alms of science is publishing it.(200)
@@ -809,7 +786,8 @@ any body can Create a Website and copy this content. Go to street and sugesst th
 You Like the idea or have Suggestion how to Create the first Groups  -without owner? WhatsApp? Telegram?...? (For the beginning)
 Insert Your Email or send Your Suggestions 
 The publsher send  you a Email how to Participate. 
- 
+ Even if in the beginning an admin is needed,  For the first poll. Admin (publisher)  Make a poll if he/She should be  Keeped admin with expire time 
+
  ------------
  Why it is impossible to Publish your ideas the society through Psychopathically Platforms, Like YouTube, Google, Instagram, Facebook, Amazon Twitter, tik Tok, TV Company eth?
 Example: if you wrote a book and want to make money. Publish it on Amazon, go to your Telegram app. Search “Amazon review DE” “Amazon Produkttester” “Amazon De tester 2” or You pay 3-5€ per 5* review. Investing 3000€-5000€ would bring it to top seller Book,
