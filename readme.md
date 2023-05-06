@@ -10,8 +10,8 @@
 #### A luxury brand, which increase inequality through its goods, employ on social media to address social injustices?(219)
 
 ## Activism in social media: fighting for equality while creating and benefiting from inequality?
-Get maximum attention for your Instagram activism with these top hashtags: (78)
-#activism (48%), #activist (8%), #blacklivesmatter (6%), #feminism (5%), #humanrights (5%), #equality (5%), #socialjustice (5%), #love (4%), #change (4%), and #nonprofit (4%).climatechange, #vegan, #peace, #women, #freedom, #lgbt, #support, #pride, #mentalhealth, #community, #change, #lgbtq, #charity, #govegan, #awareness, #bodypositivity, #WomensMarch, #YouAintNoMuslimBruv, and #MeToo.
+> Get maximum attention for your Instagram activism with these top hashtags: (78)
+> <sub> #activism (48%), #activist (8%), #blacklivesmatter (6%), #feminism (5%), #humanrights (5%), #equality (5%), #socialjustice (5%), #love (4%), #change (4%), and #nonprofit (4%).climatechange, #vegan, #peace, #women, #freedom, #lgbt, #support, #pride, #mentalhealth, #community, #change, #lgbtq, #charity, #govegan, #awareness, #bodypositivity, #WomensMarch, #YouAintNoMuslimBruv, and #MeToo. </sub>
 
 ## e-cars: benefiting the environment While leading to inequality in World?
 
