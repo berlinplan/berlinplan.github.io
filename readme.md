@@ -133,19 +133,19 @@ porn addiction, or problematic pornography use, affects approximately 3% to 6% o
 
 ## Why is nuclear war inevitable for a democracy?
 
-> <sub> Democracy has been the best political system for 2500 years. 
+> <sub> Democracy has been the best political system for 2500 years. </sub>
 
-> <sub> Social hierarchies exist in democracies, 
+> <sub> Social hierarchies exist in democracies </sub>
 
-> Research has demonstrated that power can influence brain dynamics, with individuals of higher status exhibiting decreased accuracy in empathizing with individuals of lower status. Scientists have employed a clever paradigm to investigate the correlation between brain regions associated with empathy and one's power status.
+> <sub> Research has demonstrated that power can influence brain dynamics, with individuals of higher status exhibiting decreased accuracy in empathizing with individuals of lower status. Scientists have employed a clever paradigm to investigate the correlation between brain regions associated with empathy and one's power status. (220) </sub>
 
-> since psychopaths have no limitations on what they can or will do to get to the top, all hierarchies inevitably become top-heavy with psychopaths. This turns democracy into pathocracy. (64,68,79,80) </sub>
+> <sub> since psychopaths have no limitations on what they can or will do to get to the top, all hierarchies inevitably become top-heavy with psychopaths. This turns democracy into pathocracy. (64,68,79,80) </sub>
 
-> Psychopathy is a serious personality disorder characterized by antisocial behavior, untruthfulness, irresponsibility, and lack of remorse or empathy. (172)
+> <sub> Psychopathy is a serious personality disorder characterized by antisocial behavior, untruthfulness, irresponsibility, and lack of remorse or empathy. (172) </sub>
 
-> it is necessary to diagnose psychopathic personalities and keep them out of power.(79) </sub>
+> <sub> it is necessary to diagnose psychopathic personalities and keep them out of power.(79) </sub>
 
-> A psychopath can not be prevented from obtaining power, As There is no reliable test to identify a psychopath. (82) </sub>
+> <sub> A psychopath can not be prevented from obtaining power, As There is no reliable test to identify a psychopath. (82) </sub>
  
 #### Do the current political and economic systems provide the best environment for psychopaths to thrive?
 
