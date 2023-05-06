@@ -786,8 +786,7 @@ any body can Create a Website and copy this content. Go to street and sugesst th
  
  
  ------------
- Why it is impossible to Publish your ideas the society through Psychopathically Platforms, Like YouTube, Google, Instagram, Facebook, Amazon Twitter, tik Tok, TV Company eth?
-Example: if you wrote a book and want to make money. Publish it on Amazon, go to your Telegram app. Search “Amazon review DE” “Amazon Produkttester” “Amazon De tester 2” or You pay 3-5€ per 5* review. Investing 3000€-5000€ would bring it to top seller Book,
+#### What factors contribute to the impossibility of publishing your ideas to society through platforms like YouTube, Google, Instagram, Facebook, Amazon, Twitter, TikTok, and TV companies, which have psychopathic tendencies?Example: if you wrote a book and want to make money. Publish it on Amazon, go to your Telegram app. Search “Amazon review DE” “Amazon Produkttester” “Amazon De tester 2” or You pay 3-5€ per 5* review. Investing 3000€-5000€ would bring it to top seller Book,
 the Matthew Effect is a social phenomenon linked to “the rich get richer and poor get poorer”. starting out with an initial advantage that leads to further advantages, which in turn widens the gap between those who have and those who don’t. (141)
 Research has shown that power deform the brain, people with high status have been shown to be less accurate in judging the emotions of people with low status. In a clever paradigm, researchers explored the relationship between empathy-related brain areas and power status (
 Are social Media Platforms one person based, to get the most Profit?
