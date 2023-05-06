@@ -1,15 +1,33 @@
 # Berlinplan - 
 ## freedom sustainability terror
  
+#### Can luxury be ethical?
 
--all this Content can be changed by you. 
-#### What is the total number of generations that have lived over the past 2000 years?
+> Luxury brands such as Louis Vuitton and Gucci leverage their influential social media accounts to endorse #blacklivesmatter in the fight against social injustices.(218)
 
-> ~70 Generation from jesus to now [202](https://answersingenesis.org/bible-timeline/genealogy/how-many-human-generations-are-there-from-adam-until-today/)
+> Hypocrisy: A hypocrite is basically characterised by behaviour that contradicts what one claims to believe or feel. (217)
 
+#### A luxury brand, which increase inequality through its goods, employ on social media to address social injustices?(219)
+
+## Activism in social media: fighting for equality while creating and benefiting from inequality?
+Get maximum attention for your Instagram activism with these top hashtags: (78)
+#activism (48%), #activist (8%), #blacklivesmatter (6%), #feminism (5%), #humanrights (5%), #equality (5%), #socialjustice (5%), #love (4%), #change (4%), and #nonprofit (4%).climatechange, #vegan, #peace, #women, #freedom, #lgbt, #support, #pride, #mentalhealth, #community, #change, #lgbtq, #charity, #govegan, #awareness, #bodypositivity, #WomensMarch, #YouAintNoMuslimBruv, and #MeToo.
+
+## e-cars: benefiting the environment While leading to inequality in World?
+
+> Joe Biden passed the Chips Act to restrict the use of US technology in producing semiconductors. e-cars require ten times as many chips as petrol or diesel. Technology producers prioritize profit, leading to poorer countries importing the technology. This creates a cycle of wealth inequality, where the rich get richer and the poor get poorer.(139,140)
+
+#### While most 3rd-world countries have no roads, How much do luxury self Pilot e-cars, NASA space travel, or Hi-Tech super yachts contribute to the well-being of their citizens?
+
+#### Is it probable that citizens of the Middle East see on their damaged streets, self-driving e-cars or psychopathic countries military technology, including supercomputers, drones, satellites, rockets, and aircrafts?
+
+#### environmental crisis: blocking streets, increasing polarization, Instagram activity, and competing within a psychopathic system, or promoting equality by involving marginalized groups like children and disadvantaged societies in the voting process?
+
+ 
 #### What is the estimated number of future generations that will have to manage nuclear waste disposal?
 
-> ~33000 Generations[201](https://www.base.bund.de/DE/themen/kt/ausstieg-atomkraft/ausstieg_node.html)
+> While ~70 Generations has lived over the past 2000 years, ~33000 Generations in Future have to manage nuclear waste[201](https://www.base.bund.de/DE/themen/kt/ausstieg-atomkraft/ausstieg_node.html)[202](https://answersingenesis.org/bible-timeline/genealogy/how-many-human-generations-are-there-from-adam-until-today/)
+
 
 #### Is it morally justifiable for one generation's actions to cause harm to 33,000 individuals in the future?
 
@@ -679,13 +697,6 @@ The use of beauty operations, dating apps, pickup and alpha masculinity coaches,
 - Profiteering and usury -> Crypto trading, forex, passive income, Invest Bank Money in Appartements (189)
 ---------
 
-## e-cars: benefiting the environment; leading to inequality; possiblity of atomic war?
-
-> Joe Biden passed the Chips Act to restrict the use of US technology in producing semiconductors. e-cars require ten times as many chips as petrol or diesel. Technology producers prioritize profit, leading to poorer countries importing the technology. This creates a cycle of wealth inequality, where the rich get richer and the poor get poorer.(139,140)
-
-#### While most 3rd-world countries have no roads, How much do luxury self Pilot e-cars, NASA space travel, or Hi-Tech super yachts contribute to the well-being of their citizens?
-
-#### Is it probable that citizens of the Middle East see on their damaged streets, self-driving e-cars or psychopathic countries military technology, including supercomputers, drones, satellites, rockets, and aircrafts?
 
 #### Would the advancement of smartphones and higher technology be possible if slavery were to persist?
 
@@ -697,11 +708,7 @@ The use of beauty operations, dating apps, pickup and alpha masculinity coaches,
 
 ### Can human envy and voting power serve as a check on rapid development, leading to greater equality and environmental protection?
 
-#### environmental crisis: blocking streets, increasing polarization, Instagram activity, and competing within a psychopathic system, or promoting equality by involving marginalized groups like children and disadvantaged societies in the voting process?
 
-## Activism in social media: fighting for equality while creating and benefiting from inequality?
-Get maximum attention for your Instagram activism with these top hashtags: (78)
-#activism (48%), #activist (8%), #blacklivesmatter (6%), #feminism (5%), #humanrights (5%), #equality (5%), #socialjustice (5%), #love (4%), #change (4%), and #nonprofit (4%).climatechange, #vegan, #peace, #women, #freedom, #lgbt, #support, #pride, #mentalhealth, #community, #change, #lgbtq, #charity, #govegan, #awareness, #bodypositivity, #WomensMarch, #YouAintNoMuslimBruv, and #MeToo.
 
 #### Aside from violent methods, what strategies can be employed to effectively address the increasing global inequality that has persisted since 1960?(138)
 
@@ -787,15 +794,8 @@ any body can Create a Website and copy this content. Go to street and sugesst th
  
  ------------
 
-#### What Is Hypocrisy?
 
-A hypocrite is basically characterised by behaviour that contradicts what one claims to believe or feel. (217)
 
-#### No ethics better than Ethical luxury?
-
-Luxury brands such as Louis Vuitton and Gucci leverage their influential social media accounts to endorse #blacklivesmatter in the fight against social injustices.(218)
-
-#### A luxury brand, which increase inequality through its goods, employ on social media to address social injusticds?(219)
 
 #### What factors contribute to the impossibility of publishing your ideas to society through platforms like YouTube, Google, Instagram, Facebook, Amazon, Twitter, TikTok, and TV companies, which have psychopathic tendencies?
 
@@ -803,7 +803,6 @@ Is it possible for an author to write a book on inequality, publish it on Amazon
 
 > The Matthew Effect describes a social pattern characterized by initial advantages that lead to subsequent advantages, resulting in an increasing gap between those who possess resources and those who lack them. (141)
 
-### actively Activist on social Media ? 
 
 
 Research has demonstrated that power can influence brain dynamics, with individuals of higher status exhibiting decreased accuracy in empathizing with individuals of lower status. Scientists have employed a clever paradigm to investigate the correlation between brain regions associated with empathy and one's power status.
