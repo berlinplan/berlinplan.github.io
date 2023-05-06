@@ -13,7 +13,7 @@ A luxury brand, which increase inequality through its goods, employ on social me
 > Get maximum attention for your Instagram activism with these top hashtags: (78)
 > <sub> #activism (48%), #activist (8%), #blacklivesmatter (6%), #feminism (5%), #humanrights (5%), #equality (5%), #socialjustice (5%), #love (4%), #change (4%), and #nonprofit (4%).climatechange, #vegan, #peace, #women, #freedom, #lgbt, #support, #pride, #mentalhealth, #community, #change, #lgbtq, #charity, #govegan, #awareness, #bodypositivity, #WomensMarch, #YouAintNoMuslimBruv, and #MeToo. </sub>
 
-#### How solve environmental crisis? 
+## How solve environmental crisis? 
 
 > blocking streets, increasing polarization, Instagram activity, and competing within a psychopathic system, or promoting equality by involving marginalized groups like children (Demeny voting) and disadvantaged societies in the voting process?
 
