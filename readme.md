@@ -26,7 +26,6 @@ A luxury brand, which increase inequality through its goods, employ on social me
 #### <sub> Is it probable that citizens of the Middle East see on their damaged streets, self-driving e-cars or psychopathic countries military technology, including supercomputers, drones, satellites, rockets, and aircrafts? </sub>
 
 
-
 #### Is it morally justifiable for one generation's actions to cause harm to 33,000 individuals in the future?
 
 > > While ~70 Generations has lived over the past 2000 years, ~33000 Generations in Future have to manage nuclear waste[201](https://www.base.bund.de/DE/themen/kt/ausstieg-atomkraft/ausstieg_node.html)[202](https://answersingenesis.org/bible-timeline/genealogy/how-many-human-generations-are-there-from-adam-until-today/)
@@ -38,11 +37,8 @@ A luxury brand, which increase inequality through its goods, employ on social me
 
 #### Why did Germany switch off its nuclear power plants despite heavy investments in this technology by other countries?
 
-> awareness [204](https://www.greenpeace.de/klimaschutz/energiewende/atomausstieg#:~:text=Am%20Samstag%2C%2015.,Der%20Atomausstieg%20ist%20vollzogen.)
+> worrines after Fukushima accident? [206](https://www.bfs.de/DE/themen/ion/notfallschutz/notfall/fukushima/unfall.html) > ethically unacceptable? [205](https://www.deutschlandfunk.de/atomenergie-ist-per-se-ethisch-nicht-vertretbar-100.html) > awareness? [204](https://www.greenpeace.de/klimaschutz/energiewende/atomausstieg#:~:text=Am%20Samstag%2C%2015.,Der%20Atomausstieg%20ist%20vollzogen.)
 
-> ethically unacceptable [205](https://www.deutschlandfunk.de/atomenergie-ist-per-se-ethisch-nicht-vertretbar-100.html)
-
-> worrines after Fukushima accident [206](https://www.bfs.de/DE/themen/ion/notfallschutz/notfall/fukushima/unfall.html)
 
 #### Why do societies require laws to prohibit drug dealers?
 
@@ -155,12 +151,6 @@ porn addiction, or problematic pornography use, affects approximately 3% to 6% o
 > <sub> 1.2% of U.S. adult men and 0.3% to 0.7% of U.S. adult women are considered to have clinically significant levels of **psychopathic** traits (175) (44)15% of Prisoners are Psychopaths (45) 21% of CEO`s are Psychopath’s (46) Many of US Presidents were Psychopaths (47) Aristotle warned us more than two millennia ago, democracies are best environment and milieu for psychopaths to develop. (49) During the past fifty years, psychopaths have gained almost absolute control of all the branches of government (173) </sub>
 
 > <sub> 84.3 million Germans ~505000 male and 210000 female have Psychopathic profiles, as 15% of prisoners but 21% of CEO’s are Psychopaths, it is considered that there is a big number of successful Psychopaths in big Companies Leadership level and politics (177) </sub>
-
-#### Do psychopathic systems contribute to the development of sociopathic behavior?
-
-> <sub> Psychopaths are born while sociopaths are created by life experiences. Sociopaths have learned their behavior and are capable of feeling emotions but usually don’t control them. Psychopaths, on the other hand, suffer from a genetic effect (50,51) </sub>
-
- 
 
 #### Is it possible to create systems without hierarchies since we can’t identify psychopaths?
 
@@ -309,6 +299,11 @@ People’s taxes finance the executive, legislative, and judiciary of modern soc
 > <sub> Example 3: Ukraine became an independent state after the collapse of the Soviet Union in 1991. (96) In 2012 Ernst & Young put Ukraine among the three most-corrupt nations from 43 surveyed, alongside Colombia and Brazil In 2015 The Guardian called Ukraine "the most corrupt nation in Europe “. (97) United States diplomats described Ukraine under Presidents Kuchma and Yushchenko as a kleptocracy according to WikiLeaks cables (98) Prominent Ukrainian economist Oleh Havrylyshyn research estimated the level of the corruption in Ukraine as comparable to countries of Sub-Saharan Africa with Uganda as the closest counterpart. (99) Ukraine's population spends most of its income on cosmetic products (100) The beauty industry is booming and is one of the fastest growing consumer markets, driven in particular by the cosmetics and skincare segments. largest industries and sectors in Ukraine in 2022 from the Datantify database: · 1. Bank · 2. Cafe · 3. Grocery … 10. Beauty 11. Clothing Stores (101) it is forbidden for men aged 18-60, Ukraine citizens, to leave the borders of Ukraine (102) Still, The UNHCR records 8,167,986 refugees from Ukraine across Europe as of 10 April 2023. This amounts to around 20% of the Ukrainian population (103) Per R. Klitgaard Since a high degree of monopoly and low degree of transparency does not automatically lead to corruption, a fourth variable of "morality" or "integrity" has been introduced by others. The moral dimension has an intrinsic component and refers to a "mentality problem" (104) by Martial law Ukrainian Man are force to Participate war, while Russian Army is a Mix of contract und volunteers (105) </sub> 
 
 **Despite martial law 8,167,986 have fled Ukraine, What would be the number of Ukrainians leaving the country if martial law was not in place?**
+
+
+#### Do psychopathic systems contribute to the development of sociopathic behavior?
+
+> <sub> Psychopaths are born while sociopaths are created by life experiences. Sociopaths have learned their behavior and are capable of feeling emotions but usually don’t control them. Psychopaths, on the other hand, suffer from a genetic effect (50,51) </sub>
 
 #### Can sociopaths from all around the world be caught by psychopathic systems?
 
