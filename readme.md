@@ -4,9 +4,10 @@
 
 > Luxury brands such as Louis Vuitton and Gucci leverage their influential social media accounts to endorse #blacklivesmatter in the fight against social injustices.(218)
 
+A luxury brand, which increase inequality through its goods, employ on social media to address social injustices?(219)
+
 > Hypocrisy: A hypocrite is basically characterised by behaviour that contradicts what one claims to believe or feel. (217)
 
-#### A luxury brand, which increase inequality through its goods, employ on social media to address social injustices?(219)
 
 ## Activism in social media: fighting for equality while creating and benefiting from inequality?
 > Get maximum attention for your Instagram activism with these top hashtags: (78)
