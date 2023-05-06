@@ -353,6 +353,17 @@ The UK’s Indian, Pakistani, and Asian population surprised London by voting pr
 
 > **Combine:** implies some merging or mingling with corresponding loss of identity of each unit (168)
 
+<sub> Imagine there were no economic differences between living and working in a 3rd-world  & an industrial country, would anyone be a refugee anymore? </sub>
+
+## a Migrant fled his country Against social  & Religious values, to Support a more Psychopathic System, which increase inequality, is fully integropaths.
+
+#### Why do migrants reject the traditions of people in a psychopathic system?
+
+> while populations, cultures, and values of people in industrial systems are disappearing,should one follow the path of someone who has sunk their ship?(186)
+
+#### What are the benefits of cultural dialogue within a society?
+
+> The exchange of ideas and debates lead to more polarization, as stated before.
 
 #### Is a third-world migrant who works in a country where their production may be used against their homeland not well integrated?
 
@@ -360,7 +371,6 @@ The UK’s Indian, Pakistani, and Asian population surprised London by voting pr
 
 > US Army operations are mostly conducted in the Middle East, including Libya, Iraq, Iran, Afghanistan, Syria, Somalia, Pakistan, and Sudan and also in South America.(180)
 
-<sub> Imagine there were no economic differences between living and working in a 3rd-world  & an industrial country, would anyone be a refugee anymore? </sub>
 
 #### How can cultural inspiration be achieved?
 
@@ -375,14 +385,6 @@ The UK’s Indian, Pakistani, and Asian population surprised London by voting pr
 #### What led countries like Russia, Turkey, China, Iran, Japan, etc. to adopt Western-style reforms?
 
 > <sub> Comparisons are a normal part of human cognition and can be good for the self-improvement process.(185) <sub>
-
-#### Why do migrants reject the traditions of people in a psychopathic system?
-
-> while populations, cultures, and values of people in industrial systems are disappearing,should one follow the path of someone who has sunk their ship?(186)
-
-#### What are the benefits of cultural dialogue within a society?
-
-> The exchange of ideas and debates lead to more polarization, as stated before.
 
 #### How is tribalism fueled by polarization?
 
