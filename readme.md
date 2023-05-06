@@ -9,11 +9,12 @@ A luxury brand, which increase inequality through its goods, employ on social me
 > Hypocrisy: A hypocrite is basically characterised by behaviour that contradicts what one claims to believe or feel. (217)
 
 
-## Activism in social media: fighting for equality while creating and benefiting from inequality?
-> Get maximum attention for your Instagram activism with these top hashtags: (78)
+## fighting Against inequality while benefiting & generating inequality?
+
+**Activism in social media** Get maximum attention for your Instagram activism with these top hashtags: (78)
 > <sub> #activism (48%), #activist (8%), #blacklivesmatter (6%), #feminism (5%), #humanrights (5%), #equality (5%), #socialjustice (5%), #love (4%), #change (4%), and #nonprofit (4%).climatechange, #vegan, #peace, #women, #freedom, #lgbt, #support, #pride, #mentalhealth, #community, #change, #lgbtq, #charity, #govegan, #awareness, #bodypositivity, #WomensMarch, #YouAintNoMuslimBruv, and #MeToo. </sub>
 
-## How solve environmental crisis? 
+## How to solve environmental crisis? 
 
 > blocking streets, increasing polarization, Instagram activity, and competing within a psychopathic system, or promoting equality by involving marginalized groups like children (Demeny voting) and disadvantaged societies in the voting process?
 
