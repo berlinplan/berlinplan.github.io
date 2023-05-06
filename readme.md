@@ -279,11 +279,18 @@ People’s taxes finance the executive, legislative, and judiciary of modern soc
 
 #### Why is it necessary to reduce hierarchy for a society to be equal?
 
-## What is a society?
+## Are the residents of Germany a **"society"**?
 
-> <sub> Cooperation is really important to human survival. Our ability to cooperate is what allows us to live in big groups. When we live in groups, we can work together. We divide up tasks so that different people can get really good at different things and do them better and more quickly (84) </sub>
+> <sub> SOCIETY: people in general thought of as living together in organized communities with **shared** laws, traditions, and value (83) </sub>
 
-> <sub> SOCIETY: people in general thought of as living together in organized communities with shared **laws, traditions, and values** (83) </sub>
+> <sub> The EU considers “human rights” a non-negotiable value, but the German football team participated in the 2022 World Cup in Qatar without wearing a “one love” band. (106) </sub>
+
+> <sub> The EU is participating in sanctions against many countries for abusing human rights, yet Saudi Arabia is Germany’s most important partner in the MENA region. (107,108) </sub>
+
+> <sub> The EU and Germany are being criticized for double standards.(153) </sub>
+
+> <sub> Cooperation is vital for human survival as it enables us to thrive in large groups. By living collectively, we can effectively collaborate and distribute tasks based on individual strengths, resulting in improved efficiency and productivity. </sub>
+
 
 #### How many people in modern societies fight back and defend themselves when attacked?
 
@@ -305,13 +312,6 @@ The UK’s Indian, Pakistani, and Asian population surprised London by voting pr
 
 > euroscepticism within the British South Asian population was stronger than previously anticipated.(197) 
 
-#### Do the residents of Germany share any common values as one **"society"**?
-
-> <sub> The EU considers “human rights” a non-negotiable value, but the German football team participated in the 2022 World Cup in Qatar without wearing a “one love” band. (106) </sub>
-
-> <sub> The EU is participating in sanctions against many countries for abusing human rights, yet Saudi Arabia is Germany’s most important partner in the MENA region. (107,108) </sub>
-
-> <sub> The EU and Germany are being criticized for double standards.(153) </sub>
 
 ## Multiculturalism: Does it lead to a tolerant and open-minded society or paralyzed parallel societies?
 
@@ -446,9 +446,6 @@ The merging of two societies occurs when they have the same values.
 > Can Christians be inspired by Muslims to reduce alcohol consumption and have more stable relationships?
 
 
-## What is morality?
-
-standards of behaviour; principles of right and wrong. (190)
 
 #### What makes ideological groups like ISIS and Taliban outperform most modern armies?
 
@@ -456,6 +453,9 @@ Clear values and non-hierarchical structures (equality) in Ideological Groups ve
 
 
 #### Can a moral act be performed without clear values?
+morality: standards of behaviour; principles of right and wrong. (190)
+
+
 
 ### Is torture wrong?
 
