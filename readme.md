@@ -695,10 +695,9 @@ The use of beauty operations, dating apps, pickup and alpha masculinity coaches,
 
 ## Would granting voting power to marginalized groups such as children & 3rd-world citizens, lead to equality? (as former slaves in the US)
 
-
 ### Can human envy and voting power serve as a check on rapid development, leading to greater equality and environmental protection?
 
-#### What is the most effective approach to addressing the environmental crisis: blocking streets, increasing polarization, engaging in Instagram activity, and competing within a psychopathic system, or promoting equality by involving marginalized groups like children and disadvantaged societies in the voting process?
+#### environmental crisis: blocking streets, increasing polarization, Instagram activity, and competing within a psychopathic system, or promoting equality by involving marginalized groups like children and disadvantaged societies in the voting process?
 
 ## Activism in social media: fighting for equality while creating and benefiting from inequality?
 Get maximum attention for your Instagram activism with these top hashtags: (78)
