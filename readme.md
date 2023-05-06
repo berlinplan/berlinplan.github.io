@@ -343,11 +343,9 @@ The UK’s Indian, Pakistani, and Asian population surprised London by voting pr
 
 > Psychopathic economies benefit from multiculturalism despite its increase in polarization and inequality.
 
-#### Why does integration fail in psychopathic systems?
+#### Why does integration failed but psychopathegration was super succesful?
 
 > Sweden: “Integration of migrants has failed” (166)
-
-## What is Integration? 
 
 > **Integration:** the act of combining into an integral whole (167)
 
@@ -355,7 +353,7 @@ The UK’s Indian, Pakistani, and Asian population surprised London by voting pr
 
 <sub> Imagine there were no economic differences between living and working in a 3rd-world  & an industrial country, would anyone be a refugee anymore? </sub>
 
-## a Migrant fled his country Against social  & Religious values, to Support a more Psychopathic System, which increase inequality, is fully integropaths.
+a Migrant,who leave his country Against social  & Religious Principal, to endorse a more Psychopathic System which perpetuates inequality, is fully psychopathegriert.
 
 #### Why do migrants reject the traditions of people in a psychopathic system?
 
