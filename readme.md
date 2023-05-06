@@ -760,8 +760,9 @@ In his proposal, Boris Palmer suggested that asylum seekers must work, social be
 -Prevent the production of atomic bombs in marginalized societies.
 
 
+## where to Start ?
 
-#### Can a group of people create a non-psychopathic platform?
+#### Can people wait for psychopaths to create a non-psychopathic platform?
 
 <sub> **What defines an equitable non-psychopathic group?** </sub>
 
@@ -769,10 +770,11 @@ In his proposal, Boris Palmer suggested that asylum seekers must work, social be
 
 The group has two primary objectives: first, to devise strategies for establishing a non-psychopathic platform for conducting initial societal voting; and second, to make decisions regarding the website's content, including questions and methods for engaging and mobilizing individuals.
 
-
 #### how to explore sociopathic behavior?
 
 >Recognizing patterns such as the desire for popularity, pursuit of profit, claims of ownership, aspirations for celebrity status, public disclosure of identity, engagement in university lectures, YouTube presence
+
+To share your ideas or suggestions for creating the initial groups for the voting platform or changing the page's content, please send an email to the individual who introduced this page to you. The introducer will then provide you with instructions on how to participate.
 
 
 Solution for spread : 
@@ -783,11 +785,6 @@ But the work of publish can be compensated.
 any body can Create a Website and copy this content. Go to street and sugesst this content to people in order of the Group . Any body can  get compensated for His work.
  
  
-You Like the idea or have Suggestion how to Create the first Groups  -without owner? WhatsApp? Telegram?...? (For the beginning)
-Insert Your Email or send Your Suggestions 
-The publsher send  you a Email how to Participate. 
- Even if in the beginning an admin is needed,  For the first poll. Admin (publisher)  Make a poll if he/She should be  Keeped admin with expire time 
-
  ------------
  Why it is impossible to Publish your ideas the society through Psychopathically Platforms, Like YouTube, Google, Instagram, Facebook, Amazon Twitter, tik Tok, TV Company eth?
 Example: if you wrote a book and want to make money. Publish it on Amazon, go to your Telegram app. Search “Amazon review DE” “Amazon Produkttester” “Amazon De tester 2” or You pay 3-5€ per 5* review. Investing 3000€-5000€ would bring it to top seller Book,
