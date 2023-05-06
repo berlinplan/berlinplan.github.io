@@ -135,11 +135,21 @@ porn addiction, or problematic pornography use, affects approximately 3% to 6% o
 > <sub> North Korea 100 Kiloton Atomic bomb.[209](https://www.bbc.com/news/world-asia-41174689.amp) Iran has enough enriched uranium to build ‘several’ nuclear weapons, UN says (30)</sub>
 
 ## Why is nuclear war inevitable for a democracy?
-Research has demonstrated that power can influence brain dynamics, with individuals of higher status exhibiting decreased accuracy in empathizing with individuals of lower status. Scientists have employed a clever paradigm to investigate the correlation between brain regions associated with empathy and one's power status.
-## What is psychopathy? 
+
+> <sub> Democracy has been the best political system for 2500 years. 
+
+> <sub> Social hierarchies exist in democracies, 
+
+> Research has demonstrated that power can influence brain dynamics, with individuals of higher status exhibiting decreased accuracy in empathizing with individuals of lower status. Scientists have employed a clever paradigm to investigate the correlation between brain regions associated with empathy and one's power status.
+
+> since psychopaths have no limitations on what they can or will do to get to the top, all hierarchies inevitably become top-heavy with psychopaths. This turns democracy into pathocracy. (64,68,79,80) </sub>
 
 > Psychopathy is a serious personality disorder characterized by antisocial behavior, untruthfulness, irresponsibility, and lack of remorse or empathy. (172)
 
+> it is necessary to diagnose psychopathic personalities and keep them out of power.(79) </sub>
+
+> A psychopath can not be prevented from obtaining power, As There is no reliable test to identify a psychopath. (82) </sub>
+ 
 #### Do the current political and economic systems provide the best environment for psychopaths to thrive?
 
 > <sub> 1.2% of U.S. adult men and 0.3% to 0.7% of U.S. adult women are considered to have clinically significant levels of **psychopathic** traits (175) (44)15% of Prisoners are Psychopaths (45) 21% of CEO`s are Psychopath’s (46) Many of US Presidents were Psychopaths (47) Aristotle warned us more than two millennia ago, democracies are best environment and milieu for psychopaths to develop. (49) During the past fifty years, psychopaths have gained almost absolute control of all the branches of government (173) </sub>
@@ -150,15 +160,8 @@ Research has demonstrated that power can influence brain dynamics, with individu
 
 > <sub> Psychopaths are born while sociopaths are created by life experiences. Sociopaths have learned their behavior and are capable of feeling emotions but usually don’t control them. Psychopaths, on the other hand, suffer from a genetic effect (50,51) </sub>
 
-#### Can psychopaths be prevented from obtaining power?
+ 
 
-
-> <sub> Democracy has been the best political system for 2500 years. Social hierarchies exist in democracies, and since psychopaths have no limitations on what they can or will do to get to the top, all hierarchies inevitably become top-heavy with psychopaths. This turns democracy into pathocracy. (64,68,79,80) </sub>
-
-> <sub> Clinton Callahan: it is necessary to diagnose psychopathic personalities and keep them out of power.(79) </sub>
-
-> <sub> There is no reliable test to identify a psychopath. (82) </sub>
- 
 #### Is it possible to create systems without hierarchies since we can’t identify psychopaths?
 
 > <sub> wer mit dem Teufel essen will, braucht einen langen Löffel (69) He who sups with the devil should have a long spoon (70) <sub>
