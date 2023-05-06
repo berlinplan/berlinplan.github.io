@@ -1,4 +1,4 @@
-# Berlinplan - 
+# Berlinplan.com
 ## freedom sustainability terror
 ## Can luxury be ethical?
 
