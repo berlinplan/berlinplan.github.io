@@ -17,19 +17,17 @@
 
 > Joe Biden passed the Chips Act to restrict the use of US technology in producing semiconductors. e-cars require ten times as many chips as petrol or diesel. Technology producers prioritize profit, leading to poorer countries importing the technology. This creates a cycle of wealth inequality, where the rich get richer and the poor get poorer.(139,140)
 
-#### While most 3rd-world countries have no roads, How much do luxury self Pilot e-cars, NASA space travel, or Hi-Tech super yachts contribute to the well-being of their citizens?
+#### <sub> While most 3rd-world countries have no roads, How much do luxury self Pilot e-cars, NASA space travel, or Hi-Tech super yachts contribute to the well-being of their citizens? </sub>
 
-#### Is it probable that citizens of the Middle East see on their damaged streets, self-driving e-cars or psychopathic countries military technology, including supercomputers, drones, satellites, rockets, and aircrafts?
+#### <sub> Is it probable that citizens of the Middle East see on their damaged streets, self-driving e-cars or psychopathic countries military technology, including supercomputers, drones, satellites, rockets, and aircrafts? </sub>
 
 #### environmental crisis: blocking streets, increasing polarization, Instagram activity, and competing within a psychopathic system, or promoting equality by involving marginalized groups like children and disadvantaged societies in the voting process?
 
- 
-#### What is the estimated number of future generations that will have to manage nuclear waste disposal?
-
-> While ~70 Generations has lived over the past 2000 years, ~33000 Generations in Future have to manage nuclear waste[201](https://www.base.bund.de/DE/themen/kt/ausstieg-atomkraft/ausstieg_node.html)[202](https://answersingenesis.org/bible-timeline/genealogy/how-many-human-generations-are-there-from-adam-until-today/)
-
 
 #### Is it morally justifiable for one generation's actions to cause harm to 33,000 individuals in the future?
+
+> > While ~70 Generations has lived over the past 2000 years, ~33000 Generations in Future have to manage nuclear waste[201](https://www.base.bund.de/DE/themen/kt/ausstieg-atomkraft/ausstieg_node.html)[202](https://answersingenesis.org/bible-timeline/genealogy/how-many-human-generations-are-there-from-adam-until-today/)
+
 
 > Germany has decommissioned all of its nuclear power plants. [201]
 
