@@ -13,6 +13,8 @@
 > Get maximum attention for your Instagram activism with these top hashtags: (78)
 > <sub> #activism (48%), #activist (8%), #blacklivesmatter (6%), #feminism (5%), #humanrights (5%), #equality (5%), #socialjustice (5%), #love (4%), #change (4%), and #nonprofit (4%).climatechange, #vegan, #peace, #women, #freedom, #lgbt, #support, #pride, #mentalhealth, #community, #change, #lgbtq, #charity, #govegan, #awareness, #bodypositivity, #WomensMarch, #YouAintNoMuslimBruv, and #MeToo. </sub>
 
+**environmental crisis:** *blocking streets, increasing polarization, Instagram activity, and competing within a psychopathic system, or promoting equality by involving marginalized groups like children and disadvantaged societies in the voting process?*
+
 ## e-cars: benefiting the environment While leading to inequality in World?
 
 > Joe Biden passed the Chips Act to restrict the use of US technology in producing semiconductors. e-cars require ten times as many chips as petrol or diesel. Technology producers prioritize profit, leading to poorer countries importing the technology. This creates a cycle of wealth inequality, where the rich get richer and the poor get poorer.(139,140)
@@ -21,7 +23,6 @@
 
 #### <sub> Is it probable that citizens of the Middle East see on their damaged streets, self-driving e-cars or psychopathic countries military technology, including supercomputers, drones, satellites, rockets, and aircrafts? </sub>
 
-#### environmental crisis: blocking streets, increasing polarization, Instagram activity, and competing within a psychopathic system, or promoting equality by involving marginalized groups like children and disadvantaged societies in the voting process?
 
 
 #### Is it morally justifiable for one generation's actions to cause harm to 33,000 individuals in the future?
