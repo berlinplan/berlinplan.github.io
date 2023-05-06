@@ -170,7 +170,7 @@ According to The New York Times, Donald Trump "was a millionaire by age 8" [210]
 
 <sub> Example: An individual inherited 3000 apartments from their father. With the help of psychopathic economics, they were able to grow their apartment holdings to 6000 units, and their son was able to grow it to 10000 units. </sub> 
 
-#### How do modern executive, legislative, and judiciary affect multi-billion wealths nowadays?
+#### current World multi-billioners created by modern executive, legislative, and judiciary?
 
 <sub> Throughout history, big wealth has been associated with significant issues and securities that have even led to the death of their owners. </sub>
 
