@@ -870,6 +870,8 @@ Compensation calculation :
 
 If 1 per Day Would pay. 
 ------
+if you got this book on thr street 
+
 For each book 100€ is needed to to get the Minimum wage of 12,5€ per hour. 
 
 
