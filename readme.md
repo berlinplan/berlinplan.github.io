@@ -786,9 +786,20 @@ any body can Create a Website and copy this content. Go to street and sugesst th
  
  
  ------------
-#### What factors contribute to the impossibility of publishing your ideas to society through platforms like YouTube, Google, Instagram, Facebook, Amazon, Twitter, TikTok, and TV companies, which have psychopathic tendencies?Example: if you wrote a book and want to make money. Publish it on Amazon, go to your Telegram app. Search “Amazon review DE” “Amazon Produkttester” “Amazon De tester 2” or You pay 3-5€ per 5* review. Investing 3000€-5000€ would bring it to top seller Book,
-the Matthew Effect is a social phenomenon linked to “the rich get richer and poor get poorer”. starting out with an initial advantage that leads to further advantages, which in turn widens the gap between those who have and those who don’t. (141)
-Research has shown that power deform the brain, people with high status have been shown to be less accurate in judging the emotions of people with low status. In a clever paradigm, researchers explored the relationship between empathy-related brain areas and power status (
+
+#### What Is Hypocrisy?
+
+A hypocrite is basically characterised by behaviour that contradicts what one claims to believe or feel. (217)
+
+#### What factors contribute to the impossibility of publishing your ideas to society through platforms like YouTube, Google, Instagram, Facebook, Amazon, Twitter, TikTok, and TV companies, which have psychopathic tendencies?
+
+Is it possible for an author to write a book on inequality, publish it on Amazon, and enhance its success by joining Telegram groups such as "Amazon review DE," "Amazon Produkttester," or "Amazon De tester 2"? By investing approximately €5000 to acquire 5-star reviews at a rate of €3-5 per review, and achieve bestseller status?
+
+> The Matthew Effect describes a social pattern characterized by initial advantages that lead to subsequent advantages, resulting in an increasing gap between those who possess resources and those who lack them. (141)
+
+### actively Activist on social Media ? 
+Research has demonstrated that power can influence brain dynamics, with individuals of higher status exhibiting decreased accuracy in empathizing with individuals of lower status. Scientists have employed a clever paradigm to investigate the correlation between brain regions associated with empathy and one's power status.
+
 Are social Media Platforms one person based, to get the most Profit?
  
 
