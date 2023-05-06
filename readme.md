@@ -26,7 +26,7 @@ A luxury brand, which increase inequality through its goods, employ on social me
 #### <sub> Is it probable that citizens of the Middle East see on their damaged streets, self-driving e-cars or psychopathic countries military technology, including supercomputers, drones, satellites, rockets, and aircrafts? </sub>
 
 
-#### Is it morally justifiable for one generation's actions to cause harm to 33,000 individuals in the future?
+#### 1 generation cause harm to 33,000 Generations?morally justifiable?
 
 > > While ~70 Generations has lived over the past 2000 years, ~33000 Generations in Future have to manage nuclear waste[201](https://www.base.bund.de/DE/themen/kt/ausstieg-atomkraft/ausstieg_node.html)[202](https://answersingenesis.org/bible-timeline/genealogy/how-many-human-generations-are-there-from-adam-until-today/)
 
