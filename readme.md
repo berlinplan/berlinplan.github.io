@@ -28,11 +28,13 @@ or
 
 > <sub> Can human envy and voting power serve as a check on rapid development, leading to greater equality and environmental protection? </sub>
 
-## Follow, subscribe, comment and Like my usefull Activity Against inequality, bullshit? 
+## Follow, subscribe, comment and Like my usefull Activity, bullshit? 
 
-# pay My Lamborghini Because i want to do Activity Against psychopathic Economic?
-ADVERTISEMENT-> consumption culture -> Environment damages -> World inequality    
-## fighting Against inequality while benefiting & generating inequality, bullshit?
+> pay my Lamborghini Because i want to do Activity against inequality.
+
+> Support me to get Advertisements for consumption culture, Environment damages and World inequality. 
+
+fighting Against inequality while benefiting & generating inequality: bullshit?
 
 **Activism in social media** Get maximum attention for your Instagram activism with these top hashtags: (78)
 > <sub> #activism (48%), #activist (8%), #blacklivesmatter (6%), #feminism (5%), #humanrights (5%), #equality (5%), #socialjustice (5%), #love (4%), #change (4%), and #nonprofit (4%).climatechange, #vegan, #peace, #women, #freedom, #lgbt, #support, #pride, #mentalhealth, #community, #change, #lgbtq, #charity, #govegan, #awareness, #bodypositivity, #WomensMarch, #YouAintNoMuslimBruv, and #MeToo. </sub>
