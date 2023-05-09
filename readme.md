@@ -45,18 +45,17 @@ sell "fighting-inequality" content on Economical Corporations, Spotify , YouTube
 
 > <sub> Is it probable that citizens of the Middle East see on their damaged streets, self-driving e-cars or psychopathic countries military technology, including supercomputers, drones, satellites, rockets, and aircrafts? </sub>
 
-#### One generation harms  33,000 Generations, morally justifiable?
+#### Germany has decommissioned all of its nuclear power plants. [201] wonder Happens?
 
 > While ~70 Generations has lived over the past 2000 years, ~33000 Generations in Future have to manage nuclear waste[201](https://www.base.bund.de/DE/themen/kt/ausstieg-atomkraft/ausstieg_node.html)[202](https://answersingenesis.org/bible-timeline/genealogy/how-many-human-generations-are-there-from-adam-until-today/)
 
-> Germany has decommissioned all of its nuclear power plants. [201]
+> One generation harms 33,000 Generations, morally justifiable?
 
 > The decision to switch off nuclear power plants resulted in significant costs, power shortages, and economic losses for the people of Germany. [203](https://amp2.wiwo.de/unternehmen/energie/energiewende-der-wirtschaftliche-schaden-eines-schnellen-atomausstiegs/5154328.html)
 
-#### Why did Germany switch off its nuclear power plants despite heavy investments in this technology by other countries?
+#### Why did Germany switch off its nuclear power plants despite other countries heavy investments in this technology?
 
-> worrines after Fukushima accident? [206](https://www.bfs.de/DE/themen/ion/notfallschutz/notfall/fukushima/unfall.html) > ethically unacceptable? [205](https://www.deutschlandfunk.de/atomenergie-ist-per-se-ethisch-nicht-vertretbar-100.html) > awareness? [204](https://www.greenpeace.de/klimaschutz/energiewende/atomausstieg#:~:text=Am%20Samstag%2C%2015.,Der%20Atomausstieg%20ist%20vollzogen.)
-
+> worrines after Fukushima accident[206](https://www.bfs.de/DE/themen/ion/notfallschutz/notfall/fukushima/unfall.html) > ethically unacceptable [205](https://www.deutschlandfunk.de/atomenergie-ist-per-se-ethisch-nicht-vertretbar-100.html) > awareness [204](https://www.greenpeace.de/klimaschutz/energiewende/atomausstieg#:~:text=Am%20Samstag%2C%2015.,Der%20Atomausstieg%20ist%20vollzogen.)
 
 #### Why do societies require laws to prohibit drug dealers?
 
