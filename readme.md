@@ -22,7 +22,9 @@ How can a Company, increase inequality through production, and employ on social 
 > block the streets and making Video for Instagram and fight for Power Positions in political System, will solve Environmental Problems ?
 
 or
-> <sub> Would granting voting power to marginalized groups such as children & 3rd-world countries, lead to equality? (as former slaves in the US) </sub>
+> <sub> granting voting Power to African American reduced inequality. (223)
+
+> <sub> Would granting voting power to marginalized groups such as children & 3rd-world countries, lead to equality? </sub>
 
 > <sub> Can human envy and voting power serve as a check on rapid development, leading to greater equality and environmental protection? </sub>
 
