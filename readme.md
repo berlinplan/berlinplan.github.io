@@ -4,8 +4,8 @@
 ### Would the smartphone be smarter and Hi-Tech, higher if slavery were to persist?
 
 #### What was the Benefits of slavery and colonization to World Development?
-- slavery was the engine of us growth (214)
-- colonization had a huge Impact on Development in Western countries (215)
+> - slavery was the engine of us growth (214)
+> - colonization had a huge Impact on Development in Western countries (215)
 
 #### Would granting voting power to marginalized groups such as children & 3rd-world citizens, lead to equality? (as former slaves in the US)
 
