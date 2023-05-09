@@ -7,7 +7,7 @@
 > - slavery was the engine of us growth (214)
 > - colonization had a huge Impact on Development in Western countries (215)
 
-## is #blacklivesmatter #equality in Instagram, bullshit ?
+## is #blacklivesmatter #equality bullshit ?
 
 > <sub>consumers use luxury goods to signal their social status (222) </sub>
 
