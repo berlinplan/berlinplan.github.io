@@ -7,27 +7,34 @@
 > - slavery was the engine of us growth (214)
 > - colonization had a huge Impact on Development in Western countries (215)
 
-#### Would granting voting power to marginalized groups such as children & 3rd-world citizens, lead to equality? (as former slaves in the US)
+## is #blacklivesmatter #equality in Instagram, bullshit ?
 
-#### Can human envy and voting power serve as a check on rapid development, leading to greater equality and environmental protection?
+> <sub>consumers use luxury goods to signal their social status (222) </sub>
 
-## is #blacklivesmatter #equality bullshit ??
+> <sub> Luxury brands such as Louis Vuitton and Gucci leverage their influential social media accounts to endorse #blacklivesmatter in the fight against social injustices.(218) </sub>
 
-> Luxury brands such as Louis Vuitton and Gucci leverage their influential social media accounts to endorse #blacklivesmatter in the fight against social injustices.(218)
-
-A luxury brand, which increase inequality through its goods, employ on social media to address social injustices?(219)
+How can a Company, increase inequality through production, and employ on social media to address social injustices?(219)
 
 > Hypocrisy: A hypocrite is basically characterised by behaviour that contradicts what one claims to believe or feel. (217)
-
 
 ## fighting Against inequality while benefiting & generating inequality?
 
 **Activism in social media** Get maximum attention for your Instagram activism with these top hashtags: (78)
 > <sub> #activism (48%), #activist (8%), #blacklivesmatter (6%), #feminism (5%), #humanrights (5%), #equality (5%), #socialjustice (5%), #love (4%), #change (4%), and #nonprofit (4%).climatechange, #vegan, #peace, #women, #freedom, #lgbt, #support, #pride, #mentalhealth, #community, #change, #lgbtq, #charity, #govegan, #awareness, #bodypositivity, #WomensMarch, #YouAintNoMuslimBruv, and #MeToo. </sub>
 
-## How to solve environmental crisis? 
+> <sub> sell "fighting-inequality" content on Economical Corporations, Spotify , YouTube, Google, Instagram, Facebook, Amazon, Twitter, TikTok, and TV ? </sub>
 
-> blocking streets, increasing polarization, Instagram activity, and competing within a psychopathic system, or promoting equality by involving marginalized groups like children (Demeny voting) and disadvantaged societies in the voting process?
+> <sub> write a book on inequality, publish it on Amazon, obtain 5-star reviews (each ~4€ in Telegram: "Amazon review DE,Amazon Produkttester, Amazon De tester 2") make it bestseller due to The Matthew Effect, which describes a social pattern characterized by initial advantages that lead to subsequent advantages, resulting in an increasing gap between those who possess resources and those who lack them. (141) </sub>
+
+##  blocking streets and increase polarization solve environmental crisis? 
+
+> block the streets and making Video for Instagram, or fight to get Positions in political Power, will solve Environmental Problems ?
+
+or
+> <sub> Would granting voting power to marginalized groups such as children & 3rd-world countries, lead to equality? (as former slaves in the US) </sub>
+
+> <sub> Can human envy and voting power serve as a check on rapid development, leading to greater equality and environmental protection? </sub>
+
 
 ## e-cars: benefiting the environment While leading to inequality in World?
 
@@ -800,11 +807,6 @@ any body can Create a Website and copy this content. Go to street and sugesst th
  
  ------------
 
-#### What factors contribute to the impossibility of publishing your ideas to society through platforms like 
-
-> sell "fighting-inequality" content on psychopathic Plattforms, Spotify , YouTube, Google, Instagram, Facebook, Amazon, Twitter, TikTok, and TV companies.
-
-> write a book on inequality, publish it on Amazon, obtain 5-star reviews (each ~4€ in Telegram: "Amazon review DE,Amazon Produkttester, Amazon De tester 2") make it bestseller due to The Matthew Effect, which describes a social pattern characterized by initial advantages that lead to subsequent advantages, resulting in an increasing gap between those who possess resources and those who lack them. (141)
 
 
 
