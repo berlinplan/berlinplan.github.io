@@ -57,7 +57,9 @@ sell "fighting-inequality" content on Economical Corporations, Spotify , YouTube
 
 > worrines after Fukushima accident[206](https://www.bfs.de/DE/themen/ion/notfallschutz/notfall/fukushima/unfall.html) > ethically unacceptable [205](https://www.deutschlandfunk.de/atomenergie-ist-per-se-ethisch-nicht-vertretbar-100.html) > awareness [204](https://www.greenpeace.de/klimaschutz/energiewende/atomausstieg#:~:text=Am%20Samstag%2C%2015.,Der%20Atomausstieg%20ist%20vollzogen.)
 
-#### Why do societies require laws to prohibit drug dealers?
+## Lets drug dealers be free?
+
+> all societies prohibit drug dealers by law. 
 
 > <sub> Drug abuse: Addiction, Mental Health Disorder, Violence, Society collapse , high Costs to Social Health, Economy & Family.(8) Drug users cannot be treated as criminals (169) they suffer from  something out of their control (170) £10000 a week trade of drug dealers (171) </sub> 
 
