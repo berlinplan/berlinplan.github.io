@@ -337,6 +337,8 @@ People’s taxes finance the executive, legislative, and judiciary of modern soc
 
 > Sweden: “Integration of migrants has failed” (166)
 
+> psychopathological integration: psychopathegration
+
 > **Integration:** the act of combining into an integral whole (167)
 
 > **Combine:** implies some merging or mingling with corresponding loss of identity of each unit (168)
@@ -351,18 +353,17 @@ a Migrant,who leave his country Against social  & Religious Principal, to endors
 
 #### Do Economy prefer the new psychopathegrated population instead of old population? 
 
-- as Migrants have more Potential to be psychopathegrated as they have already Lower Bound to their original values . 
+> The lowered affinity of migrants towards their original values increases their susceptibility to psychopathological integration.
 
 The UK’s Indian, Pakistani, and Asian population surprised London by voting pro-Brexit.
 
 > euroscepticism within the British South Asian population was stronger than previously anticipated.(197) 
 
-> Iranian migrants Demonstrations out of iran for more sanctions Against Iran (221)
-
+> Iranian migrants organizing protests outside Iran to call for stricter sanctions against Iran. (221)
 
 #### Why do migrants reject the traditions of people in a psychopathic system?
 
-> while populations, cultures, and values of people in industrial systems are disappearing,should one follow the path of someone who has sunk their ship?(186)
+> while populations, cultures, and values of people in industrial systems are disappearing, why should one follow the path of a vanished Generation? (186)
 
 #### What are the benefits of cultural dialogue within a society?
 
