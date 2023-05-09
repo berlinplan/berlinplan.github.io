@@ -1,7 +1,7 @@
 # Berlinplan.com
 ## freedom sustainability terror
 
-#### Would the smartphone be smarter and Hi-Tech, higher if slavery were to persist?
+### Would the smartphone be smarter and Hi-Tech, higher if slavery were to persist?
 
 #### What was the Benefits of slavery and colonization to World Development?
 - slavery was the engine of us growth (214)
