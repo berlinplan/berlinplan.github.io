@@ -19,7 +19,7 @@ How can a Company, increase inequality through production, and employ on social 
 
 ##  blocking streets and increase polarization solve environmental crisis? 
 
-> block the streets and making Video for Instagram and fight to get Power Positions in political System, will solve Environmental Problems ?
+> block the streets and making Video for Instagram and fight for Power Positions in political System, will solve Environmental Problems ?
 
 or
 > <sub> Would granting voting power to marginalized groups such as children & 3rd-world countries, lead to equality? (as former slaves in the US) </sub>
