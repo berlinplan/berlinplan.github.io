@@ -463,7 +463,6 @@ The merging of two societies occurs when they have the same values.
 > Can Christians be inspired by Muslims to reduce alcohol consumption and have more stable relationships?
 
 
-
 #### What makes ideological groups like ISIS and Taliban outperform most modern armies?
 
 Clear values and non-hierarchical structures (equality) in Ideological Groups versus Pathocratic armies claim to uphold non-negotiable human rights, but maintain strong ties with Saudi Arabia while imposing heavy sanctions on Iran for their human rights violations.
@@ -801,12 +800,12 @@ any body can Create a Website and copy this content. Go to street and sugesst th
  
  ------------
 
+#### What factors contribute to the impossibility of publishing your ideas to society through platforms like 
 
+> sell "fighting-inequality" content on psychopathic Plattforms, Spotify , YouTube, Google, Instagram, Facebook, Amazon, Twitter, TikTok, and TV companies.
 
+> write a book on inequality, publish it on Amazon, obtain 5-star reviews (each ~4€ in Telegram: "Amazon review DE,Amazon Produkttester, Amazon De tester 2") make it bestseller due to The Matthew Effect, which describes a social pattern characterized by initial advantages that lead to subsequent advantages, resulting in an increasing gap between those who possess resources and those who lack them. (141)
 
-#### What factors contribute to the impossibility of publishing your ideas to society through platforms like YouTube, Google, Instagram, Facebook, Amazon, Twitter, TikTok, and TV companies, which have psychopathic tendencies?
-
-> write a book on inequality, publish it on Amazon,  obtain 5-star reviews (each ~4€ : Telegram: "Amazon review DE," "Amazon Produkttester," or "Amazon De tester 2"? ) and make it bestseller due to The Matthew Effect, which describes a social pattern characterized by initial advantages that lead to subsequent advantages, resulting in an increasing gap between those who possess resources and those who lack them. (141)
 
 
 
