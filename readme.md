@@ -7,7 +7,7 @@
 > - slavery was the engine of us growth (214)
 > - colonization had a huge Impact on Development in Western countries (215)
 
-## is #blacklivesmatter #equality bullshit ?
+## is #blacklivesmatter #equality bullshit?
 
 > <sub>consumers use luxury goods to signal their social status (222) </sub>
 
@@ -17,7 +17,7 @@ How can a Company, increase inequality through production, and employ on social 
 
 > Hypocrisy: A hypocrite is basically characterised by behaviour that contradicts what one claims to believe or feel. (217)
 
-##  blocking streets and increase polarization solve environmental crisis? 
+##  blocking streets and increase polarization to solve environmental crisis, bullshit? 
 
 > block the streets and making Video for Instagram and fight for Power Positions in political System, will solve Environmental Problems ?
 
@@ -28,7 +28,7 @@ or
 
 > <sub> Can human envy and voting power serve as a check on rapid development, leading to greater equality and environmental protection? </sub>
 
-## fighting Against inequality while benefiting & generating inequality?
+## fighting Against inequality while benefiting & generating inequality, bullshit?
 
 **Activism in social media** Get maximum attention for your Instagram activism with these top hashtags: (78)
 > <sub> #activism (48%), #activist (8%), #blacklivesmatter (6%), #feminism (5%), #humanrights (5%), #equality (5%), #socialjustice (5%), #love (4%), #change (4%), and #nonprofit (4%).climatechange, #vegan, #peace, #women, #freedom, #lgbt, #support, #pride, #mentalhealth, #community, #change, #lgbtq, #charity, #govegan, #awareness, #bodypositivity, #WomensMarch, #YouAintNoMuslimBruv, and #MeToo. </sub>
@@ -37,19 +37,17 @@ sell "fighting-inequality" content on Economical Corporations, Spotify , YouTube
 
 > <sub> write a book on inequality, publish it on Amazon, obtain 5-star reviews (each ~4€ in Telegram: "Amazon review DE,Amazon Produkttester, Amazon De tester 2") make it bestseller due to The Matthew Effect, which describes a social pattern characterized by initial advantages that lead to subsequent advantages, resulting in an increasing gap between those who possess resources and those who lack them. (141) </sub>
 
-## e-cars: good for environment While leading to inequality in World?
+## are e-cars good for environment or bullshit for Environment?
 
-> e-cars require ten times as many chips as petrol or diesel. USA passed the Chips Act to restrict the use of US technology in producing semiconductors. Technology producers prioritize profit, leading to poorer countries importing the technology. This creates a cycle of wealth inequality, where the rich get richer and the poor get poorer.(139,140)
+> e-cars increase inequality, they require ten times as many chips as petrol or diesel. USA passed the Chips Act to restrict the use of US technology in producing semiconductors. Technology producers prioritize profit, leading to poorer countries importing the technology. This creates a cycle of wealth inequality, where the rich get richer and the poor get poorer.(139,140)
 
 > <sub> While most 3rd-world countries have no roads, How much do luxury self Pilot e-cars, NASA space travel, or Hi-Tech super yachts contribute to the well-being of their citizens? </sub>
 
 > <sub> Is it probable that citizens of the Middle East see on their damaged streets, self-driving e-cars or psychopathic countries military technology, including supercomputers, drones, satellites, rockets, and aircrafts? </sub>
 
-
 #### One generation harms  33,000 Generations, morally justifiable?
 
-> > While ~70 Generations has lived over the past 2000 years, ~33000 Generations in Future have to manage nuclear waste[201](https://www.base.bund.de/DE/themen/kt/ausstieg-atomkraft/ausstieg_node.html)[202](https://answersingenesis.org/bible-timeline/genealogy/how-many-human-generations-are-there-from-adam-until-today/)
-
+> While ~70 Generations has lived over the past 2000 years, ~33000 Generations in Future have to manage nuclear waste[201](https://www.base.bund.de/DE/themen/kt/ausstieg-atomkraft/ausstieg_node.html)[202](https://answersingenesis.org/bible-timeline/genealogy/how-many-human-generations-are-there-from-adam-until-today/)
 
 > Germany has decommissioned all of its nuclear power plants. [201]
 
