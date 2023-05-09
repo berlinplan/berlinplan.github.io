@@ -195,21 +195,22 @@ People’s taxes finance the executive, legislative, and judiciary of modern soc
 
 > <sub> A voting app for laws and suggestions with a separate sector for comments that includes pros and cons. Users can vote for their favorite arguments. </sub>
 -------------
-
-> <sub> Example 1: should it be mandatory to pay monthly for ARD and ZDF? </sub>
+*Examples*
+> <sub> 1. should it be mandatory to pay monthly for ARD and ZDF? </sub>
 -------------
-
-> <sub> Example 2: Should we construct a power plant in our village? </sub>
+> <sub> 2. Should the primary focus of the police be on protecting vulnerable populations like women and the elderly, rather than prioritizing the protection of capital through actions against impoverished tenants, debtors of Amazon, supermarket looters, and climate activists? </sub>
+-------------
+> <sub> 3. Should we construct a power plant in our village? </sub>
 
 > <sub> Which company should build it after a 50%+ YES decision? </sub>
 
 > <sub> Should we pay it step by step from each person’s account or send the money to a psychopathic system to pay the company? </sub>
 -------------
 
-> <sub> Example 3: Should we impose sanctions on Russia, Saudi Arabia, USA or China for human rights violations? </sub>
+> <sub> 4. Should we impose sanctions on Russia, Saudi Arabia, USA or China for human rights violations? </sub>
 -------------
 
-> <sub> Example 4: Voting example in a village of 100 people. </sub> 
+> <sub> 5. Voting example in a village of 100 people. </sub> 
 
 > <sub> User 76: The village is too dry, do we need to plant trees?
 
@@ -252,7 +253,7 @@ People’s taxes finance the executive, legislative, and judiciary of modern soc
 > <sub> After acceptance, 10€ will be automatically sent to Company xxx </sub>
 -------------
 
-> <sub> Example 5: Who should be taxed more? </sub>
+> <sub> 6. Who should be taxed more? </sub>
 
 > <sub> fireman, nursing assistant, teacher?
 
