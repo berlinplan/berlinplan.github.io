@@ -1,5 +1,17 @@
 # Berlinplan.com
 ## freedom sustainability terror
+
+#### Would the smartphone be smarter and Hi-Tech, higher if slavery were to persist?
+
+#### What was the Benefits of slavery and colonization to World Development?
+- slavery was the engine of us growth (214)
+- colonization had a huge Impact on Development in Western countries (215)
+
+## Would granting voting power to marginalized groups such as children & 3rd-world citizens, lead to equality? (as former slaves in the US)
+
+### Can human envy and voting power serve as a check on rapid development, leading to greater equality and environmental protection?
+
+
 ## Can luxury be ethical?
 
 > Luxury brands such as Louis Vuitton and Gucci leverage their influential social media accounts to endorse #blacklivesmatter in the fight against social injustices.(218)
@@ -703,17 +715,6 @@ The use of beauty operations, dating apps, pickup and alpha masculinity coaches,
 - Varoius sexual Activities -> bumble, hinge tinder -> open Relationships-> hypergyny
 - Profiteering and usury -> Crypto trading, forex, passive income, Invest Bank Money in Appartements (189)
 ---------
-
-
-#### Would the advancement of smartphones and higher technology be possible if slavery were to persist?
-
-#### What was the Benefits of slavery and colonization to World Development?
-- slavery was the engine of us growth (214)
-- colonization had a huge Impact on Development in Western countries (215)
-
-## Would granting voting power to marginalized groups such as children & 3rd-world citizens, lead to equality? (as former slaves in the US)
-
-### Can human envy and voting power serve as a check on rapid development, leading to greater equality and environmental protection?
 
 
 
