@@ -32,7 +32,7 @@ or
 
 > pay my Lamborghini Because i want to do Activity against inequality.
 
-> Support me to get Advertisements for consumption culture, Environment damages and World inequality. 
+> Support me to get Advertisements > consumption culture > Environment damages > World inequality. 
 
 fighting Against inequality while benefiting & generating inequality: bullshit?
 
