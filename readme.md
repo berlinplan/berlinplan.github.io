@@ -7,10 +7,9 @@
 - slavery was the engine of us growth (214)
 - colonization had a huge Impact on Development in Western countries (215)
 
-## Would granting voting power to marginalized groups such as children & 3rd-world citizens, lead to equality? (as former slaves in the US)
+#### Would granting voting power to marginalized groups such as children & 3rd-world citizens, lead to equality? (as former slaves in the US)
 
-### Can human envy and voting power serve as a check on rapid development, leading to greater equality and environmental protection?
-
+#### Can human envy and voting power serve as a check on rapid development, leading to greater equality and environmental protection?
 
 ## Can luxury be ethical?
 
