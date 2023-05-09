@@ -806,9 +806,7 @@ any body can Create a Website and copy this content. Go to street and sugesst th
 
 #### What factors contribute to the impossibility of publishing your ideas to society through platforms like YouTube, Google, Instagram, Facebook, Amazon, Twitter, TikTok, and TV companies, which have psychopathic tendencies?
 
-Is it possible for an author to write a book on inequality, publish it on Amazon, and enhance its success by joining Telegram groups such as "Amazon review DE," "Amazon Produkttester," or "Amazon De tester 2"? By investing approximately €5000 to acquire 5-star reviews at a rate of €3-5 per review, and achieve bestseller status?
-
-> The Matthew Effect describes a social pattern characterized by initial advantages that lead to subsequent advantages, resulting in an increasing gap between those who possess resources and those who lack them. (141)
+> write a book on inequality, publish it on Amazon,  obtain 5-star reviews (each ~4€ : Telegram: "Amazon review DE," "Amazon Produkttester," or "Amazon De tester 2"? ) and make it bestseller due to The Matthew Effect, which describes a social pattern characterized by initial advantages that lead to subsequent advantages, resulting in an increasing gap between those who possess resources and those who lack them. (141)
 
 
 
