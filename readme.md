@@ -1,7 +1,7 @@
 # Berlinplan.com
 ## freedom sustainability terror
 
-### Would the smartphone be smarter and Hi-Tech, higher if slavery were to persist?
+### Would the smartphones be smarter and Hi-Tech, higher if slavery were to persist?
 
 #### What was the Benefits of slavery and colonization to World Development?
 > - slavery was the engine of us growth (214)
@@ -17,6 +17,15 @@ How can a Company, increase inequality through production, and employ on social 
 
 > Hypocrisy: A hypocrite is basically characterised by behaviour that contradicts what one claims to believe or feel. (217)
 
+##  blocking streets and increase polarization solve environmental crisis? 
+
+> block the streets and making Video for Instagram and fight to get Power Positions in political System, will solve Environmental Problems ?
+
+or
+> <sub> Would granting voting power to marginalized groups such as children & 3rd-world countries, lead to equality? (as former slaves in the US) </sub>
+
+> <sub> Can human envy and voting power serve as a check on rapid development, leading to greater equality and environmental protection? </sub>
+
 ## fighting Against inequality while benefiting & generating inequality?
 
 **Activism in social media** Get maximum attention for your Instagram activism with these top hashtags: (78)
@@ -26,17 +35,7 @@ sell "fighting-inequality" content on Economical Corporations, Spotify , YouTube
 
 > <sub> write a book on inequality, publish it on Amazon, obtain 5-star reviews (each ~4€ in Telegram: "Amazon review DE,Amazon Produkttester, Amazon De tester 2") make it bestseller due to The Matthew Effect, which describes a social pattern characterized by initial advantages that lead to subsequent advantages, resulting in an increasing gap between those who possess resources and those who lack them. (141) </sub>
 
-##  blocking streets and increase polarization solve environmental crisis? 
-
-> block the streets and making Video for Instagram, or fight to get Positions in political Power, will solve Environmental Problems ?
-
-or
-> <sub> Would granting voting power to marginalized groups such as children & 3rd-world countries, lead to equality? (as former slaves in the US) </sub>
-
-> <sub> Can human envy and voting power serve as a check on rapid development, leading to greater equality and environmental protection? </sub>
-
-
-## e-cars: benefiting the environment While leading to inequality in World?
+## e-cars: good for environment While leading to inequality in World?
 
 > Joe Biden passed the Chips Act to restrict the use of US technology in producing semiconductors. e-cars require ten times as many chips as petrol or diesel. Technology producers prioritize profit, leading to poorer countries importing the technology. This creates a cycle of wealth inequality, where the rich get richer and the poor get poorer.(139,140)
 
