@@ -11,7 +11,7 @@
 
 #### Can human envy and voting power serve as a check on rapid development, leading to greater equality and environmental protection?
 
-## Can luxury be ethical?
+## is #blacklivesmatter #equality bullshit ??
 
 > Luxury brands such as Louis Vuitton and Gucci leverage their influential social media accounts to endorse #blacklivesmatter in the fight against social injustices.(218)
 
