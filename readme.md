@@ -27,16 +27,6 @@
 
 > <sub> *colonization had a huge Impact on Development in Western countries(215)* </sub>
 
-##  #awareness #equality #woke #muslimlivesmatter bullshit?
-
-> <sub> Luxury brands such as Louis Vuitton and Gucci leverage their influential social media accounts to endorse #equality , #blacklivesmatter in the fight against social injustices.(218) </sub>
-
-> <sub> Consumers use luxury goods to signal their social status (222) </sub>
-
-increase inequality through production, but employ on social media to address social injustices, bullshit?(219)
-
-> Hypocrisy: A hypocrite is basically characterised by behaviour that contradicts what one claims to believe or feel. (217)
-
 ##  blocking streets and increase polarization to solve environmental crisis, bullshit? 
 
 > block the streets and making Video for Instagram and fight for Power Positions in political System, will solve Environmental Problems ?
@@ -46,6 +36,24 @@ or
 > <sub> Would granting voting power to marginalized groups such as children & 3rd-world countries, lead to equality? as granting voting Power to African American reduced inequality. (223) </sub>
 
 > <sub> Can human envy and voting power serve as a check on rapid development, leading to greater equality and environmental protection? </sub>
+
+## are e-cars good for environment or bullshit for Environment?
+
+> e-cars require ten times as many chips as petrol or diesel. Joe Biden passed the Chips Act to restrict the use of US technology in producing semiconductors. Technology producers prioritize profit, leading to poorer countries importing the technology. This creates a cycle of wealth inequality, where the rich get richer and the poor get poorer. E-cars increase inequality(139,140)
+
+> <sub> While most 3rd-world countries have no roads, How much do luxury self Pilot e-cars, NASA space travel, or Hi-Tech super yachts contribute to the well-being of their citizens? </sub>
+
+> <sub> Is it probable that citizens of the Middle East see on their damaged streets, self-driving e-cars or psychopathic countries military technology, including supercomputers, drones, satellites, rockets, and aircrafts? </sub>
+
+##  #awareness #equality #woke #muslimlivesmatter bullshit?
+
+> <sub> Luxury brands such as Louis Vuitton and Gucci leverage their influential social media accounts to endorse #equality , #blacklivesmatter in the fight against social injustices.(218) </sub>
+
+> <sub> Consumers use luxury goods to signal their social status (222) </sub>
+
+increase inequality through production, but employ on social media to address social injustices, bullshit?(219)
+
+> Hypocrisy: A hypocrite is basically characterised by behaviour that contradicts what one claims to believe or feel. (217)
 
 ## Follow, subscribe, comment and Like My content, bullshit? 
 
@@ -61,14 +69,6 @@ fighting Against inequality while benefiting & generating inequality: bullshit?
 sell "fighting-inequality" content on Economical Corporations, Spotify , YouTube, Google, Instagram, Facebook, Amazon, Twitter, TikTok, and TV ? 
 
 > <sub> write a book on inequality, publish it on Amazon, obtain 5-star reviews (each ~4€ in Telegram: "Amazon review DE,Amazon Produkttester, Amazon De tester 2") make it bestseller due to The Matthew Effect, which describes a social pattern characterized by initial advantages that lead to subsequent advantages, resulting in an increasing gap between those who possess resources and those who lack them. (141) </sub>
-
-## are e-cars good for environment or bullshit for Environment?
-
-> e-cars require ten times as many chips as petrol or diesel. Joe Biden passed the Chips Act to restrict the use of US technology in producing semiconductors. Technology producers prioritize profit, leading to poorer countries importing the technology. This creates a cycle of wealth inequality, where the rich get richer and the poor get poorer. E-cars increase inequality(139,140)
-
-> <sub> While most 3rd-world countries have no roads, How much do luxury self Pilot e-cars, NASA space travel, or Hi-Tech super yachts contribute to the well-being of their citizens? </sub>
-
-> <sub> Is it probable that citizens of the Middle East see on their damaged streets, self-driving e-cars or psychopathic countries military technology, including supercomputers, drones, satellites, rockets, and aircrafts? </sub>
 
 #### Germany has decommissioned all of its nuclear power plants. [201] wonder Happens?
 
