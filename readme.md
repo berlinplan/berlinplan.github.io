@@ -136,7 +136,11 @@ sell "fighting-inequality" content on Economical Corporations, Spotify , YouTube
 
 porn addiction, or problematic pornography use, affects approximately 3% to 6% of the adult population. Up to 65% of young adult men and 18% of Young Woman Report watching Pornography at least once a Week (35) Addicts are not to blame for their addiction, it is a problem for society as a whole and we are talking about shared responsibility (36) </sub>
 
-#### What is the reason for ~ 40% of the new generation wanting to pursue a career as an influencer?
+## How you help the Atomic war with Instagram Like?
+
+How consumption culture and social Media leads to nuclear disaster?
+ 
+#### 1. What is the reason for ~ 40% of the new generation wanting to pursue a career as an influencer?
 
 > <sub> Despite the high earning potential of OnlyFans, influencer, YouTuber, and gamer careers, why should a young person consider working as a firefighter or nursing assistant for a relatively low salary of around €1300? </sub>
 
@@ -144,7 +148,7 @@ porn addiction, or problematic pornography use, affects approximately 3% to 6% o
 
 > <sub> Germany lacks almost two million workers (39) </sub>
 
-#### How do millionaire social media influencers contribute to society?
+#### 2. How do millionaire social media influencers contribute to society?
 
 > <sub> Cristiano Ronaldo (496m followers) Lionel Messi (373m followers) Kylie Jenner (372m followers) Selena Gomez (356m followers) Kim Kardashian (333m followers) Khloé Kardashian (279m followers) (40) or in Germany bibisbeautypalace, Julienco, Lisa und Lena mantler, Montana Black, Pia wurzbach, Pamela reif, dagibee,youneszarou </sub>
 
@@ -154,15 +158,15 @@ porn addiction, or problematic pornography use, affects approximately 3% to 6% o
 
 > <sub> 3. Early sexual activity lead to unstable relationships and marriages when children grow up, which can contribute to lower birth rates and an aging population. (10,11,12,13,14) </sub>
 
-#### Why does an aging population and lack of labor lead to exploitation?
+#### 3. Why does an aging population and lack of labor lead to exploitation?
 
 > <sub> An aging population can bring the economy to collapse due to a lack of workers and skilled workers (15). Most migrants come from poor third-world countries (16), which can have consequences for the countries of origin such as economic disadvantage due to the loss of young workers, loss of highly qualified personnel (especially health workers), and social problems for children who have been left behind or who have not grown up with a large family (17). Remittances/money transfers are blocked and under UN sanctions (18) poor countries have a negative trade balance with industrial countries (19). A negative trade balance (more imports than exports) results in unemployment and capital outflow abroad (20). Exploitation is defined as inappropriate use (especially of manpower, resources) and was more precisely defined in Marxist theories as the appropriation of someone else’s labor (21). </sub>
 
-#### Does exploitation contribute to international inequality?
+#### 4. Does exploitation contribute to international inequality?
 
 > <sub> Exploitation increases the international inequality (22) Tracing the global history of inequality from the Stone Age to today, **Walter Scheidel shows that it never dies peacefully. violent shocks reduce inequality.** Blanket bombing from the American air fleet and two devastating atomic bombs. led to a **decline in social inequality** (23)</sub>
 
-#### Can international inequality only be reduced through violent shock?
+#### 5. Can international inequality only be reduced through violent shock?
 
 > <sub> The French colonization ended only after the Haitian slaves rebelled, leading to the Haitian Massacre which resulted in the deaths of 75,000 white French and 350,000 Haitians. (24) </sub>
 
