@@ -415,7 +415,7 @@ People’s taxes finance the executive, legislative, and judiciary of modern soc
 
 > The lowered affinity of migrants towards their original values increases their susceptibility to psychopathological integration.
 
->  <sub> Psychopathegrated people are as sociopaths have learned their behavior and are created by life experiences and are capable of feeling emotions but usually don’t control them. Psychopaths, on the other hand, are born and suffer from a genetic effect (50,51) </sub>
+>  <sub> Psychopathegrated population, have learned their behavior and are created by life experiences as sociopaths. They are capable of feeling emotions but usually don’t control them. Psychopaths, on the other hand, are born and suffer from a genetic effect (50,51) </sub>
 
 The UK’s Indian, Pakistani, and Asian population surprised London by voting pro-Brexit.
 
