@@ -27,13 +27,13 @@
 
 > <sub> *colonization had a huge Impact on Development in Western countries(215)* </sub>
 
-## is #blacklivesmatter #equality bullshit?
+##  #awareness #equality #YouAintNoMuslimBruv, bullshit?
 
-> <sub>consumers use luxury goods to signal their social status (222) </sub>
+> <sub> Luxury brands such as Louis Vuitton and Gucci leverage their influential social media accounts to endorse #equality , #blacklivesmatter in the fight against social injustices.(218) </sub>
 
-> <sub> Luxury brands such as Louis Vuitton and Gucci leverage their influential social media accounts to endorse #blacklivesmatter in the fight against social injustices.(218) </sub>
+> <sub> Consumers use luxury goods to signal their social status (222) </sub>
 
-How can a Company, increase inequality through production, and employ on social media to address social injustices?(219)
+increase inequality through production, but employ on social media to address social injustices, bullshit?(219)
 
 > Hypocrisy: A hypocrite is basically characterised by behaviour that contradicts what one claims to believe or feel. (217)
 
@@ -57,7 +57,7 @@ or
 fighting Against inequality while benefiting & generating inequality: bullshit?
 
 **Activism in social media** Get maximum attention for your Instagram activism with these top hashtags: (78)
-> <sub> #activism (48%), #activist (8%), #blacklivesmatter (6%), #feminism (5%), #humanrights (5%), #equality (5%), #socialjustice (5%), #love (4%), #change (4%), and #nonprofit (4%).climatechange, #vegan, #peace, #women, #freedom, #lgbt, #support, #pride, #mentalhealth, #community, #change, #lgbtq, #charity, #govegan, #awareness, #bodypositivity, #WomensMarch, #YouAintNoMuslimBruv, and #MeToo. </sub>
+> <sub> #activism (48%), #activist (8%), #blacklivesmatter (6%), #feminism (5%), #humanrights (5%), #equality (5%), #socialjustice (5%), #love (4%), #change (4%), and #nonprofit (4%) #climatechange, #vegan, #peace, #women, #freedom, #lgbt, #support, #pride, #mentalhealth, #community, #change, #lgbtq, #charity, #govegan, #awareness, #bodypositivity, #WomensMarch, #YouAintNoMuslimBruv, and #MeToo. </sub>
 
 sell "fighting-inequality" content on Economical Corporations, Spotify , YouTube, Google, Instagram, Facebook, Amazon, Twitter, TikTok, and TV ? 
 
