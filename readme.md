@@ -48,7 +48,7 @@ or
 
 > <sub> Can human envy and voting power serve as a check on rapid development, leading to greater equality and environmental protection? </sub>
 
-## Follow, subscribe, comment and Like mMy content, bullshit? 
+## Follow, subscribe, comment and Like My content, bullshit? 
 
 > pay my Lamborghini because i want to do Activity against inequality.
 
