@@ -725,9 +725,9 @@ The use of beauty operations, dating apps, pickup and alpha masculinity coaches,
 
 #### Is it morally justifiable to allow transgender individuals to participate in women's sports competitions? (193)
 
-#### What is the fairness of sports competitions and the reasons behind 3rd-world citizens being perceived as losers, before delving into gender morality?
+#### seeking fairness in sports competitions, bullshit?
 
-> <sub> Athletes from wealthier, psychopathic countries are celebrated and proud for defeating their competitors from poorer countries, regardless of whether they used performance-enhancing drugs or were trained from a young age. (194) </sub>
+> <sub> Athletes from wealthier, psychopathic countries are celebrated and proud for defeating their loser competitors from poorer countries, regardless of whether they used performance-enhancing drugs or were trained from a young age. (194) </sub>
 
 > <sub> Greater risk of overuse injuries in young athletes due to gradual and worsening effects of sports specialization on muscles, bones, tendons, and ligaments. </sub>
 
