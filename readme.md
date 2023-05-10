@@ -174,7 +174,35 @@ porn addiction, or problematic pornography use, affects approximately 3% to 6% o
 
 > <sub> North Korea 100 Kiloton Atomic bomb.[209](https://www.bbc.com/news/world-asia-41174689.amp) Iran has enough enriched uranium to build ‘several’ nuclear weapons, UN says (30)</sub>
 
-## Why is nuclear war inevitable for a democracy?
+## Would an Atomic war be an Atomic survival war?
+
+> <sub> if everything is flat and equal, how can one exploit the world and the environment in a great way? </sub>
+
+#### Economic sanctions, brain drain, youth migration, and inequalities forces a society adopting a violent shock strategy?
+
+> ~80% of Iranian, who wish an Atom bomb, expressed support for defense based on the possession of others, according to poll results.(163)
+
+> <sub> Over the years, Iranians have consistently expressed strong support for their country's nuclear program, according to polls. In 2006, 85% of Iranians supported it; in 2010, the figure was 71%. Even in the face of sanctions, Gallup's 2013 poll found that Iranians remained staunchly in favor of the program, with 84% saying they wanted a nuclear weapon. A 2013 Zogby poll similarly found that a large majority of Iranians opposed ending uranium enrichment (84.5%) and ballistic missile testing (83.4%). These views were reaffirmed by a 2020 CISSM poll.(155,156,157,158,159,160,161) </sub>
+
+> <sub> In a 2013 Gallup Iran poll, respondents were asked about their views on sanctions against Iran. 46% of those surveyed held the U.S. responsible, while 13% held the Iranian government responsible and 12% held the UN and EU responsible. 16% of respondents did not know who was responsible.(165) </sub>
+
+### well-organized group in marginalized societies outside of a psychopathic regime could use Atom bomb or current Leaders ? (216)
+
+> Experts warn that new technology Like 3-D Printing makes it easier to covertly produce WMDs.
+
+#### Why psychopathic leaders would never utiliz an atom bombs?
+
+> Despite common misconceptions, psychopaths are fully cognizant of the consequences of their actions; they are not insane.(195)
+
+> In 2013, Iran's religious leader Khamenei prohibited the development and deployment of nuclear weapons under Islamic law by issuing an irrevocable Fatwa, Following this, Mahmoud Ahmadinejad, who strongly supported Iran's nuclear program, has been disqualified from all Iranian elections since then. (154,162,163,164,178)
+
+#### is a Violent methods, the only effective strategy against inequality?
+
+> global inequality has been persisted since 1960(138)
+
+> could the idea of granting voting Power to all and removing psychopathic Structures be an alternative?
+
+## Improve democracy prohibit Atomic war ?
 
 > <sub> Democracy has been the best political system from 508 BCE. </sub>
 
@@ -291,36 +319,6 @@ porn addiction, or problematic pornography use, affects approximately 3% to 6% o
 > <sub> fireman, nursing assistant, teacher?
 
 > <sub> youtuber, instagramer, tik toker, porn performer? </sub>
-
-## Would an Atomic war be an Atomic survival war?
-
-> <sub> if everything is flat and equal, how can one exploit the world and the environment in a great way? </sub>
-
-#### Economic sanctions, brain drain, youth migration, and inequalities forces a society adopting a violent shock strategy?
-
-> ~80% of Iranian, who wish an Atom bomb, expressed support for defense based on the possession of others, according to poll results.(163)
-
-> <sub> Over the years, Iranians have consistently expressed strong support for their country's nuclear program, according to polls. In 2006, 85% of Iranians supported it; in 2010, the figure was 71%. Even in the face of sanctions, Gallup's 2013 poll found that Iranians remained staunchly in favor of the program, with 84% saying they wanted a nuclear weapon. A 2013 Zogby poll similarly found that a large majority of Iranians opposed ending uranium enrichment (84.5%) and ballistic missile testing (83.4%). These views were reaffirmed by a 2020 CISSM poll.(155,156,157,158,159,160,161) </sub>
-
-> <sub> In a 2013 Gallup Iran poll, respondents were asked about their views on sanctions against Iran. 46% of those surveyed held the U.S. responsible, while 13% held the Iranian government responsible and 12% held the UN and EU responsible. 16% of respondents did not know who was responsible.(165) </sub>
-
-
-### well-organized group in marginalized societies outside of a psychopathic regime could use Atom bomb or current Leaders ? (216)
-
-> Experts warn that new technology Like 3-D Printing makes it easier to covertly produce WMDs.
-
-#### Why psychopathic leaders would never utiliz an atom bombs?
-
-> Despite common misconceptions, psychopaths are fully cognizant of the consequences of their actions; they are not insane.(195)
-
-> In 2013, Iran's religious leader Khamenei prohibited the development and deployment of nuclear weapons under Islamic law by issuing an irrevocable Fatwa, Following this, Mahmoud Ahmadinejad, who strongly supported Iran's nuclear program, has been disqualified from all Iranian elections since then. (154,162,163,164,178)
-
-
-#### is a Violent methods, the only effective strategy against inequality?
-
-> global inequality has been persisted since 1960(138)
-
-> could the idea of granting voting Power to all and removing psychopathic Structures be an alternative?
 
 
 #### Is there a way to have a non-psychopathic economy without turning to communism?
