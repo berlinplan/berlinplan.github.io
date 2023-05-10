@@ -3,20 +3,29 @@
 
 ### Would the smartphones be smarter and Hi-Tech, higher if slavery were to persist?
 
-#### What was the Benefits of slavery and colonization to World Development?
+#### What was the Benefits of slavery and colonization to World Development? (224)
 
 > <sub> **1.Improve African lives:** Slave trade led to the growth of international trade between Africa, the USA, and Europe. So many goods were exchanged to Africa in exchange for the slaves. These products were then used in Africa to improve the lives of people. Also, more Europeans would visit the slave market and even exchange goods with Americans and Africans. </sub>
 
-> <sub> **2.Free trade:** Slavery contributes to free trade by providing European farms with cost-free labor, leading to increased profitability and economic growth.</sub> 
+> <sub> **2.Multi-Kulti:** When different countries interacted, they exchanged their culture. This helped in building long-term relationships and developing nations. Besides, the slave trade also led to intermarriage. People from different continents intermarried to produced mixed races. </sub>
 
-> <sub> **3.Quick production:** Slavery enables industries to achieve rapid production as slaves efficiently contribute to the manufacturing process. </sub>
+> <sub> **3.Free trade:** Slavery contributes to free trade by providing European farms with cost-free labor, leading to increased profitability and economic growth.</sub> 
 
-> <sub> **4.Economical stability:** By relying on enslaved labor in their firms, Britain harnessed the economic benefits of slavery, which served as a stabilizing force for the country's economy during the colonial era.
+> <sub> **4.Quick production:** Slavery enables industries to achieve rapid production as slaves efficiently contribute to the manufacturing process. </sub>
 
+> <sub> **5.Economical stability:** By relying on enslaved labor in their firms, Britain harnessed the economic benefits of slavery, which served as a stabilizing force for the country's economy during the colonial era. </sub>
 
-> <sub> slavery was the engine of us growth (214) </sub>
+> <sub> **6.Transport system:** The transport industry developed rapidly across the Atlantic ocean. This is because thousands of slaves would be transported each month. Inventors started making ships that would accommodate more people and goods. </sub>
 
-> <sub> colonization had a huge Impact on Development in Western countries (215) </sub>
+> <sub> **7.Job security:** The master had to feed the slaves even when they get sick or become too old. This was the main reason why some people would join slavery voluntarily. Also when there was no work available, the master had to feed his slaves for future jobs. </sub>
+
+> <sub> **8.Exploration:** Slave trade was one of the factors that contributed to exploration in Africa, Europe, and America. Traders would explore new places each time they visited a different market. </sub>
+
+> <sub> **9. Development:** Slave owners saved a lot of money as they did not have to hire employees. The slaves worked for free and only require food and medication. This helped the slave owners to make more profits and maybe develop their areas. </sub>
+
+> <sub> *slavery was the engine of us growth(214)* </sub>
+
+> <sub> *colonization had a huge Impact on Development in Western countries(215)* </sub>
 
 ## is #blacklivesmatter #equality bullshit?
 
