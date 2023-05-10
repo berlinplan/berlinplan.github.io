@@ -408,6 +408,8 @@ People’s taxes finance the executive, legislative, and judiciary of modern soc
 
 #### Is multiculturalism a result of a psychopathic economy?
 
+Would individuals still seek refuge if economic disparities between third-world and industrial nations were eliminated?
+
 > Psychopathic economies benefit from multiculturalism despite its increase in polarization and inequality.
 
 ## Integration of migrants has failed, bullshit? 
@@ -425,8 +427,6 @@ People’s taxes finance the executive, legislative, and judiciary of modern soc
 > Migrants come as worker to Psychopathical Systems, where their production are used to increase inequality against their homeland.
 
 > psychopathological integration: psychopathegration
-
-<sub> Imagine there were no economic differences between living and working in a 3rd-world  & an industrial country, would anyone be a refugee anymore? </sub>
 
 > while migrants reject the traditions of people in a psychopathic system, which led populations, cultures, and values of their countries be vanished, a migrant, who leave his country Against social  & Religious Principal, to endorse a more Psychopathic System which perpetuates inequality, is fully psychopathegriert. (186)
 
