@@ -43,7 +43,7 @@ or
 
 > <sub> While most 3rd-world countries have no roads, How much do luxury self Pilot e-cars, NASA space travel, or Hi-Tech super yachts contribute to the well-being of their citizens? </sub>
 
-> <sub> Is it probable that citizens of the Middle East see on their damaged streets, self-driving e-cars or psychopathic countries military technology, including supercomputers, drones, satellites, rockets, and aircrafts? </sub>
+> <sub> Is it probable that citizens of the Middle East rather see on damaged streets, Hi-Tech Drones, Aircrafts, Sattelite runned rockets, Tanks and Military Technology of psychopathic countries, or luxury self-driving e-cars? </sub>
 
 ##  #awareness #equality #woke #muslimlivesmatter bullshit?
 
