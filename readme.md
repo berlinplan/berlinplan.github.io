@@ -48,9 +48,9 @@ or
 
 > <sub> Can human envy and voting power serve as a check on rapid development, leading to greater equality and environmental protection? </sub>
 
-## Follow, subscribe, comment and Like my usefull Activity, bullshit? 
+## Follow, subscribe, comment and Like mMy content, bullshit? 
 
-> pay my Lamborghini Because i want to do Activity against inequality.
+> pay my Lamborghini because i want to do Activity against inequality.
 
 > Support me to get Advertisements > consumption culture > Environment damages > World inequality. 
 
@@ -137,7 +137,7 @@ sell "fighting-inequality" content on Economical Corporations, Spotify , YouTube
 
 porn addiction, or problematic pornography use, affects approximately 3% to 6% of the adult population. Up to 65% of young adult men and 18% of Young Woman Report watching Pornography at least once a Week (35) Addicts are not to blame for their addiction, it is a problem for society as a whole and we are talking about shared responsibility (36) </sub>
 
-#### What is the reason for approximately 40% of the new generation wanting to pursue a career as an influencer?
+#### What is the reason for ~ 40% of the new generation wanting to pursue a career as an influencer?
 
 > <sub> Despite the high earning potential of OnlyFans, influencer, YouTuber, and gamer careers, why should a young person consider working as a firefighter or nursing assistant for a relatively low salary of around €1300? </sub>
 
