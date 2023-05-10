@@ -1,7 +1,7 @@
 # Berlinplan.com
 ## freedom sustainability terror
 
-### Would the smartphones be smarter and cancer cured by Hi-Tech if slavery were to persist?
+### Would the smartphones be smarter and cancers already cured by Hi-Tech if slavery were to persist?
 
 #### What was the Benefits of slavery and colonization to World Development? (224)
 
