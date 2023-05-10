@@ -684,11 +684,11 @@ Summary: Engaging in premarital sex, Alcohol, religious beliefs, Educational att
 
 <sub> **Considering aging populations and issues with societal values, is the promotion of stable families the most effective way to promote global equality and consistency?** </sub>
 
-## What is sustainale Freedom? 
+## sexual Freedom and open Relationships, bullshit? 
 
 if a Freedom harms others, is it sustainable?
 
-> a society that adopts open relationships and sexual freedom, resulting in an aging population and increased immigration, is that freedom: sustainable? 
+> a society that adopts open relationships and sexual freedom, resulting in an aging population and increased immigration and inequality, is that freedom: sustainable? 
 
 #### Which criteria are crucial for establishing a stable family?
 
@@ -708,7 +708,7 @@ Red Flags for stable Relationships:
 
 >The argument for women's choice in polygyny posits that they would have the autonomy to select their partners in polygynous societies. Additionally, it assumes that women's rights, stature, and freedoms in traditions of monogamy aren't constrained by the institution itself.(147)
 
-#### Do dating apps empower or disempower women
+#### Do dating apps empower or disempower women?
 
 > online dating apps claims to empower women and promote equality. (150)
 
@@ -745,12 +745,11 @@ The use of beauty operations, dating apps, pickup and alpha masculinity coaches,
 
 > <sub> Sports have become commercialized for TV, leading to loss of fun. Athletes are turned into marketing products, losing their personalities. Legitimacy of sports results is questioned due to match-fixing and doping. Only top-level tournaments are profitable because people prefer to watch the best. </sub>
 
-
 #### How can an individual spend their free time if they decrease their involvement in psychopathic entertainment?
 
-> Opt for spending quality time with family through activities such as outdoor recreation, creative pursuits, playing games, reading, education, and volunteering, rather than being exposed to sexualization on social media channels like TikTok and Instagram.
-> Tackle past environmental damage while also producing food locally instead of importing avocados from faraway places.
+> <sub> Opt for spending quality time with family through activities such as outdoor recreation, creative pursuits, playing games, reading, education, and volunteering, rather than being exposed to sexualization on social media channels like TikTok and Instagram. </sub>
 
+> <sub> clean past environmental damages or produce food locally instead of importing avocados from faraway places. </sub>
 
 ### What characterized the pre-religious barbaric era?
 
@@ -769,9 +768,6 @@ The use of beauty operations, dating apps, pickup and alpha masculinity coaches,
 - Varoius sexual Activities -> bumble, hinge tinder -> open Relationships-> hypergyny
 - Profiteering and usury -> Crypto trading, forex, passive income, Invest Bank Money in Appartements (189)
 ---------
-
-
-
 
 #### Why is egoism considered the most effective solution? <sub> *Authentic egoists:* </sub>
 
