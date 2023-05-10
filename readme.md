@@ -93,9 +93,9 @@ sell "fighting-inequality" content on Economical Corporations, Spotify , YouTube
 
 > <sub> Pablo Escobar Colombian drug lord and leader of the Medellin Cartel which controlled as much as 80% international Cocaine. Helped community with building schools and sports fields, donating vast sums to charity, and constructing housing.(187) </sub>
 
-#### legalizing drugs because the right drug and dosage can cure certain illnesses, bullshit?
+#### free drug dealers because the right drug and dosage can cure certain illnesses, bullshit?
 
->  Not all drugs are harmful; for instance, opium has legitimate medical applications.[208](https://www.unodc.org/unodc/en/data-and-analysis/bulletin/bulletin_1953-01-01_3_page008.html)
+>  they claim: not all drugs are harmful; for instance, opium has legitimate medical applications.[208](https://www.unodc.org/unodc/en/data-and-analysis/bulletin/bulletin_1953-01-01_3_page008.html)
 
 #### Can social media be considered harmful to societies, or are the effects primarily beneficial?
 
