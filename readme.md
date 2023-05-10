@@ -431,7 +431,7 @@ People’s taxes finance the executive, legislative, and judiciary of modern soc
 
 > while migrants reject the traditions of people in a psychopathic system, which led populations, cultures, and values of their countries be vanished, a migrant, who leave his country Against social  & Religious Principal, to endorse a more Psychopathic System which perpetuates inequality, is fully psychopathegriert. (186)
 
-#### why Economy prefer the new psychopathegrated population instead of old population? 
+#### why Economy prefer a psychopathegrated population to an organic population? 
 
 > The lowered affinity of migrants towards their original values increases their susceptibility to psychopathological integration.
 
