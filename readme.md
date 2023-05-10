@@ -387,33 +387,38 @@ People’s taxes finance the executive, legislative, and judiciary of modern soc
 
 > Psychopathic economies benefit from multiculturalism despite its increase in polarization and inequality.
 
-#### Why does integration failed but psychopathegration was super succesful?
+### Integration of migrants has failed, bullshit? 
 
 > Sweden: “Integration of migrants has failed” (166)
-
-> psychopathological integration: psychopathegration
 
 > **Integration:** the act of combining into an integral whole (167)
 
 > **Combine:** implies some merging or mingling with corresponding loss of identity of each unit (168)
 
+> Most top students from poor countries end up in industrial countries where their hi-tech products are most likely to be used by the US Army.(179)
+
+> US Army operations are mostly conducted in the Middle East, including Libya, Iraq, Iran, Afghanistan, Syria, Somalia, Pakistan, and Sudan and also in South America.(180)
+
+> Migrants come as worker to Psychopathical Systems, where their production are used to increase inequality against their homeland.
+
+> psychopathological integration: psychopathegration
+
 <sub> Imagine there were no economic differences between living and working in a 3rd-world  & an industrial country, would anyone be a refugee anymore? </sub>
 
 a Migrant,who leave his country Against social  & Religious Principal, to endorse a more Psychopathic System which perpetuates inequality, is fully psychopathegriert.
 
-## is psychopathegration borned or a learned behavior?
-
-> <sub> Psychopaths are born while sociopaths are created by life experiences. Sociopaths have learned their behavior and are capable of feeling emotions but usually don’t control them. Psychopaths, on the other hand, suffer from a genetic effect (50,51) </sub>
-
-#### Do Economy prefer the new psychopathegrated population instead of old population? 
+#### why Economy prefer the new psychopathegrated population instead of old population? 
 
 > The lowered affinity of migrants towards their original values increases their susceptibility to psychopathological integration.
+
+>  <sub> Psychopathegrated people are as sociopaths have learned their behavior and are created by life experiences and are capable of feeling emotions but usually don’t control them. Psychopaths, on the other hand, are born and suffer from a genetic effect (50,51) </sub>
 
 The UK’s Indian, Pakistani, and Asian population surprised London by voting pro-Brexit.
 
 > euroscepticism within the British South Asian population was stronger than previously anticipated.(197) 
 
 > Iranian migrants organizing protests outside Iran to call for stricter sanctions against Iran. (221)
+
 
 #### Why do migrants reject the traditions of people in a psychopathic system?
 
@@ -423,11 +428,6 @@ The UK’s Indian, Pakistani, and Asian population surprised London by voting pr
 
 > The exchange of ideas and debates lead to more polarization, as stated before.
 
-#### Is a third-world migrant who works in a country where their production may be used against their homeland not well integrated?
-
-> Most top students from poor countries end up in industrial countries where their hi-tech products are most likely to be used by the US Army.(179)
-
-> US Army operations are mostly conducted in the Middle East, including Libya, Iraq, Iran, Afghanistan, Syria, Somalia, Pakistan, and Sudan and also in South America.(180)
 
 
 #### How can cultural inspiration be achieved?
