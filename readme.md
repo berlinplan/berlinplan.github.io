@@ -332,7 +332,7 @@ People’s taxes finance the executive, legislative, and judiciary of modern soc
 
 ## German, Netherland, france **"society"**, bullshit?
 
-> <sub> SOCIETY: people in general thought of as living together in organized communities with **shared** laws, traditions, and value (83) </sub>
+> <sub> SOCIETY: people in general thought of as living together in organized communities with **shared** laws, traditions, and value (83) Cooperation is vital for human survival as it enables us to thrive in large groups. By living collectively, we can effectively collaborate and distribute tasks based on individual strengths, resulting in improved efficiency and productivity. </sub>
 
 > <sub> The EU considers “human rights” a non-negotiable value, but the German football team participated in the 2022 World Cup in Qatar without wearing a “one love” band. (106) </sub>
 
@@ -340,7 +340,6 @@ People’s taxes finance the executive, legislative, and judiciary of modern soc
 
 > <sub> The EU and Germany are being criticized for double standards.(153) </sub>
 
-> <sub> Cooperation is vital for human survival as it enables us to thrive in large groups. By living collectively, we can effectively collaborate and distribute tasks based on individual strengths, resulting in improved efficiency and productivity. </sub>
 
 
 #### Would people in modern societies fight back and defend themselves when attacked?
