@@ -394,7 +394,7 @@ People’s taxes finance the executive, legislative, and judiciary of modern soc
 
 > <sub> Multiculturalism is essential for the survival of psychopathic economies and has huge economic benefits. </sub>
 
-  <sub> Germany is the biggest winner. According to Brücker in 2013, without immigration, the labor force potential in Germany would fall by around 40% by 2050. (117) <sub>
+<sub> Germany is the biggest **Winner.** According to Brücker in 2013, without immigration, the labor force potential in Germany would fall by around 40% by 2050. (117) <sub>
 
 #### Are the "Homeland countries" of migrants the biggest Winners, too?
 
