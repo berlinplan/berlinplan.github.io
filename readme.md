@@ -27,7 +27,7 @@
 
 > <sub> *colonization had a huge Impact on Development in Western countries(215)* </sub>
 
-##  #awareness #equality #woke, bullshit?
+##  #awareness #equality #woke #muslimlivesmatter bullshit?
 
 > <sub> Luxury brands such as Louis Vuitton and Gucci leverage their influential social media accounts to endorse #equality , #blacklivesmatter in the fight against social injustices.(218) </sub>
 
