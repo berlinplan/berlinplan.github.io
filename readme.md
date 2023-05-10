@@ -3,7 +3,7 @@
 
 ### Would the smartphones be smarter, Cancer and Hunger in Africa already cured by Hi-Tech if slavery were to persist?
 
-#### What was the Benefits of slavery and colonization to World Development? (224)
+#### Benefits of slavery for World Development: (224)
 
 > <sub> **1.Improve African lives:** Slave trade led to the growth of international trade between Africa, the USA, and Europe. So many goods were exchanged to Africa in exchange for the slaves. These products were then used in Africa to improve the lives of people. Also, more Europeans would visit the slave market and even exchange goods with Americans and Africans. </sub>
 
