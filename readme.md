@@ -5,9 +5,12 @@
 
 #### What was the Benefits of slavery and colonization to World Development?
 
-> <sub> **Free trade:** Slavery contributes to free trade by providing European farms with cost-free labor, leading to increased profitability and economic growth.</sub> 
+> <sub> **1.Free trade:** Slavery contributes to free trade by providing European farms with cost-free labor, leading to increased profitability and economic growth.</sub> 
 
-> <sub> **Quick production:** Slavery enables industries to achieve rapid production as slaves efficiently contribute to the manufacturing process. </sub>
+> <sub> **2.Quick production:** Slavery enables industries to achieve rapid production as slaves efficiently contribute to the manufacturing process. </sub>
+
+> <sub> **3.Economical stability:** By relying on enslaved labor in their firms, Britain harnessed the economic benefits of slavery, which served as a stabilizing force for the country's economy during the colonial era.
+
 
 > <sub> slavery was the engine of us growth (214) </sub>
 
