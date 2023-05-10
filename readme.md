@@ -182,7 +182,7 @@ How consumption culture and social Media leads to nuclear disaster?
 
 > <sub> if everything is flat and equal, how can one exploit the world and the environment in a great way? </sub>
 
-#### Economic sanctions, brain drain, youth migration, and inequalities forces a society adopting a violent shock strategy?
+#### Economic sanctions, brain drain, youth migration, and inequalities forces a country adopting a violent shock strategy?
 
 > ~80% of Iranian, who wish an Atom bomb, expressed support for defense based on the possession of others, according to poll results.(163)
 
