@@ -73,7 +73,7 @@ sell "fighting-inequality" content on Economical Corporations, Spotify , YouTube
 
 > <sub> Pablo Escobar Colombian drug lord and leader of the Medellin Cartel which controlled as much as 80% international Cocaine. Helped community with building schools and sports fields, donating vast sums to charity, and constructing housing.(187) </sub>
 
-#### Is it morally acceptable for drug dealers to argue in favor of legalizing drugs on the basis that the right drug and dosage can cure certain illnesses?
+#### legalizing drugs because the right drug and dosage can cure certain illnesses, bullshit?
 
 >  Not all drugs are harmful; for instance, opium has legitimate medical applications.[208](https://www.unodc.org/unodc/en/data-and-analysis/bulletin/bulletin_1953-01-01_3_page008.html)
 
@@ -99,11 +99,11 @@ sell "fighting-inequality" content on Economical Corporations, Spotify , YouTube
 
 > <sub> 10. Exposure to inappropriate content and dangerous online challenges.[207](https://www.helpguide.org/articles/mental-health/social-media-and-mental-health.htm#:~:text=Since%20it's%20a%20relatively%20new,harm%2C%20and%20even%20suicidal%20thoughts.) </sub>
 
-#### Can Instagram activists justify their use of social media by claiming that it is not entirely harmful, and that people are responsible for managing their own usage?
+#### social Media is not entirely harmful, people are responsible for managing their own usage, bullshit?
 
 > Is it a valid argument for creators on OnlyFans to claim that individuals are responsible for their own porn addiction, and that consumers must be aware of what they are consuming?
 
-#### Is it socially and morally acceptable that an OnlyFans star earns 270 times more than a nursing assistant who makes approximately 1300€ per month? (1)(4)(5)
+#### Is it socially and morally acceptable that an OnlyFans star earns 270 times more than a nursing assistant who makes ~ 1300€ per month? (1)(4)(5)
 
 > <sub> 1. The content produced on OnlyFans is considered pornographic, and such activity is deemed harmful to society (28)(3). </sub>
 
