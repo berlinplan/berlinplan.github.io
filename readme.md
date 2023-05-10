@@ -66,7 +66,7 @@ fighting Against inequality while benefiting & generating inequality: bullshit?
 **Activism in social media** Get maximum attention for your Instagram activism with these top hashtags: (78)
 > <sub> #activism (48%), #activist (8%), #blacklivesmatter (6%), #feminism (5%), #humanrights (5%), #equality (5%), #socialjustice (5%), #love (4%), #change (4%), and #nonprofit (4%) #climatechange, #vegan, #peace, #women, #freedom, #lgbt, #support, #pride, #mentalhealth, #community, #change, #lgbtq, #charity, #govegan, #awareness, #bodypositivity, #WomensMarch, #YouAintNoMuslimBruv, and #MeToo. </sub>
 
-sell "fighting-inequality" content on Economical Corporations, Spotify , YouTube, Google, Instagram, Facebook, Amazon, Twitter, TikTok, and TV ? 
+<sub> sell "Anti-inequality" content on Economical Corporations Platforms, Spotify , YouTube, Google, Instagram, Facebook, Amazon, Twitter, TikTok, and TV, Bullshit? 
 
 > <sub> write a book on inequality, publish it on Amazon, obtain 5-star reviews (each ~4€ in Telegram: "Amazon review DE,Amazon Produkttester, Amazon De tester 2") make it bestseller due to The Matthew Effect, which describes a social pattern characterized by initial advantages that lead to subsequent advantages, resulting in an increasing gap between those who possess resources and those who lack them. (141) </sub>
 
