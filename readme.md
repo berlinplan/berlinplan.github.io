@@ -45,7 +45,7 @@ sell "fighting-inequality" content on Economical Corporations, Spotify , YouTube
 
 ## are e-cars good for environment or bullshit for Environment?
 
-> e-cars increase inequality, they require ten times as many chips as petrol or diesel. USA passed the Chips Act to restrict the use of US technology in producing semiconductors. Technology producers prioritize profit, leading to poorer countries importing the technology. This creates a cycle of wealth inequality, where the rich get richer and the poor get poorer.(139,140)
+> e-cars require ten times as many chips as petrol or diesel. Joe Biden passed the Chips Act to restrict the use of US technology in producing semiconductors. Technology producers prioritize profit, leading to poorer countries importing the technology. This creates a cycle of wealth inequality, where the rich get richer and the poor get poorer. E-cars increase inequality(139,140)
 
 > <sub> While most 3rd-world countries have no roads, How much do luxury self Pilot e-cars, NASA space travel, or Hi-Tech super yachts contribute to the well-being of their citizens? </sub>
 
