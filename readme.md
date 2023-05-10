@@ -367,6 +367,10 @@ People’s taxes finance the executive, legislative, and judiciary of modern soc
 
 > People with similar points of view tend to follow, share, and comment on each other’s posts. Discussion of racial attitude items with others having similar attitudes significantly increased the gap between high- and low-prejudice groups. Based on that, extremists who meet and interact with each other in a place get even more extremist, which can raise the gap of parallel societies. (114,115,116)
 
+#### What are the benefits of cultural dialogue within a society?
+
+> The exchange of ideas and debates lead to more polarization, as stated before.
+
 #### Can multiculturalism contribute to international inequality?
 
 > <sub> Multiculturalism is essential for the survival of psychopathic economies and has huge economic benefits. </sub>
@@ -387,7 +391,7 @@ People’s taxes finance the executive, legislative, and judiciary of modern soc
 
 > Psychopathic economies benefit from multiculturalism despite its increase in polarization and inequality.
 
-### Integration of migrants has failed, bullshit? 
+## Integration of migrants has failed, bullshit? 
 
 > Sweden: “Integration of migrants has failed” (166)
 
@@ -405,7 +409,7 @@ People’s taxes finance the executive, legislative, and judiciary of modern soc
 
 <sub> Imagine there were no economic differences between living and working in a 3rd-world  & an industrial country, would anyone be a refugee anymore? </sub>
 
-a Migrant,who leave his country Against social  & Religious Principal, to endorse a more Psychopathic System which perpetuates inequality, is fully psychopathegriert.
+> while migrants reject the traditions of people in a psychopathic system, which led populations, cultures, and values of their countries be vanished, a migrant, who leave his country Against social  & Religious Principal, to endorse a more Psychopathic System which perpetuates inequality, is fully psychopathegriert. (186)
 
 #### why Economy prefer the new psychopathegrated population instead of old population? 
 
@@ -418,17 +422,6 @@ The UK’s Indian, Pakistani, and Asian population surprised London by voting pr
 > euroscepticism within the British South Asian population was stronger than previously anticipated.(197) 
 
 > Iranian migrants organizing protests outside Iran to call for stricter sanctions against Iran. (221)
-
-
-#### Why do migrants reject the traditions of people in a psychopathic system?
-
-> while populations, cultures, and values of people in industrial systems are disappearing, why should one follow the path of a vanished Generation? (186)
-
-#### What are the benefits of cultural dialogue within a society?
-
-> The exchange of ideas and debates lead to more polarization, as stated before.
-
-
 
 #### How can cultural inspiration be achieved?
 
