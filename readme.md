@@ -328,9 +328,9 @@ why consumption culture and social Media leads to nuclear disaster?
 
 > <sub> since non-hierarchical companies are more sustainable for the world and environment, society may vote lower taxes for them.
 
-> <sub> Embracing egoism, self-interest, and increased earnings fosters greater competition, productivity, and sustainability. </sub>
+ <sub> Embracing **Egoism**, self-interest, and increased earnings fosters greater competition, productivity, and sustainability. </sub>
 
-#### Why is egoism considered the most effective solution?
+## How does the lack of respect for human egoism contribute to communism and laziness?
 
  <sub> *Authentic egoists:* </sub>
 
