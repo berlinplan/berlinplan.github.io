@@ -1,6 +1,6 @@
 # Berlinplan.com
 
-<sub> **Please think about following inquiries, considering the *gray texts* as supplementary information** </sub> 
+<sub> Please think about following inquiries, considering the *gray texts* as supplementary information </sub> 
 
 ### smarter smartphones, the cure for cancer, and the elimination of hunger in Africa if Slavery still presisted?
 
