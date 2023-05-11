@@ -469,7 +469,7 @@ Clear values and non-hierarchical structures (equality) in Ideological Groups ve
 
 <sub> **Creating the first intercontinental countries?** </sub>
 
-> <sub> Buddhist society in Asia and two South American societies could unite to form a country if they share the same values </sub>
+> <sub> With a shared set of values, Buddhist societies in Asia and South America can unite and create a unified nation. </sub>
 
 ## why Oversocieties are necessary?
 
