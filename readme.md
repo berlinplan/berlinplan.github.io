@@ -430,7 +430,7 @@ The UK’s Indian, Pakistani, and Asian population surprised London by voting pr
 
 > <sub> claim to Respect World Peace, while Start war for bring democracy in other countries.  
 
-## Sacrify Yourself for a psychopath Leaders, bullshit?
+## Sacrify Yourself for Psychopath Leaders, bullshit?
 
 #### In modern societies, are people likely to resist and fight in the event of a War attack?
 
@@ -451,17 +451,15 @@ The UK’s Indian, Pakistani, and Asian population surprised London by voting pr
 
 Clear values and non-hierarchical structures (equality) in Ideological Groups versus Pathocratic armies with double Morals.
 
-#### having no defined values and act Moral, bullshit?
+### having no defined values and act Moral, bullshit?
 
 > morality: standards of behaviour; principles of right and wrong. (190)
 
 > Absence of clear values hinders moral acts, enabling corruption and eroding societal morality in psychopathic democracies.(122)
  
-#### Can the voting app be used to prevent moral collapse?
+#### How to prevent the moral collapse and edtablish a Society ?
 
-> Can a sector where each group defines its values bring an end to institutionalized religion and eliminate religious leaders?
-
-<sub> **Can societies be established again?** </sub>
+> Can a sector in the Voting app where each group defines its values bring an end to institutionalized religion and eliminate religious leaders?
 
 > <sub> Individuals who share similar values, such as Buddhists, Hindus, Christians, Muslims, atheists, and Western values, can form a group.</sub>
 
@@ -469,7 +467,7 @@ Clear values and non-hierarchical structures (equality) in Ideological Groups ve
 
 > <sub> With a shared set of values, Buddhist societies in Asia and South America can unite and create a unified nation. </sub>
 
-## why Oversocieties are necessary?
+## why is it necessary to create an Oversociety?
 
 > If society 1, 2, 3, Christian, Hindus, Chinese, Islamic, and Atheists have a common value of no nuclear bombs, then all societies must comply
 
@@ -477,7 +475,7 @@ Clear values and non-hierarchical structures (equality) in Ideological Groups ve
  
 > No priority is given to American, Western, Muslim, or African values to make decisions about the oversociety
 
-#### How can international inequality only be solved in Oversociety?
+#### Can nternational inequality be solved in Oversociety?
 
 > In the absence of corrupt politicians, all people have full power and can take action against a society that causes harm to others.
 
