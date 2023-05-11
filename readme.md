@@ -227,7 +227,7 @@ why consumption culture and social Media leads to nuclear disaster?
 
 > <sub> A psychopath can not be prevented from obtaining power, As There is no reliable test to identify a psychopath. (82) </sub>
  
-#### Can hierarchy-free systems be implemented despite the challenge of identifying psychopaths?
+#### Should non-hierarchical systems be adopted due to the challenge of identifying psychopaths?
 
 > <sub> wer mit dem Teufel essen will, braucht einen langen Löffel (69) He who sups with the devil should have a long spoon (70) <sub>
 
