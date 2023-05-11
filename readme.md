@@ -440,6 +440,9 @@ The UK’s Indian, Pakistani, and Asian population surprised London by voting pr
 
 > <sub> establish heaviest sanctions against countries for abusing human rights, while maintaining strong ties with biggest Violators of Human rights in the World. (107,108,153) </sub>
 
+> <sub> claim to Respect World Peace, while Start war for bring democracy in other countries.  
+
+## Why nobody sacrifices themselves for a psychopath Leaders? 
 
 #### In modern societies, are people likely to resist and fight in the event of a War attack?
 
