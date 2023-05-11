@@ -442,7 +442,7 @@ The UK’s Indian, Pakistani, and Asian population surprised London by voting pr
 
 > <sub> claim to Respect World Peace, while Start war for bring democracy in other countries.  
 
-## Why nobody sacrifices themselves for a psychopath Leaders? 
+## Sacrify Yourself for a psychopath Leaders, bullshit?
 
 #### In modern societies, are people likely to resist and fight in the event of a War attack?
 
