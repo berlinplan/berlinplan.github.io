@@ -814,9 +814,7 @@ In his proposal, Boris Palmer suggested that asylum seekers must work, social be
 
 #### Is it possible for a group of people to collectively brainstorm strategies for creating a public utility app?
 
-A Group for collaborate and devise strategies for developing an app that serves the public's needs, 
-
-*Must be:*
+A Group for collaborate and devise strategies for developing an app that serves the public's needs,*Must be:*
 
 > A boardless association, without proprietorship, psychopathical and hierarchical Structures, and without attractive Positions for psychopaths.
 
@@ -824,9 +822,9 @@ A Group for collaborate and devise strategies for developing an app that serves 
 
 > A group which has only two primary objectives: 
 
--<sub> first, to devise strategies for establishing a non-psychopathic platform for conducting initial societal app- voting; </sub>
+> <sub> first, to devise strategies for establishing a non-psychopathic platform for conducting initial societal app- voting; </sub>
 
--<sub> second, to make decisions regarding this website's content, including questions and methods for engaging and mobilizing individuals. </sub>
+> <sub> second, to make decisions regarding this website's content, including questions and methods for engaging and mobilizing individuals. </sub>
 
 ## Homo homini lupus, "A man is a wolf to another man,"?
 
@@ -840,23 +838,31 @@ A Group for collaborate and devise strategies for developing an app that serves 
 
 #### Why did Germany switch off its nuclear power plants ?
 
-> worrines after Fukushima accident[206](https://www.bfs.de/DE/themen/ion/notfallschutz/notfall/fukushima/unfall.html) > ethically unacceptable [205](https://www.deutschlandfunk.de/atomenergie-ist-per-se-ethisch-nicht-vertretbar-100.html) > awareness [204](https://www.greenpeace.de/klimaschutz/energiewende/atomausstieg#:~:text=Am%20Samstag%2C%2015.,Der%20Atomausstieg%20ist%20vollzogen.)
+> <sub> ethically unacceptable [205](https://www.deutschlandfunk.de/atomenergie-ist-per-se-ethisch-nicht-vertretbar-100.html) </sub>
+
+> <sub> worries after Fukushima accident[206](https://www.bfs.de/DE/themen/ion/notfallschutz/notfall/fukushima/unfall.html) </sub>
+
+> <sub> awareness [204](https://www.greenpeace.de/klimaschutz/energiewende/atomausstieg#:~:text=Am%20Samstag%2C%2015.,Der%20Atomausstieg%20ist%20vollzogen) </sub>
+
+## send an Email if you want: 
+
+> Participate and collaborate to brainstorm strategies for developing a Voting app. 
+
+<sub> Once the volunteer count reaches 150, you will be provided with instructions for participation via WhatsApp, Telegram, email, or other suitable means. </sub>
+
+> To share your ideas or suggestions for creating the initial groups for the voting platform.
+
+> changing this page's content.
 
 
-## You think Human is a Wolf that can think and avoid deasaster? 
 
-> To share your ideas or suggestions for creating the initial groups for the voting platform or changing the page's content, please send an email to the individual who introduced this page to you. The introducer will then provide you with instructions on how to participate.
+## How to spread this content correct? 
 
+publishing this content on TV, social media, or any other psychopathic Platform is Moraly wrong, unless (Over)Society determines otherwise.
 
-Solution for spread : 
-
-Alms of science is publishing it.(200)
-This book is free.
-But the work of publish can be compensated. 
-any body can Create a Website and copy this content. Go to street and sugesst this content to people in order of the Group . Any body can  get compensated for His work.
+Anyone can create a website, distribute this content, create Group and potentially be compensated for their work. people's Groups can merge in the future. 
  
  
- ------------
 
 
 Are social Media Platforms one person based, to get the most Profit?
@@ -866,27 +872,11 @@ What would you call someone who supports the main company through their presence
 The more User a Platform has, the more profitable it becomes (31) Instagram increase economic inequality (32) Instagram, google and other Companies has to Support US sanction on Countries like Iran etc. (33) over 80% Intelligent Students from Top Iranian University in 3rd World Brain Drain to big Concerns in West (34)
 
 
+#### Alms of science is its distribution (200)
+This book is free.
+
+## Did you get this book on the street? You can consider sending a compensation amount to the effort of the person who gave it to you.
 
 
 
- -pay 10/20€ per year for a Website to a concern Make the World more inequal. As all other ways has more damage, this is the Moraly Better instead of Create Money making Youtube Instagram etc. 
-
-If the society in Future votes that having a Website is the highest damage Compare to non psychopathic Plattforms available in Future Then this Website Would be immoral. 
-
-
-Compensation calculation : 
- 
-8 hours approach work Daily (10 min/ Person.)
-1 Day => 48 people approached
-
-If 1 per Day Would pay. 
-------
-if you got this book on thr street 
-
-For each book 100€ is needed to to get the Minimum wage of 12,5€ per hour. 
-
-
-As this is too High for Most of society. 20€ Would be considered a Price for the work Done. 
-
-For the work if you think it was usefull. You can compensate the work of Person that gave it to you by sending 20€ on following ways, or contact for more ways. 
-
+Calculating Compensation: Taking into account 8 hours of approach work per day (with 10 minutes per person) and a total of 48 people approached, if one person pays per day, the minimum wage of €12.5 per hour would require €100 for each book. However, considering the affordability of the majority of society, a more suitable price for the effort would be €20.
