@@ -227,11 +227,11 @@ why consumption culture and social Media leads to nuclear disaster?
 
 > <sub> A psychopath can not be prevented from obtaining power, As There is no reliable test to identify a psychopath. (82) </sub>
  
-#### Is it possible to create systems without hierarchies since we can’t identify psychopaths?
+#### Can hierarchy-free systems be implemented despite the challenge of identifying psychopaths?
 
 > <sub> wer mit dem Teufel essen will, braucht einen langen Löffel (69) He who sups with the devil should have a long spoon (70) <sub>
 
-#### Could a simple voting app be the solution to the 2500-year-old psychopathic problem of democracy?
+#### Could the solution to the 2500-year-old problem of psychopathy in democracy lie in the implementation of a simple voting app?
 
 <sub> New smartphones allow for complicated verification processes for online banking or exchange platforms, such as fingerprint and face scans, making it possible to transfer huge amounts of money.(72) </sub>
 
