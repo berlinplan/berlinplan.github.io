@@ -29,7 +29,7 @@
 
 ##  blocking streets and increase polarization to solve environmental crisis, bullshit? 
 
-> block the streets and making Video for Instagram and fight for Power Positions in political System, will solve Environmental Problems ?
+> Can street blockades for Instagram videos and power struggles within the political system effectively address environmental issues?
 
 or
 
