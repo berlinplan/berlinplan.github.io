@@ -189,13 +189,13 @@ why consumption culture and social Media leads to nuclear disaster?
 
 > In 2013, Iran's religious leader Khamenei prohibited the development and deployment of nuclear weapons under Islamic law by issuing an irrevocable Fatwa, Following this, Mahmoud Ahmadinejad, who strongly supported Iran's nuclear program, has been disqualified from all Iranian elections since then. (154,162,163,164,178)
 
-#### is a Violent methods, the only effective strategy against inequality?
+#### Are violent tactics the sole effective means to effectively tackle inequality?
 
 > global inequality has been persisted since 1960(138)
 
 > could the idea of granting voting Power to all and removing psychopathic Structures be an alternative?
 
-## Improve democracy prohibits Atomic war ?
+## Improving Democracy, Avoiding Nuclear War?
 
 > <sub> Democracy has been the best political system from 508 BCE. </sub>
 
