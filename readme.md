@@ -459,10 +459,9 @@ The UK’s Indian, Pakistani, and Asian population surprised London by voting pr
 **Despite martial law 8,2 milions have fled Ukraine, What would be the number of Ukrainians leaving the country if martial law was not in place?**
 
 
-## Why ideological groups like IRGC, ISIS and Taliban outperform modern armies?
+## Why ideological groups like IRGC, ISIS and Al-Qaida outperform modern armies?
 
-Clear values and non-hierarchical structures (equality) in Ideological Groups versus Pathocratic armies which double Morals.
-
+Clear values and non-hierarchical structures (equality) in Ideological Groups versus Pathocratic armies with double Morals.
 
 #### Can a moral act be performed without clear values?
 
@@ -519,9 +518,6 @@ The merging of two societies occurs when they have the same values.
 > Would Muslims take inspiration from Christians who have healthier babies due to not marrying their cousins?
 
 > Can Christians be inspired by Muslims to reduce alcohol consumption and have more stable relationships?
-
-
-
 
 
 ### Is torture wrong?
