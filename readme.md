@@ -463,14 +463,11 @@ The UK’s Indian, Pakistani, and Asian population surprised London by voting pr
 
 Clear values and non-hierarchical structures (equality) in Ideological Groups versus Pathocratic armies with double Morals.
 
-#### Can a moral act be performed without clear values?
+#### Why having no defined values lead to moral collapse?
 
-morality: standards of behaviour; principles of right and wrong. (190)
+> morality: standards of behaviour; principles of right and wrong. (190)
 
-
-#### Does having no defined values lead to moral collapse?
-
-> Psychopathic democracies lead to corruption, which destroys the moral fabric of society. (122)
+> Absence of clear values hinders moral acts, enabling corruption and eroding societal morality in psychopathic democracies.(122)
  
 #### Can the voting app be used to prevent moral collapse?
 
