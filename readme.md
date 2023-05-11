@@ -352,9 +352,17 @@ why consumption culture and social Media leads to nuclear disaster?
 
 > People with similar points of view tend to follow, share, and comment on each other’s posts. Discussion of racial attitude items with others having similar attitudes significantly increased the gap between high- and low-prejudice groups. Based on that, extremists who meet and interact with each other in a place get even more extremist, which can raise the gap of parallel societies. (114,115,116)
 
-#### What are the benefits of cultural dialogue within a society?
+#### Why Cultural dialogue ends in tribalism?
 
-> The exchange of ideas and debates lead to more polarization, as stated before.
+> The exchange of ideas and debates lead to more polarization.
+
+> The decrease in the percentage of people who take friends or marry someone with different political viewpoints reflects how social media has made the atmosphere so polarizing.
+
+> Devout religious belief or observance is not a predictor of extremism. However, studies show that support for terrorism in majority Muslim countries is related to how often you pray in a mosque, not how often you pray or how devout you are about food prohibitions. The same is also true of right-wing Jewish extremists in Israel.
+
+> Nationalism and tolerance for autocratic leaders are rising all around the world most likely as a reaction to globalization.
+ 
+> Research suggests that it’s bad for everyone’s well-being when the rich don’t have contact with the poor or the poor with the middle class. (211,212,213)
 
 #### Can multiculturalism contribute to international inequality?
 
@@ -421,16 +429,6 @@ The UK’s Indian, Pakistani, and Asian population surprised London by voting pr
 #### What led countries like Russia, Turkey, China, Iran, Japan, etc. to adopt Western-style reforms?
 
 > <sub> Comparisons are a normal part of human cognition and can be good for the self-improvement process.(185) <sub>
-
-#### How is tribalism fueled by polarization?
-
-> The decrease in the percentage of people who take friends or marry someone with different political viewpoints reflects how social media has made the atmosphere so polarizing.
-
-> Devout religious belief or observance is not a predictor of extremism. However, studies show that support for terrorism in majority Muslim countries is related to how often you pray in a mosque, not how often you pray or how devout you are about food prohibitions. The same is also true of right-wing Jewish extremists in Israel.
-
-> Nationalism and tolerance for autocratic leaders are rising all around the world most likely as a reaction to globalization.
- 
-> Research suggests that it’s bad for everyone’s well-being when the rich don’t have contact with the poor or the poor with the middle class. (211,212,213)
 
 ## Calling residents of Germany, Netherlands, etc **"a Society"**, bullshit?
 
