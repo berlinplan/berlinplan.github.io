@@ -574,7 +574,17 @@ The app aims to resolve the following dilemmas as examples:
 > - Mean : kill thousends, Atom bomb Hiroshima? 
 > - app
 --------------
- 
+#### a skinny professional boxer approach a random passer-by on the street and, after obtaining his consent, beat him into a coma, moraly acceptable?
+
+#### What is wrong with Debatte-Culture? 
+
+> Critiques of debate: Sophistry fallacy, polarization, conversation, and speech are trainable skills, which involve the brain's hypertrophy and may lead to potential bias.(192)
+
+## Go viral , instead of Writing a free book?
+
+train your brain in different topics, ask unprepared individuals on the street controversial questions, conduct cast interviews and debates, edit/cut videos as desired, aim for viral fame on platforms like YouTube, TikTok, and Instagram, polarize society, and make money with the intention of **reducing inequality**?
+
+
 ## How to stop the Islamization of Europe?
 
 > Mohammed ranked as the most popular name for baby boys in Berlin in 2022(225).Sweden could have a Muslim population of 31% by 2050, while Germany's could be 20%, and in big cities such as Berlin, Düsseldorf, or Köln, this number could rise to 60%. It's possible that the concept of Islamic Sharia could gain traction in Berlin as a reflection of the growing Muslim population. This growth in Islam is not limited to Europe, as it is currently the fastest-growing religion in India, the USA, China, and Sub-Saharan countries. (127,128,129,130)
