@@ -243,6 +243,8 @@ why consumption culture and social Media leads to nuclear disaster?
 
 #### Is a step-by-step reduction and replacement of the current psychopathic structure feasible?
 
+> Removing hierarchies is essential for mitigating inequality.
+
 > Existing democracies can gradually integrate an anti-psychopathic app without the need for revolutionary change. A beta or pilot project can be tested in a village of 100 people.
 
 #### What are the benefits of having money in your own wallet instead of letting psychopaths decide?
