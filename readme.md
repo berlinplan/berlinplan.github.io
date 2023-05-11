@@ -1,7 +1,7 @@
 # Berlinplan.com
 ## freedom sustainability terror
 
-### Would the smartphones be smarter, Cancer and Hunger in Africa already cured by Hi-Tech if slavery were to persist?
+### smarter smartphones, the cure for cancer, and the elimination of hunger in Africa if Slavery still presisted?
 
 #### Benefits of slavery for World Development: (224)
 
