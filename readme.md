@@ -62,7 +62,7 @@ increase inequality through production, but employ on social media to address so
 
 > Support me to get Advertisements > consumption culture > Environment damages > World inequality. 
 
-fighting Against inequality while benefiting & generating inequality: bullshit?
+fighting inequality while benefiting & generating inequality, bullshit?
 
 **Activism in social media** Get maximum attention for your Instagram activism with these top hashtags: (78)
 > <sub> #activism (48%), #activist (8%), #blacklivesmatter (6%), #feminism (5%), #humanrights (5%), #equality (5%), #socialjustice (5%), #love (4%), #change (4%), and #nonprofit (4%) #climatechange, #vegan, #peace, #women, #freedom, #lgbt, #support, #pride, #mentalhealth, #community, #change, #lgbtq, #charity, #govegan, #awareness, #bodypositivity, #WomensMarch, #YouAintNoMuslimBruv, and #MeToo. </sub>
@@ -119,7 +119,7 @@ fighting Against inequality while benefiting & generating inequality: bullshit?
 
 > <sub> 3. OnlyFans has been associated with pornography addiction and has been cited as a factor in a significant proportion of divorces, while top earners like Iggy Azalea can make hundreds of thousands of dollars in a matter of hours, creating a massive income gap between them and the average worker(2)(5)(6)(7)(29). </sub>
 
-#### Can drug dealing be a justifiable means for self-empowerment, emancipation, and financial independence for underprivileged social groups?
+#### drug dealing is a justifiable means for self-empowerment, emancipation, and financial independence for underprivileged social groups, bullshit?
 
 > <sub> “The cultural scientist and feminist: Madita Oeming sees **Onlyfans** as a **new opportunity** for **self-empowerment**. Women and men on Onlyfans are independent of studios or producers and have full control over their content and prices. And there is also **emancipatory** potential in profit. "Making that amount of money on your own can also save you from **financial dependency and toxic relationships**."(9) </sub>
 
@@ -195,11 +195,11 @@ why consumption culture and social Media leads to nuclear disaster?
 
 > could the idea of granting voting Power to all and removing psychopathic Structures be an alternative?
 
-## Improve democracy prohibit Atomic war ?
+## Improve democracy prohibits Atomic war ?
 
 > <sub> Democracy has been the best political system from 508 BCE. </sub>
 
-> <sub> despite lot of good Advantages, Democracy has some disadvantages: debate culture polarizes society, development of psychopaths, corruption, misuse of equality, no protection for the common man, divide and rule methods, unfair businesses, addiction to power, and media misuse. (63,65) </sub>
+> <sub> Despite lot of good Advantages, Democracy has some disadvantages: debate culture polarizes society, development of psychopaths, corruption, misuse of equality, no protection for the common man, divide and rule methods, unfair businesses, addiction to power, and media misuse. (63,65) </sub>
 
 > <sub> Social hierarchies exist in democracies </sub>
 
