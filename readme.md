@@ -475,7 +475,7 @@ Clear values and non-hierarchical structures (equality) in Ideological Groups ve
  
 > No priority is given to American, Western, Muslim, or African values to make decisions about the oversociety
 
-#### Can nternational inequality be solved in Oversociety?
+#### Can international inequality be solved in Oversociety?
 
 > In the absence of corrupt politicians, all people have full power and can take action against a society that causes harm to others.
 
@@ -514,7 +514,9 @@ The merging of two societies occurs when they have the same values.
 
 > <sub> Comparisons are a normal part of human cognition and can be good for the self-improvement process.(185) <sub>
 
+#### Can the Voting app revolutionize ethics by solving problems for the first time in human history?
 
+> Resolving the ethical dilemma of torture or allowing a bomb to explode can only be done by society, which may approve of limited use of torture but not prolonged use.
 
 ### Is torture wrong?
 
@@ -525,11 +527,6 @@ Is it morally acceptable to use barbaric torture methods with an 80% success rat
 > While Kant's Golden Rule forbids torture, Consequentialism considers it ethical if the result is favorable. Psychopaths often justify their actions by claiming that the outcome will be good.
 
 > Religious and political psychopaths suggest seek moral justification from leaders or judges.
-
-
-#### Can the Voting app revolutionize ethics by solving problems for the first time in human history?
-
-> Resolving the ethical dilemma of torture or allowing a bomb to explode can only be done by society, which may approve of limited use of torture but not prolonged use.
 
 #### does end justify the means?
 
