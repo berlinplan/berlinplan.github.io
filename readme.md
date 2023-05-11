@@ -1,5 +1,6 @@
 # Berlinplan.com
-## freedom sustainability terror
+
+<sub> answer following questions, texts below should be Seen as auxillary. </sub>
 
 ### smarter smartphones, the cure for cancer, and the elimination of hunger in Africa if Slavery still presisted?
 
