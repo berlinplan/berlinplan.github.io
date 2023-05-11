@@ -416,20 +416,6 @@ The UK’s Indian, Pakistani, and Asian population surprised London by voting pr
 
 > Iranian migrants organizing protests outside Iran to call for stricter sanctions against Iran. (221)
 
-#### How can cultural inspiration be achieved?
-
-> <sub> Atatürk’s rule saw the implementation of Westernizing reforms across political, legal, religious, cultural, social, and economic policies.(182) </sub>
-
-> <sub> In 1698, Tsar Peter I of Russia instituted a beard tax as part of an effort to bring Russian society in line with Western European models.(181) </sub>
-
-> <sub> One of many Westernizing actions of Iranian Reza Shah was forcing men to wear Western suits and hats.(183)  </sub>
-
-> <sub> Japan Early Westernization & Modernization.(184) </sub>
-
-#### What led countries like Russia, Turkey, China, Iran, Japan, etc. to adopt Western-style reforms?
-
-> <sub> Comparisons are a normal part of human cognition and can be good for the self-improvement process.(185) <sub>
-
 ## Calling residents of Germany, Netherlands, etc **"a Society"**, bullshit?
 
 > <sub> SOCIETY: people in general thought of as living together in organized communities with **shared** laws, traditions, and **values** (83) Cooperation is vital for human survival as it enables us to thrive in large groups. By living collectively, we can effectively collaborate and distribute tasks based on individual strengths, resulting in improved efficiency and productivity. </sub>
@@ -463,7 +449,7 @@ The UK’s Indian, Pakistani, and Asian population surprised London by voting pr
 
 Clear values and non-hierarchical structures (equality) in Ideological Groups versus Pathocratic armies with double Morals.
 
-#### Why having no defined values lead to moral collapse?
+#### having no defined values and act Moral, bullshit?
 
 > morality: standards of behaviour; principles of right and wrong. (190)
 
@@ -508,7 +494,7 @@ Clear values and non-hierarchical structures (equality) in Ideological Groups ve
  
 The merging of two societies occurs when they have the same values.
 
-**could it lead to first cultural inspiration?**
+**could it lead to first sensefull cultural inspiration?**
 
 > Would other societies adopt the good values of a high-performing Buddhist society?
 
@@ -516,6 +502,19 @@ The merging of two societies occurs when they have the same values.
 
 > Can Christians be inspired by Muslims to reduce alcohol consumption and have more stable relationships?
 
+#### How cultural inspiration be achieved?
+
+> <sub> Atatürk’s rule saw the implementation of Westernizing reforms across political, legal, religious, cultural, social, and economic policies.(182) </sub>
+
+> <sub> In 1698, Tsar Peter I of Russia instituted a beard tax as part of an effort to bring Russian society in line with Western European models.(181) </sub>
+
+> <sub> One of many Westernizing actions of Iranian Reza Shah was forcing men to wear Western suits and hats.(183)  </sub>
+
+> <sub> Japan Early Westernization & Modernization.(184) </sub>
+
+#### What led countries like Russia, Turkey, China, Iran, Japan, etc. to adopt Western-style reforms?
+
+> <sub> Comparisons are a normal part of human cognition and can be good for the self-improvement process.(185) <sub>
 
 ### Is torture wrong?
 
