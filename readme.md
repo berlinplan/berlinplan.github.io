@@ -854,26 +854,15 @@ A Group for collaborate and devise strategies for developing an app that serves 
 
 > changing this page's content.
 
+## What is the correct way to distribute this content?
 
-
-## How to spread this content correct? 
-
-publishing this content on TV, social media, or any other psychopathic Platform is Moraly wrong, unless (Over)Society determines otherwise.
+Posting this content on TV, social media, or other psychopathic platforms and profiting from it or gaining notoriety is morally wrong unless (Over)society determines otherwise.
 
 Anyone can create a website, distribute this content, create Group and potentially be compensated for their work. people's Groups can merge in the future. 
  
- 
-
-
-Are social Media Platforms one person based, to get the most Profit?
- 
-
-What would you call someone who supports the main company through their presence on Instagram, YouTube, Amazon etc. and ensures more inequity in the world and at the same time benefits from activism for the environment, sustainability, moral values and PEACE?
-The more User a Platform has, the more profitable it becomes (31) Instagram increase economic inequality (32) Instagram, google and other Companies has to Support US sanction on Countries like Iran etc. (33) over 80% Intelligent Students from Top Iranian University in 3rd World Brain Drain to big Concerns in West (34)
-
-
 #### Alms of science is its distribution (200)
-This book is free.
+
+> This book is for free.
 
 ## Did you get this book on the street? 
 
@@ -886,3 +875,11 @@ You can consider sending a compensation amount to the effort of the person who g
 for other Methods contact by Email: 
 
 **Calculating Compensation:** Taking into account 8 hours of approach work per day (with 10 minutes per person) and a total of 48 people approached, if one person pays per day, the minimum wage of €12.5 per hour would require €100 for each book. However, considering the affordability of the majority of society, a more suitable price for the effort would be €20.
+
+
+Are social Media Platforms one person based, to get the most Profit?
+ 
+
+What would you call someone who supports the main company through their presence on Instagram, YouTube, Amazon etc. and ensures more inequity in the world and at the same time benefits from activism for the environment, sustainability, moral values and PEACE?
+The more User a Platform has, the more profitable it becomes (31) Instagram increase economic inequality (32) Instagram, google and other Companies has to Support US sanction on Countries like Iran etc. (33) over 80% Intelligent Students from Top Iranian University in 3rd World Brain Drain to big Concerns in West (34)
+
