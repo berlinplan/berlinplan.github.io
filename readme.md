@@ -536,7 +536,9 @@ It is moraly fine to torture if the society approve limited use of torture to ge
 
 #### use Psychopathic Platforms for Good Goals, moraly acceptable? 
 
-> Aka. The end justifies the means? (144)
+*Aka. The end justifies the means?* (144)
+
+for Illustration following Dilemmas will be resolved in app:
 
 
 > - End: save 1 life
