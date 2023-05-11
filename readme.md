@@ -772,12 +772,12 @@ The use of beauty operations, dating apps, pickup and alpha masculinity coaches,
 
 
 
-#### Why a Terrorist See innocent people living in a psychopathical System as enemy? 
+#### we are Killers in the eye of a Terrorist, why?
 
-Example 1  : In the event that a military force from another country mistakenly causes the loss of a person's family in their village in xxxistan, who bears responsibility for this tragic outcome?
-the bomb, the pilot, the airplane, the semiconductor manufacturer for the airplane company, the tool manufacturer for the semiconductor company, or even the doner kebab-seller who fed the workers at the tool company?
- 
-Example 2: When a psychopathic system enforces sanctions on a country and a company like Google complies, with YouTube being one of its subsidiaries, how much responsibility should be placed on a peace-loving YouTube video creator for contributing to the issue of inequality in the world?
+Doner-killer: If a person's family in xxxistan is tragically lost due to a military force's mistaken actions, who can be held accountable? Should it be the bomb, the pilot, the airplane, the semiconductor manufacturer, the tool manufacturer, or even the doner kebab-seller who supplied food to the tool company workers?
+
+
+Youtube-killer: When a psychopathic system imposes sanctions on a country and companies like Google, including YouTube, comply, how accountable should a peace-loving YouTube video creator be for their contribution to global inequality?
 
 High Tech.
 If societies Decide - they could Invest to Invest in Laboratories how - Technologies
