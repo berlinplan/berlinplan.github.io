@@ -70,18 +70,6 @@ fighting Against inequality while benefiting & generating inequality: bullshit?
 
 > <sub> write a book on inequality, publish it on Amazon, obtain 5-star reviews (each ~4€ in Telegram: "Amazon review DE,Amazon Produkttester, Amazon De tester 2") make it bestseller due to The Matthew Effect, which describes a social pattern characterized by initial advantages that lead to subsequent advantages, resulting in an increasing gap between those who possess resources and those who lack them. (141) </sub>
 
-#### Germany has decommissioned all of its nuclear power plants. [201] wonder Happens?
-
-> While ~70 Generations has lived over the past 2000 years, ~33000 Generations in Future have to manage nuclear waste[201](https://www.base.bund.de/DE/themen/kt/ausstieg-atomkraft/ausstieg_node.html)[202](https://answersingenesis.org/bible-timeline/genealogy/how-many-human-generations-are-there-from-adam-until-today/)
-
-> One generation harms 33,000 Generations, morally justifiable?
-
-> The decision to switch off nuclear power plants resulted in significant costs, power shortages, and economic losses for the people of Germany. [203](https://amp2.wiwo.de/unternehmen/energie/energiewende-der-wirtschaftliche-schaden-eines-schnellen-atomausstiegs/5154328.html)
-
-#### Why did Germany switch off its nuclear power plants despite other countries heavy investments in this technology?
-
-> worrines after Fukushima accident[206](https://www.bfs.de/DE/themen/ion/notfallschutz/notfall/fukushima/unfall.html) > ethically unacceptable [205](https://www.deutschlandfunk.de/atomenergie-ist-per-se-ethisch-nicht-vertretbar-100.html) > awareness [204](https://www.greenpeace.de/klimaschutz/energiewende/atomausstieg#:~:text=Am%20Samstag%2C%2015.,Der%20Atomausstieg%20ist%20vollzogen.)
-
 ## Lets drug dealers be free?
 
 > all societies prohibit drug dealers by law. 
@@ -808,6 +796,21 @@ To share your ideas or suggestions for creating the initial groups for the votin
 
 The group has two primary objectives: first, to devise strategies for establishing a non-psychopathic platform for conducting initial societal voting; and second, to make decisions regarding the website's content, including questions and methods for engaging and mobilizing individuals.
 
+## Human are bad, nothing good will work, bullshit? 
+
+### How can Wonder Happens?
+
+#### Germany has decommissioned all of its nuclear power plants. [201]
+
+> While ~70 Generations has lived over the past 2000 years, ~33000 Generations in Future have to manage nuclear waste[201](https://www.base.bund.de/DE/themen/kt/ausstieg-atomkraft/ausstieg_node.html)[202](https://answersingenesis.org/bible-timeline/genealogy/how-many-human-generations-are-there-from-adam-until-today/)
+
+> One generation harms 33,000 Generations, morally justifiable?
+
+> The decision to switch off nuclear power plants resulted in significant costs, power shortages, and economic losses for the people of Germany. [203](https://amp2.wiwo.de/unternehmen/energie/energiewende-der-wirtschaftliche-schaden-eines-schnellen-atomausstiegs/5154328.html)
+
+#### Why did Germany switch off its nuclear power plants despite other countries heavy investments in this technology?
+
+> worrines after Fukushima accident[206](https://www.bfs.de/DE/themen/ion/notfallschutz/notfall/fukushima/unfall.html) > ethically unacceptable [205](https://www.deutschlandfunk.de/atomenergie-ist-per-se-ethisch-nicht-vertretbar-100.html) > awareness [204](https://www.greenpeace.de/klimaschutz/energiewende/atomausstieg#:~:text=Am%20Samstag%2C%2015.,Der%20Atomausstieg%20ist%20vollzogen.)
 
 
 Solution for spread : 
