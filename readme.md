@@ -574,7 +574,7 @@ for Illustration following Dilemmas will be resolved in app:
  
 ## How to stop the Islamization of Europe?
 
-> Sweden could have a Muslim population of 31% by 2050, while Germany's could be 20%, and in big cities such as Berlin, Düsseldorf, or Köln, this number could rise to 60%. It's possible that the concept of Islamic Sharia could gain traction in Berlin as a reflection of the growing Muslim population. This growth in Islam is not limited to Europe, as it is currently the fastest-growing religion in India, the USA, China, and Sub-Saharan countries. (127,128,129,130)
+> Mohammed ranked as the most popular name for baby boys in Berlin in 2022(225).Sweden could have a Muslim population of 31% by 2050, while Germany's could be 20%, and in big cities such as Berlin, Düsseldorf, or Köln, this number could rise to 60%. It's possible that the concept of Islamic Sharia could gain traction in Berlin as a reflection of the growing Muslim population. This growth in Islam is not limited to Europe, as it is currently the fastest-growing religion in India, the USA, China, and Sub-Saharan countries. (127,128,129,130)
 
 #### How have big states attempted to curb the growth of Islam?
 
