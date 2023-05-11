@@ -875,8 +875,16 @@ The more User a Platform has, the more profitable it becomes (31) Instagram incr
 #### Alms of science is its distribution (200)
 This book is free.
 
-## Did you get this book on the street? You can consider sending a compensation amount to the effort of the person who gave it to you.
+## Did you get this book on the street? 
 
+You can consider sending a compensation amount to the effort of the person who gave it to you.
 
+#### IBAN: 
 
-Calculating Compensation: Taking into account 8 hours of approach work per day (with 10 minutes per person) and a total of 48 people approached, if one person pays per day, the minimum wage of €12.5 per hour would require €100 for each book. However, considering the affordability of the majority of society, a more suitable price for the effort would be €20.
+#### Paypal: 
+
+for other Methods contact by Email: 
+
+## Calculating Compensation: 
+
+Taking into account 8 hours of approach work per day (with 10 minutes per person) and a total of 48 people approached, if one person pays per day, the minimum wage of €12.5 per hour would require €100 for each book. However, considering the affordability of the majority of society, a more suitable price for the effort would be €20.
