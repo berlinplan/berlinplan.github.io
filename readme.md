@@ -346,7 +346,7 @@ why consumption culture and social Media leads to nuclear disaster?
 
 > <sub> 1. Approximately 30,000 fighters from at least 85 countries joined the Islamic State of Iraq and Syria (ISIS), which had very clear defined religious values. Around 6.6 million Syrians and 1.5 million Iraqis, as well as many from Lebanon, Jordan, etc., fled the area, with approximately 90% being young Muslim men. According to the Qur’an and hadith, fleeing from Jihad (war) is a greater sin and is considered the twenty-seventh sin. Additionally, the prophet of Islam said: “I disown every Muslim who settles among the mushrikeen” (Christians, Jews). (85,86,87,88,89,90,91) </sub>
 
-#### Can monopolies of people without any shared value be considered a society?
+#### Can mass of people, without any shared values be considered **a Society**?
 
 > <sub> 2. Over a million young Afghans have fled Afghanistan after the fall of the Afghan republic. Despite spending $145 billion on security forces and civilian government institutions over 20 years, the US and West were unable to prevent the fall of the Afghan republic as soon as US troops left. President Ashraf Ghani fled the capital city by helicopter to neighboring Uzbekistan just days after swearing never to leave and saying that he would die before abandoning his people (93,95) </sub>
 
