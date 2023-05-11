@@ -328,8 +328,6 @@ why consumption culture and social Media leads to nuclear disaster?
 
 > <sub> Could people vote in the political section to lower taxes for non-hierarchical companies since they are more sustainable for the world and environment? </sub>
 
-#### Why is it necessary to reduce hierarchy for a society to be equal?
-
 ## Calling residents of Germany, Netherlands, France **"society"**, bullshit?
 
 > <sub> SOCIETY: people in general thought of as living together in organized communities with **shared** laws, traditions, and **values** (83) Cooperation is vital for human survival as it enables us to thrive in large groups. By living collectively, we can effectively collaborate and distribute tasks based on individual strengths, resulting in improved efficiency and productivity. </sub>
