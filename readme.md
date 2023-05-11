@@ -854,6 +854,8 @@ A Group for collaborate and devise strategies for developing an app that serves 
 
 > changing this page's content.
 
+Email: theberlinplan@gmail.com
+
 ## What is the correct way to distribute this content?
 
 Posting this content on TV, social media, or other psychopathic platforms and profiting from it or gaining notoriety is morally wrong unless (Over)society determines otherwise.
@@ -862,9 +864,9 @@ Anyone can create a website, distribute this content, create Group and potential
  
 #### Alms of science is its distribution (200)
 
-> This book is for free.
+> This content is for free.
 
-## Did you get this book on the street? 
+## Did you get this Page on the street? 
 
 You can consider sending a compensation amount to the effort of the person who gave it to you.
 
