@@ -1,4 +1,4 @@
-# Berlinplan.com
+  # Berlinplan.com
 
 <sub> Please think about following inquiries, considering the *gray texts* as supplementary information </sub> 
 
@@ -318,11 +318,13 @@ why consumption culture and social Media leads to nuclear disaster?
 
 #### Is there a way to have a non-psychopathic economy without turning to communism?
 
-1. Can equal treatment of employees in a company affect quality, work ethic, effectiveness, and non-wasteful use of resources?
-2. Although communism has never worked, the most social system in the world (Germany) has the highest industry quality and production.
-3. Can a person own empires like Microsoft, Tesla, and Amazon if millionaires are correctly taxed for all damages caused by them (environmental, inequality damages, poor countries by brain drain, forced migrations, travel, and consumerism supported by advertisement)?
+> <sub> Can equal treatment of employees in a company affect quality, work ethic, effectiveness, and non-wasteful use of resources? </sub>
 
-#### Why an Economic sector in the voting app would be good?
+> <sub> Although communism has never worked, the most social system in the world (Germany) has the highest industry quality and production. </sub>
+
+> <sub> Can a person own empires like Microsoft, Tesla, and Amazon if millionaires are correctly taxed for all damages caused by them (environmental, inequality damages, poor countries by brain drain, forced migrations, travel, and consumerism supported by advertisement)? </sub>
+
+#### Why an Economic sector in the voting app is necessary?
 
 > <sub> Instead of fixed salaries, incentivizing individuals with a percentage of the losses and victories boosts motivation. to illustrate, each person receives 2% (~2000€) per month, but can earn additional shares through requests or online votes for exceptional performance. </sub>
 
