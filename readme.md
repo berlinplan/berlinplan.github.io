@@ -785,9 +785,6 @@ The use of beauty operations, dating apps, pickup and alpha masculinity coaches,
 - Profiteering and usury -> Crypto trading, forex, passive income, Invest Bank Money in Appartements (189)
 ---------
 
-
-## waiting for Psychopaths to remove psychopathic Structures, bullshit?
-
 #### would psychopathic Solutions solve the inequality caused by the psychopathic system?
 
 In his proposal, Boris Palmer suggested that asylum seekers must work, social benefits should be removed, and those who fail to follow the rules should be deported.(196)
@@ -797,20 +794,21 @@ In his proposal, Boris Palmer suggested that asylum seekers must work, social be
 -construct massive walls beyond Germany/EU borders.
 -Prevent the production of atomic bombs in marginalized societies.
 
+## Does it make sense to wait for psychopaths to create a simple Voting app?
 
-#### What defines an equitable non-psychopathic group?
+#### Is it possible for a group of people to collectively brainstorm strategies for creating a public utility app?
 
-> A boardless association: a group with no proprietorship, absence of hierarchy, and unattractiveness to psychopaths.
+A Group for collaborate and devise strategies for developing an app that serves the public's needs, 
 
-> A Group with no psychopathic Structures.
+*Must be:*
 
-#### how to explore sociopathic behavior?
+> A boardless association, without proprietorship, psychopathical and hierarchical Structures, and without attractive Positions for psychopaths.
 
-> Recognizing patterns such as the desire for popularity, pursuit of profit, claims of ownership, aspirations for celebrity status, public disclosure of identity, engagement in university lectures, YouTube presence
+> A Structure that nobody COULD have sociopathic behavior, desire for popularity, pursuit of profit, claims of ownership, aspirations for celebrity status, public disclosure of identity, engagement in university lectures, Social Media presence.
 
-To share your ideas or suggestions for creating the initial groups for the voting platform or changing the page's content, please send an email to the individual who introduced this page to you. The introducer will then provide you with instructions on how to participate.
-
-The group has two primary objectives: first, to devise strategies for establishing a non-psychopathic platform for conducting initial societal voting; and second, to make decisions regarding the website's content, including questions and methods for engaging and mobilizing individuals.
+> A group which has only two primary objectives: 
+-first, to devise strategies for establishing a non-psychopathic platform for conducting initial societal voting;
+-second, to make decisions regarding this website's content, including questions and methods for engaging and mobilizing individuals.
 
 ## Homo homini lupus, "A man is a wolf to another man,"?
 
@@ -825,6 +823,11 @@ The group has two primary objectives: first, to devise strategies for establishi
 #### Why did Germany switch off its nuclear power plants ?
 
 > worrines after Fukushima accident[206](https://www.bfs.de/DE/themen/ion/notfallschutz/notfall/fukushima/unfall.html) > ethically unacceptable [205](https://www.deutschlandfunk.de/atomenergie-ist-per-se-ethisch-nicht-vertretbar-100.html) > awareness [204](https://www.greenpeace.de/klimaschutz/energiewende/atomausstieg#:~:text=Am%20Samstag%2C%2015.,Der%20Atomausstieg%20ist%20vollzogen.)
+
+
+## You think Human is a Wolf that can think and avoid deasaster? 
+
+> To share your ideas or suggestions for creating the initial groups for the voting platform or changing the page's content, please send an email to the individual who introduced this page to you. The introducer will then provide you with instructions on how to participate.
 
 
 Solution for spread : 
