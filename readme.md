@@ -502,6 +502,10 @@ The merging of two societies occurs when they have the same values.
 
 #### How cultural inspiration Happened in history?
 
+> <sub> The cultural influences of Asia on the West are diverse. They include the introduction of mathematical zero and the binary code. (226) </sub>
+
+> <sub> The Western influences on East culture have been significant, particularly in the modern era including  food , Fashion , life style and governance. (227) </sub>
+
 > <sub> Atatürk’s rule saw the implementation of Westernizing reforms across political, legal, religious, cultural, social, and economic policies.(182) </sub>
 
 > <sub> In 1698, Tsar Peter I of Russia instituted a beard tax as part of an effort to bring Russian society in line with Western European models.(181) </sub>
@@ -510,7 +514,7 @@ The merging of two societies occurs when they have the same values.
 
 > <sub> Japan Early Westernization & Modernization.(184) </sub>
 
-#### What led countries like Russia, Turkey, China, Iran, Japan, etc. to adopt Western-style reforms?
+#### How do cultures influence and inspire one another?
 
 > <sub> Comparisons are a normal part of human cognition and can be good for the self-improvement process.(185) <sub>
 
@@ -538,8 +542,7 @@ It is moraly fine to torture if the society approve limited use of torture to ge
 
 *Aka. The end justifies the means?* (144)
 
-for Illustration following Dilemmas will be resolved in app:
-
+The app aims to resolve the following dilemmas as examples:
 
 > - End: save 1 life
 > - Mean: kill 1 
