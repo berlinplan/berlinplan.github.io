@@ -447,9 +447,9 @@ The UK’s Indian, Pakistani, and Asian population surprised London by voting pr
 **Despite martial law 8,2 milions have fled Ukraine, What would be the number of Ukrainians leaving the country if martial law was not in place?**
 
 
-## Why ideological groups like IRGC, ISIS and Al-Qaida outperform modern armies?
+## Why ideological groups like IRGC quds, ISIS and Al-Qaida outperform modern armies?
 
-Clear values and non-hierarchical structures (equality) in Ideological Groups versus Pathocratic armies with double Morals.
+> Clear values and non/low hierarchical structures in Ideological Groups versus Hierarchic Pathocratic classical armies with double Morals.
 
 ### having no defined values and act Moral, bullshit?
 
