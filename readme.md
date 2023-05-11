@@ -592,15 +592,13 @@ Youtube-killer: When a psychopathic system imposes sanctions on a country and co
 
 **Only with (Over)society's approval does high-tech become morally justifiable; otherwise, how does one differentiate between inequality-generating hi-tech and development founded on slavery?**
 
-
-
 # what is **Contradiction:**?
 
 >  Although breaking someone else's window is not morally acceptable, when faced with a situation where a dog is trapped inside a car with closed windows, breaking the window becomes the morally right choice to save the dog's life, as it inflicts the least amount of damage necessary, unlike damaging the wheels, breaking the entire car, or setting it on fire.(198)
 
-#### Is it ethically acceptable to create a website that inditectly contributes to inequality, despite aiming to solve global inequality issues for personal benefit?? 
+#### Is it ethically acceptable to create a website that inditectly contributes to inequality, despite aiming to solve global inequality issues for personal benefit?
 
-*Which behavior inflicts the least amount of damage necessary?*
+*Which behavior inflicts the least amount of necessary damage?*
 
 > creating controversial and polarizing content that goes viral on TV, YouTube, Instagram, and TikTok and enrich large corporations and increase the potential for personal wealth.
 
@@ -608,6 +606,7 @@ Youtube-killer: When a psychopathic system imposes sanctions on a country and co
 
 > contributing to inequality by Paying €2.78 per year for a domain to a Domain-seller Company.
 
+The morally correct behavior is the one that inflicts the least necessary harm, unless (Over)Society determines otherwise.
 
 ## How to stop the Islamization of Europe?
 
