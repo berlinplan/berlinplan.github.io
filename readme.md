@@ -322,9 +322,9 @@ why consumption culture and social Media leads to nuclear disaster?
 2. Although communism has never worked, the most social system in the world (Germany) has the highest industry quality and production.
 3. Can a person own empires like Microsoft, Tesla, and Amazon if millionaires are correctly taxed for all damages caused by them (environmental, inequality damages, poor countries by brain drain, forced migrations, travel, and consumerism supported by advertisement)?
 
-#### Would it be beneficial to have an economic sector in the voting app?
+#### Why an Economic sector in the voting app would be good?
 
-> <sub> higher Motivation ? Instead of fixed wages, each person receives a percentage of the loss and win. For example, each person gets 2% ~2000€ per month. If someone is a hard worker and profitable for the common fund, they can request more shares in the app or people can voluntarily vote to give them more percentage online. </sub>
+> <sub> Instead of fixed salaries, incentivizing individuals with a percentage of the losses and victories boosts motivation. For example, each person gets 2% ~2000€ per month. If someone is a hard worker and profitable for the common fund, they can request more shares in the app or people can voluntarily vote to give them more percentage online. </sub>
 
 > <sub> Everyone works for their own benefits. The harder they work, the more they earn.</sub>
 
