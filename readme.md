@@ -330,17 +330,19 @@ why consumption culture and social Media leads to nuclear disaster?
 
 > <sub> Embracing egoism, self-interest, and increased earnings fosters greater competition, productivity, and sustainability. </sub>
 
-#### Why is egoism considered the most effective solution? <sub> *Authentic egoists:* </sub>
+#### Why is egoism considered the most effective solution?
 
-> <sub> oppose global inequality due to their aversion to the possibility of a nuclear attack </sub>
+ <sub> *Authentic egoists:* </sub>
+
+> <sub> seek both the highest workplace equality and a commitment to fairness towards the world and the environment, enabling them to enjoy life to the fullest </sub>
 
 > <sub> prioritize equality as the only means to ensure long-term safety and cleanliness within societies, while preventing revolutions and theft. </sub>
 
-> <sub> avoid alcohol, cigarettes, promiscuity, pornography, social media, and environmental pollutants. </sub>
+> <sub> oppose global inequality due to their aversion to the possibility of a nuclear attack </sub>
 
-> <sub> dedicate themselves to sustainable values to achieve a stable family unit, eliminate the reliance on imported labor, and prevent the rise of psychopathic multiculturalism, parallel societies, inequality, and societal unrest. </sub>
+> <sub> uphold sustainable values, abstain from harmful substances and behaviors such as alcohol, cigarettes, promiscuity, pornography, and excessive social media usage, fostering a stable family unit. This, in turn, reduces dependence on imported labor, curbs the emergence of psychopathic multiculturalism and parallel societies, mitigates inequality, and prevents societal unrest. </sub>
 
-## Calling residents of Germany, Netherlands, France **"society"**, bullshit?
+## Calling residents of Germany, Netherlands, etc **"a Society"**, bullshit?
 
 > <sub> SOCIETY: people in general thought of as living together in organized communities with **shared** laws, traditions, and **values** (83) Cooperation is vital for human survival as it enables us to thrive in large groups. By living collectively, we can effectively collaborate and distribute tasks based on individual strengths, resulting in improved efficiency and productivity. </sub>
 
