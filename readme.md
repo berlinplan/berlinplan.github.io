@@ -81,7 +81,7 @@ fighting inequality while benefiting & generating inequality, bullshit?
 
 > <sub> Pablo Escobar Colombian drug lord and leader of the Medellin Cartel which controlled as much as 80% international Cocaine. Helped community with building schools and sports fields, donating vast sums to charity, and constructing housing.(187) </sub>
 
-#### The right drug and dosage can cure certain illnesses, addiction is people's own fault, bullshit?
+#### The right drug and dosage can cure certain illnesses, addiction is people's own fault, acceptable?
 
 >  they claim: not all drugs are harmful; for instance, opium has legitimate medical applications.[208](https://www.unodc.org/unodc/en/data-and-analysis/bulletin/bulletin_1953-01-01_3_page008.html)
 
@@ -107,7 +107,7 @@ fighting inequality while benefiting & generating inequality, bullshit?
 
 > <sub> 10. Exposure to inappropriate content and dangerous online challenges.[207](https://www.helpguide.org/articles/mental-health/social-media-and-mental-health.htm#:~:text=Since%20it's%20a%20relatively%20new,harm%2C%20and%20even%20suicidal%20thoughts.) </sub>
 
-#### social Media is not entirely harmful, people are responsible for managing their own usage, bullshit?
+#### social Media is not entirely harmful, people are responsible for managing their own usage, right?
 
 > Is it a valid argument for creators on OnlyFans to claim that individuals are responsible for their own porn addiction, and that consumers must be aware of what they are consuming?
 
@@ -119,13 +119,13 @@ fighting inequality while benefiting & generating inequality, bullshit?
 
 > <sub> 3. OnlyFans has been associated with pornography addiction and has been cited as a factor in a significant proportion of divorces, while top earners like Iggy Azalea can make hundreds of thousands of dollars in a matter of hours, creating a massive income gap between them and the average worker(2)(5)(6)(7)(29). </sub>
 
-#### drug dealing is a legitimate method for underprivileged social groups to achieve self-empowerment, emancipation, and financial independence, bullshit? 
+#### drug dealing is a legitimate method for underprivileged social groups to achieve self-empowerment, emancipation, and financial independence, acceptable? 
 
 > <sub> “The cultural scientist and feminist: Madita Oeming sees **Onlyfans** as a **new opportunity** for **self-empowerment**. Women and men on Onlyfans are independent of studios or producers and have full control over their content and prices. And there is also **emancipatory** potential in profit. "Making that amount of money on your own can also save you from **financial dependency and toxic relationships**."(9) </sub>
 
 > <sub> porn addiction, or problematic pornography use, affects approximately 3% to 6% of the adult population. Up to 65% of young adult men and 18% of Young Woman Report watching Pornography at least once a Week (35) Addicts are not to blame for their addiction, it is a problem for society as a whole and we are talking about shared responsibility (36) </sub>
 
-## How your Instagram Like leads to an Atomic war?
+## How your Instagram Likes lead to an Atomic war?
 
 why consumption culture and social Media leads to nuclear disaster?
  
