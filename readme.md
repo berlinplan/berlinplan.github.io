@@ -534,7 +534,10 @@ It is moraly wrong to torture if the society refuse any Kind of torture.
 
 It is moraly fine to torture if the society approve limited use of torture to get Information but not prolonged use.
 
-#### does end justify the means?
+#### use Psychopathic Platforms for Good Goals, moraly acceptable? 
+
+> Aka. The end justifies the means? (144)
+
 
 > - End: save 1 life
 > - Mean: kill 1 
