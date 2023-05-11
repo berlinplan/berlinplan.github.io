@@ -166,7 +166,7 @@ why consumption culture and social Media leads to nuclear disaster?
 
 > <sub> North Korea 100 Kiloton Atomic bomb.[209](https://www.bbc.com/news/world-asia-41174689.amp) Iran has enough enriched uranium to build ‘several’ nuclear weapons, UN says (30)</sub>
 
-## Would an Atomic war be an Atomic survival war?
+## Atomic Freedom bomb brings equality?
 
 > <sub> if everything is flat and equal, how can one exploit the world and the environment in a great way? </sub>
 
