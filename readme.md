@@ -324,11 +324,21 @@ why consumption culture and social Media leads to nuclear disaster?
 
 #### Why an Economic sector in the voting app would be good?
 
-> <sub> Instead of fixed salaries, incentivizing individuals with a percentage of the losses and victories boosts motivation. For example, each person gets 2% ~2000€ per month. If someone is a hard worker and profitable for the common fund, they can request more shares in the app or people can voluntarily vote to give them more percentage online. </sub>
+> <sub> Instead of fixed salaries, incentivizing individuals with a percentage of the losses and victories boosts motivation. to illustrate, each person receives 2% (~2000€) per month, but can earn additional shares through requests or online votes for exceptional performance. </sub>
 
-> <sub> Everyone works for their own benefits. The harder they work, the more they earn.</sub>
+> <sub> since non-hierarchical companies are more sustainable for the world and environment, society may vote lower taxes for them.
 
-> <sub> Could people vote in the political section to lower taxes for non-hierarchical companies since they are more sustainable for the world and environment? </sub>
+> <sub> Embracing egoism, self-interest, and increased earnings fosters greater competition, productivity, and sustainability. </sub>
+
+#### Why is egoism considered the most effective solution? <sub> *Authentic egoists:* </sub>
+
+> <sub> oppose global inequality due to their aversion to the possibility of a nuclear attack </sub>
+
+> <sub> prioritize equality as the only means to ensure long-term safety and cleanliness within societies, while preventing revolutions and theft. </sub>
+
+> <sub> avoid alcohol, cigarettes, promiscuity, pornography, social media, and environmental pollutants. </sub>
+
+> <sub> dedicate themselves to sustainable values to achieve a stable family unit, eliminate the reliance on imported labor, and prevent the rise of psychopathic multiculturalism, parallel societies, inequality, and societal unrest. </sub>
 
 ## Calling residents of Germany, Netherlands, France **"society"**, bullshit?
 
@@ -749,15 +759,6 @@ The use of beauty operations, dating apps, pickup and alpha masculinity coaches,
 - Profiteering and usury -> Crypto trading, forex, passive income, Invest Bank Money in Appartements (189)
 ---------
 
-#### Why is egoism considered the most effective solution? <sub> *Authentic egoists:* </sub>
-
-> <sub> oppose global inequality due to their aversion to the possibility of a nuclear attack </sub>
-
-> <sub> prioritize equality as the only means to ensure long-term safety and cleanliness within societies, while preventing revolutions and theft. </sub>
-
-> <sub> avoid alcohol, cigarettes, promiscuity, pornography, social media, and environmental pollutants. </sub>
-
-> <sub> dedicate themselves to sustainable values to achieve a stable family unit, eliminate the reliance on imported labor, and prevent the rise of psychopathic multiculturalism, parallel societies, inequality, and societal unrest. </sub>
 
 
 
