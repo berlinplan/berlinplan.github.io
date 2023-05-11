@@ -590,8 +590,24 @@ Doner-killer: If a person's family in xxxistan is tragically lost due to a milit
 
 Youtube-killer: When a psychopathic system imposes sanctions on a country and companies like Google, including YouTube, comply, how accountable should a peace-loving YouTube video creator be for their contribution to global inequality?
 
-
 **Only with (Over)society's approval does high-tech become morally justifiable; otherwise, how does one differentiate between inequality-generating hi-tech and development founded on slavery?**
+
+
+
+# what is **Contradiction:**?
+
+>  Although breaking someone else's window is not morally acceptable, when faced with a situation where a dog is trapped inside a car with closed windows, breaking the window becomes the morally right choice to save the dog's life, as it inflicts the least amount of damage necessary, unlike damaging the wheels, breaking the entire car, or setting it on fire.(198)
+
+#### is this Website Moraly Ok? 
+
+*Which behavior inflicts the least amount of damage necessary?*
+
+> creating controversial and polarizing content that goes viral on TV, YouTube, Instagram, and TikTok can enrich large corporations and increase the potential for personal wealth
+
+> publishing a book through Amazon or a publisher and make them richer the possiblity of getting rich.
+
+> Paying €2.78 per year for a domain and contributing to inequality by Supporting a Company.
+
 
 ## How to stop the Islamization of Europe?
 
@@ -849,9 +865,6 @@ The more User a Platform has, the more profitable it becomes (31) Instagram incr
 
 
 
-contradiction - is this Website Moraly Ok? 
-
-A Dog is Trapped Inside a car with closed Windows. Break another Persons Window is not Moraly right. But For save the Dog is necessary to break the Window. As Breaking Window is a Lower damage dann let a Dog die. Breaking a Window is Moraly right. (198) While you can easyly break Windows to save Dog, damaging the wheels, break the whole car, and Burn the car is  Moraly not right. As it is not the Lowest damage necessary for save Dog.  
 
 
  -pay 10/20€ per year for a Website to a concern Make the World more inequal. As all other ways has more damage, this is the Moraly Better instead of Create Money making Youtube Instagram etc. 
