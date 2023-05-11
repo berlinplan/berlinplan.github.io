@@ -342,7 +342,7 @@ why consumption culture and social Media leads to nuclear disaster?
 
 
 
-#### Would people in modern societies fight back and defend themselves when attacked?
+#### In modern societies, are people likely to resist and fight in the event of a War attack?
 
 > <sub> 1. Approximately 30,000 fighters from at least 85 countries joined the Islamic State of Iraq and Syria (ISIS), which had very clear defined religious values. Around 6.6 million Syrians and 1.5 million Iraqis, as well as many from Lebanon, Jordan, etc., fled the area, with approximately 90% being young Muslim men. According to the Qur’an and hadith, fleeing from Jihad (war) is a greater sin and is considered the twenty-seventh sin. Additionally, the prophet of Islam said: “I disown every Muslim who settles among the mushrikeen” (Christians, Jews). (85,86,87,88,89,90,91) </sub>
 
