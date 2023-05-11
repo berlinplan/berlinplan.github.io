@@ -404,7 +404,7 @@ Would individuals still seek refuge if economic disparities between third-world 
 
 > psychopathological integration: psychopathegration
 
-> while migrants reject the traditions of people in a psychopathic system, which led populations, cultures, and values of their countries be vanished, a migrant, who leave his country Against social  & Religious Principal, to endorse a more Psychopathic System which perpetuates inequality, is fully psychopathegriert. (186)
+> Migrants often reject the traditions of psychopathic system residents, which contributed to the erosion of their populations, cultures, and values. However a migrant that choosed to leave their country, disregarding social and religious principles, in favor of endorsing to endorse a more Psychopathic System which perpetuates inequality, is fully psychopathegriert. (186)
 
 #### why Economy prefer a psychopathegrated population to an organic population? 
 
