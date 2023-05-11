@@ -434,11 +434,11 @@ The UK’s Indian, Pakistani, and Asian population surprised London by voting pr
 
 > <sub> SOCIETY: people in general thought of as living together in organized communities with **shared** laws, traditions, and **values** (83) Cooperation is vital for human survival as it enables us to thrive in large groups. By living collectively, we can effectively collaborate and distribute tasks based on individual strengths, resulting in improved efficiency and productivity. </sub>
 
-> <sub> The EU considers “human rights” a non-negotiable value, but the German football team participated in the 2022 World Cup in Qatar without wearing a “one love” band. (106) </sub>
+> *Modern Society:*
 
-> <sub> The EU is participating in sanctions against many countries for abusing human rights, yet Saudi Arabia is Germany’s most important partner in the MENA region. (107,108) </sub>
+> <sub> consider “LGBTQIA2S+” a non-negotiable value, but Accept to throw away  the “one love” band for participating in a Football match. (106) </sub>
 
-> <sub> The EU and Germany are being criticized for double standards.(153) </sub>
+> <sub> establish heaviest sanctions against countries for abusing human rights, while maintaining strong ties with biggest Violators of Human rights in the World. (107,108,153) </sub>
 
 
 #### In modern societies, are people likely to resist and fight in the event of a War attack?
@@ -456,9 +456,9 @@ The UK’s Indian, Pakistani, and Asian population surprised London by voting pr
 **Despite martial law 8,2 milions have fled Ukraine, What would be the number of Ukrainians leaving the country if martial law was not in place?**
 
 
-#### What makes ideological groups like ISIS and Taliban outperform most modern armies?
+## Why ideological groups like IRGC, ISIS and Taliban outperform modern armies?
 
-Clear values and non-hierarchical structures (equality) in Ideological Groups versus Pathocratic armies claim to uphold non-negotiable human rights, but maintain strong ties with Saudi Arabia while imposing heavy sanctions on Iran for their human rights violations.
+Clear values and non-hierarchical structures (equality) in Ideological Groups versus Pathocratic armies which double Morals.
 
 
 #### Can a moral act be performed without clear values?
