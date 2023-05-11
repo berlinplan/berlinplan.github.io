@@ -782,8 +782,9 @@ Youtube-killer: When a psychopathic system imposes sanctions on a country and co
 High Tech.
 If societies Decide - they could Invest to Invest in Laboratories how - Technologies
 
+## waiting for Psychopaths to remove psychopathic Structures, bullshit?
 
-#### Would psychopathic Solutions solve the inequality caused by the psychopathic system?
+#### would psychopathic Solutions solve the inequality caused by the psychopathic system?
 
 In his proposal, Boris Palmer suggested that asylum seekers must work, social benefits should be removed, and those who fail to follow the rules should be deported.(196)
 
@@ -793,21 +794,20 @@ In his proposal, Boris Palmer suggested that asylum seekers must work, social be
 -Prevent the production of atomic bombs in marginalized societies.
 
 
-## where to Start ?
-
-#### Can people wait for psychopaths to create a non-psychopathic platform?
-
-<sub> **What defines an equitable non-psychopathic group?** </sub>
+#### What defines an equitable non-psychopathic group?
 
 > A boardless association: a group with no proprietorship, absence of hierarchy, and unattractiveness to psychopaths.
 
-The group has two primary objectives: first, to devise strategies for establishing a non-psychopathic platform for conducting initial societal voting; and second, to make decisions regarding the website's content, including questions and methods for engaging and mobilizing individuals.
+> A Group with no psychopathic Structures.
 
 #### how to explore sociopathic behavior?
 
->Recognizing patterns such as the desire for popularity, pursuit of profit, claims of ownership, aspirations for celebrity status, public disclosure of identity, engagement in university lectures, YouTube presence
+> Recognizing patterns such as the desire for popularity, pursuit of profit, claims of ownership, aspirations for celebrity status, public disclosure of identity, engagement in university lectures, YouTube presence
 
 To share your ideas or suggestions for creating the initial groups for the voting platform or changing the page's content, please send an email to the individual who introduced this page to you. The introducer will then provide you with instructions on how to participate.
+
+The group has two primary objectives: first, to devise strategies for establishing a non-psychopathic platform for conducting initial societal voting; and second, to make decisions regarding the website's content, including questions and methods for engaging and mobilizing individuals.
+
 
 
 Solution for spread : 
@@ -822,9 +822,6 @@ any body can Create a Website and copy this content. Go to street and sugesst th
 
 
 
-
-
-Research has demonstrated that power can influence brain dynamics, with individuals of higher status exhibiting decreased accuracy in empathizing with individuals of lower status. Scientists have employed a clever paradigm to investigate the correlation between brain regions associated with empathy and one's power status.
 
 Are social Media Platforms one person based, to get the most Profit?
  
@@ -841,11 +838,7 @@ Google Youtube  Instagram etc big concerns -> psychopathical Economic ->Brain d
 
 ADVERTISEMENT-> consumption culture -> Environment damages -> World inequality 
  
-Follow, subscribe, comment, Like-> pay My Lamborghini 
-Because i want to do Activity Against psychopathic Economic? 
- 
-End : EQUALITY
-Mean : Support inequality & Profit from it! 
+
 
 
 Hypertrophy in muscles 
