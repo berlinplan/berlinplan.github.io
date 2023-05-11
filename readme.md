@@ -1,6 +1,6 @@
 # Berlinplan.com
 
-<sub> answer following questions, texts below should be Seen as auxillary. </sub>
+<sub> **Please respond to the following inquiries, considering the gray texts as supplementary information** </sub> 
 
 ### smarter smartphones, the cure for cancer, and the elimination of hunger in Africa if Slavery still presisted?
 
