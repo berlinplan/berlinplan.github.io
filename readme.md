@@ -1,4 +1,4 @@
-.  # Berlinplan.com
+  # Berlinplan.com
 
 <sub> Please think about following inquiries, considering the *gray texts* as supplementary information </sub> 
 
@@ -598,15 +598,15 @@ Youtube-killer: When a psychopathic system imposes sanctions on a country and co
 
 >  Although breaking someone else's window is not morally acceptable, when faced with a situation where a dog is trapped inside a car with closed windows, breaking the window becomes the morally right choice to save the dog's life, as it inflicts the least amount of damage necessary, unlike damaging the wheels, breaking the entire car, or setting it on fire.(198)
 
-#### is this Website Moraly Ok? 
+#### Is it ethically acceptable to create a website that inditectly contributes to inequality, despite aiming to solve global inequality issues for personal benefit?? 
 
 *Which behavior inflicts the least amount of damage necessary?*
 
-> creating controversial and polarizing content that goes viral on TV, YouTube, Instagram, and TikTok can enrich large corporations and increase the potential for personal wealth
+> creating controversial and polarizing content that goes viral on TV, YouTube, Instagram, and TikTok and enrich large corporations and increase the potential for personal wealth.
 
-> publishing a book through Amazon or a publisher and make them richer the possiblity of getting rich.
+> Publishing a book via Amazon or a publisher, and make them richer and increase the potential for personal wealth.
 
-> Paying €2.78 per year for a domain and contributing to inequality by Supporting a Company.
+> contributing to inequality by Paying €2.78 per year for a domain to a Domain-seller Company.
 
 
 ## How to stop the Islamization of Europe?
