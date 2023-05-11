@@ -70,7 +70,7 @@ fighting Against inequality while benefiting & generating inequality: bullshit?
 
 > <sub> write a book on inequality, publish it on Amazon, obtain 5-star reviews (each ~4€ in Telegram: "Amazon review DE,Amazon Produkttester, Amazon De tester 2") make it bestseller due to The Matthew Effect, which describes a social pattern characterized by initial advantages that lead to subsequent advantages, resulting in an increasing gap between those who possess resources and those who lack them. (141) </sub>
 
-## Let the drug dealers be free, fine?
+## Freedom for drug dealers, acceptable?
 
 > all societies prohibit drug dealers by law. 
 
