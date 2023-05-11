@@ -235,7 +235,7 @@ why consumption culture and social Media leads to nuclear disaster?
 
 <sub> New smartphones allow for complicated verification processes for online banking or exchange platforms, such as fingerprint and face scans, making it possible to transfer huge amounts of money.(72) </sub>
 
-> Can smartphones be used as tools to solve big problems or are they only for consuming social media?
+> Can smartphones serve as effective tools for solving major problems, or are they only designed for social media consumption?
 
 #### Can an app replace politicians, parliamentarians, presidents, governors and other attractive positions for Psychopaths?
 
