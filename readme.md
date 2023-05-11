@@ -584,6 +584,14 @@ The app aims to resolve the following dilemmas as examples:
 
 train your brain in different topics, ask unprepared individuals on the street controversial questions, conduct cast interviews and debates, edit/cut videos as desired, aim for viral fame on platforms like YouTube, TikTok, and Instagram, polarize society, and make money with the intention of **reducing inequality**?
 
+#### Why Döner-Kebab-Sellers are Killers? 
+
+Doner-killer: If a person's family in xxxistan is tragically lost due to a military force's mistaken actions, who can be held accountable? Should it be the bomb, the pilot, the airplane, the semiconductor manufacturer, the tool manufacturer for that semiconductor, or even the doner kebab-seller who supplied food to the tool company workers?
+
+Youtube-killer: When a psychopathic system imposes sanctions on a country and companies like Google, including YouTube, comply, how accountable should a peace-loving YouTube video creator be for their contribution to global inequality?
+
+
+**Only with (Over)society's approval does high-tech become morally justifiable; otherwise, how does one differentiate between inequality-generating hi-tech and development founded on slavery?**
 
 ## How to stop the Islamization of Europe?
 
@@ -778,18 +786,6 @@ The use of beauty operations, dating apps, pickup and alpha masculinity coaches,
 ---------
 
 
-
-
-#### we are Killers in the eye of a Terrorist, why?
-
-Doner-killer: If a person's family in xxxistan is tragically lost due to a military force's mistaken actions, who can be held accountable? Should it be the bomb, the pilot, the airplane, the semiconductor manufacturer, the tool manufacturer, or even the doner kebab-seller who supplied food to the tool company workers?
-
-
-Youtube-killer: When a psychopathic system imposes sanctions on a country and companies like Google, including YouTube, comply, how accountable should a peace-loving YouTube video creator be for their contribution to global inequality?
-
-High Tech.
-If societies Decide - they could Invest to Invest in Laboratories how - Technologies
-
 ## waiting for Psychopaths to remove psychopathic Structures, bullshit?
 
 #### would psychopathic Solutions solve the inequality caused by the psychopathic system?
@@ -842,41 +838,11 @@ any body can Create a Website and copy this content. Go to street and sugesst th
  ------------
 
 
-
-
 Are social Media Platforms one person based, to get the most Profit?
  
 
 What would you call someone who supports the main company through their presence on Instagram, YouTube, Amazon etc. and ensures more inequity in the world and at the same time benefits from activism for the environment, sustainability, moral values and PEACE?
 The more User a Platform has, the more profitable it becomes (31) Instagram increase economic inequality (32) Instagram, google and other Companies has to Support US sanction on Countries like Iran etc. (33) over 80% Intelligent Students from Top Iranian University in 3rd World Brain Drain to big Concerns in West (34)
-
-
-Why is it wrong to USE current psychopathic Platforms even Good Goals?
-Aka. The end justifies the means?. Niccolò Machiavelli. (144) It means that if a goal is morally important enough, any method of getting it is acceptable. (144)
- 
-
-Google Youtube  Instagram etc big concerns -> psychopathical Economic ->Brain drain -> sanctions poor countries -> damage families->sexualise societies ->instabile Relationships -> ageing population -> inequality 
-
-ADVERTISEMENT-> consumption culture -> Environment damages -> World inequality 
- 
-
-
-
-Hypertrophy in muscles 
-skinny professional Boxer, Ready to Fight, go on street Ask passenger to Fight -> a passenger Accept but is K.O After 10 Seconds. Is Moraly Ok? 
-
-
-Going viral with Youtube Videos.
-Intention Fighting inequality : 
-Train Your brain in Different topics, , Cast Interviews, Debattes on street with not trained passengers,  Create Controversal Material with that content, edit /Cut Videos as want. it goes viral, polarizes society,  Make Youtube and Creator wealthy, is Moraly right? 
-
-
-What wrong with Debattes culture? 
-Hypertrophy in brain. 
-Biased (192)
-Entertain, Talk are skills and trainable.
-Sophistry fallacy
-Polarization 
 
 
 
