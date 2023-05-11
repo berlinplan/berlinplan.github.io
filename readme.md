@@ -514,9 +514,9 @@ The merging of two societies occurs when they have the same values.
 
 > <sub> Comparisons are a normal part of human cognition and can be good for the self-improvement process.(185) <sub>
 
-## Can a basic voting app revolutionize ethics for the first time in human history?
+## Can a basic voting app revolutionize ethics?
 
-> Resolving ethical dilemmas in societies or Oversocieties. 
+> can ethical dilemmas be resolved in society or Oversociety Part?
 
 ### Is torture wrong?
 
@@ -527,6 +527,8 @@ Is it morally acceptable to use barbaric torture methods with an 80% success rat
 > While Kant's Golden Rule forbids torture, Consequentialism considers it ethical if the result is favorable. Psychopaths often justify their actions by claiming that the outcome will be good.
 
 > Religious and political psychopaths suggest seek moral justification from leaders or judges.
+
+#### How an app solve the torture Dilemma for the first time in human history?
 
 It is moraly wrong to torture if the society refuse any Kind of torture.
 
