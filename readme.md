@@ -28,7 +28,7 @@
 
 > <sub> *colonization had a huge Impact on Development in Western countries(215)* </sub>
 
-##  blocking streets and increase polarization to solve environmental crisis, bullshit? 
+##  blocking streets and increase polarization to solve environmental crisis, correct? 
 
 > Can street blockades for Instagram videos and power struggles within the political system effectively address environmental issues?
 
@@ -46,7 +46,7 @@ or
 
 > <sub> Is it probable that citizens of the Middle East rather see on damaged streets, Hi-Tech Drones, Aircrafts, Sattelite runned rockets, Tanks and Military Technology of psychopathic countries, or luxury self-driving e-cars? </sub>
 
-##  #awareness #equality #woke #muslimlivesmatter bullshit?
+##  #awareness #equality #woke #muslimlivesmatter, truth?
 
 > <sub> Luxury brands such as Louis Vuitton and Gucci leverage their influential social media accounts to endorse #equality , #blacklivesmatter in the fight against social injustices.(218) </sub>
 
@@ -56,7 +56,7 @@ increase inequality through production, but employ on social media to address so
 
 > Hypocrisy: A hypocrite is basically characterised by behaviour that contradicts what one claims to believe or feel. (217)
 
-## Follow, subscribe, comment and Like My content, bullshit? 
+## Follow, subscribe, comment and Like My content, right? 
 
 > pay my Lamborghini because i want to do Activity against inequality.
 
@@ -167,7 +167,7 @@ why consumption culture and social Media leads to nuclear disaster?
 
 > <sub> North Korea 100 Kiloton Atomic bomb.[209](https://www.bbc.com/news/world-asia-41174689.amp) Iran has enough enriched uranium to build ‘several’ nuclear weapons, UN says (30)</sub>
 
-## Atomic Freedom bomb brings equality?
+## Does an Atomic bomb brings freedom and equality?
 
 > <sub> if everything is flat and equal, how can one exploit the world and the environment in a great way? </sub>
 
