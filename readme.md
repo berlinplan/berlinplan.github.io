@@ -459,9 +459,7 @@ Clear values and non-hierarchical structures (equality) in Ideological Groups ve
  
 #### Can the voting app be used to prevent moral collapse?
 
-> A separate value sector, like political and economic sectors, where groups clearly define their values can be established
-
-> Can the removal of attractive positions for psychopaths, leaders, mullahs, and priests bring an end to institutional religion?
+> Can a sector where each group defines its values bring an end to institutionalized religion and eliminate religious leaders?
 
 <sub> **Can societies be established again?** </sub>
 
