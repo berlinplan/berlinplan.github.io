@@ -342,33 +342,6 @@ why consumption culture and social Media leads to nuclear disaster?
 
 > <sub> uphold sustainable values, abstain from harmful substances and behaviors such as alcohol, cigarettes, promiscuity, pornography, and excessive social media usage, fostering a stable family unit. This, in turn, reduces dependence on imported labor, curbs the emergence of psychopathic multiculturalism and parallel societies, mitigates inequality, and prevents societal unrest. </sub>
 
-## Calling residents of Germany, Netherlands, etc **"a Society"**, bullshit?
-
-> <sub> SOCIETY: people in general thought of as living together in organized communities with **shared** laws, traditions, and **values** (83) Cooperation is vital for human survival as it enables us to thrive in large groups. By living collectively, we can effectively collaborate and distribute tasks based on individual strengths, resulting in improved efficiency and productivity. </sub>
-
-> <sub> The EU considers “human rights” a non-negotiable value, but the German football team participated in the 2022 World Cup in Qatar without wearing a “one love” band. (106) </sub>
-
-> <sub> The EU is participating in sanctions against many countries for abusing human rights, yet Saudi Arabia is Germany’s most important partner in the MENA region. (107,108) </sub>
-
-> <sub> The EU and Germany are being criticized for double standards.(153) </sub>
-
-
-
-#### In modern societies, are people likely to resist and fight in the event of a War attack?
-
-> <sub> 1. Approximately 30,000 fighters from at least 85 countries joined the Islamic State of Iraq and Syria (ISIS), which had very clear defined religious values. Around 6.6 million Syrians and 1.5 million Iraqis, as well as many from Lebanon, Jordan, etc., fled the area, with approximately 90% being young Muslim men. According to the Qur’an and hadith, fleeing from Jihad (war) is a greater sin and is considered the twenty-seventh sin. Additionally, the prophet of Islam said: “I disown every Muslim who settles among the mushrikeen” (Christians, Jews). (85,86,87,88,89,90,91) </sub>
-
-#### Can mass of people, without any shared values be considered **a Society**?
-
-> <sub> 2. Over a million young Afghans have fled Afghanistan after the fall of the Afghan republic. Despite spending $145 billion on security forces and civilian government institutions over 20 years, the US and West were unable to prevent the fall of the Afghan republic as soon as US troops left. President Ashraf Ghani fled the capital city by helicopter to neighboring Uzbekistan just days after swearing never to leave and saying that he would die before abandoning his people (93,95) </sub>
-
-**Is it accurate that the Taliban society assaulted a large group of people who did not share any values?**
-
-> <sub> 3. Ukraine became an independent state after the collapse of the Soviet Union in 1991. (96) In 2012 Ernst & Young put Ukraine among the three most-corrupt nations. In 2015 The Guardian called Ukraine "the most corrupt nation in Europe “. (97) United States diplomats described Ukraine as a kleptocracy according to WikiLeaks cables (98) Prominent Ukrainian economist Oleh Havrylyshyn research estimated the level of the corruption in Ukraine as comparable to countries of Sub-Saharan Africa with Uganda as the closest counterpart. (99) Ukraine's population spends most of its income on cosmetic products (100) The beauty industry is booming and is one of the fastest growing consumer markets, driven in particular by the cosmetics and skincare segments. largest industries and sectors in Ukraine in 2022 from the Datantify database: · 1. Bank · 2. Cafe · 3. Grocery … 10. Beauty 11. Clothing Stores (101) it is forbidden for men aged 18-60, Ukraine citizens, to leave the borders of Ukraine (102) Still, The UNHCR records 8,167,986 refugees from Ukraine across Europe as of 10 April 2023. This amounts to around 20% of the Ukrainian population (103) Corruption: Per R. Klitgaard Since a high degree of monopoly and low degree of transparency does not automatically lead to corruption, a fourth variable of "morality" or "integrity" has been introduced by others. The moral dimension has an intrinsic component and refers to a "mentality problem" (104) by Martial law Ukrainian Man are force to Participate war, while Russian Army is a Mix of contract und volunteers (105) </sub> 
-
-**Despite martial law 8,2 milions have fled Ukraine, What would be the number of Ukrainians leaving the country if martial law was not in place?**
-
-
 ## Multiculturalism: Does it lead to a tolerant and open-minded society or paralyzed parallel societies?
 
 > Multiculturalism is often seen as a way to promote cultural exchange, tolerance, openness to other cultures, and new ideas. (110) However, there are also studies that show the opposite. Multiculturalism leads to social tensions, culture clash, polarization, marginalization, and language problems.
@@ -459,6 +432,42 @@ The UK’s Indian, Pakistani, and Asian population surprised London by voting pr
  
 > Research suggests that it’s bad for everyone’s well-being when the rich don’t have contact with the poor or the poor with the middle class. (211,212,213)
 
+## Calling residents of Germany, Netherlands, etc **"a Society"**, bullshit?
+
+> <sub> SOCIETY: people in general thought of as living together in organized communities with **shared** laws, traditions, and **values** (83) Cooperation is vital for human survival as it enables us to thrive in large groups. By living collectively, we can effectively collaborate and distribute tasks based on individual strengths, resulting in improved efficiency and productivity. </sub>
+
+> <sub> The EU considers “human rights” a non-negotiable value, but the German football team participated in the 2022 World Cup in Qatar without wearing a “one love” band. (106) </sub>
+
+> <sub> The EU is participating in sanctions against many countries for abusing human rights, yet Saudi Arabia is Germany’s most important partner in the MENA region. (107,108) </sub>
+
+> <sub> The EU and Germany are being criticized for double standards.(153) </sub>
+
+
+#### In modern societies, are people likely to resist and fight in the event of a War attack?
+
+> <sub> 1. Approximately 30,000 fighters from at least 85 countries joined the Islamic State of Iraq and Syria (ISIS), which had very clear defined religious values. Around 6.6 million Syrians and 1.5 million Iraqis, as well as many from Lebanon, Jordan, etc., fled the area, with approximately 90% being young Muslim men. According to the Qur’an and hadith, fleeing from Jihad (war) is a greater sin and is considered the twenty-seventh sin. Additionally, the prophet of Islam said: “I disown every Muslim who settles among the mushrikeen” (Christians, Jews). (85,86,87,88,89,90,91) </sub>
+
+#### Can mass of people, without any shared values be considered **a Society**?
+
+> <sub> 2. Over a million young Afghans have fled Afghanistan after the fall of the Afghan republic. Despite spending $145 billion on security forces and civilian government institutions over 20 years, the US and West were unable to prevent the fall of the Afghan republic as soon as US troops left. President Ashraf Ghani fled the capital city by helicopter to neighboring Uzbekistan just days after swearing never to leave and saying that he would die before abandoning his people (93,95) </sub>
+
+**Is it accurate that the Taliban society assaulted a large group of people who did not share any values?**
+
+> <sub> 3. Ukraine became an independent state after the collapse of the Soviet Union in 1991. (96) In 2012 Ernst & Young put Ukraine among the three most-corrupt nations. In 2015 The Guardian called Ukraine "the most corrupt nation in Europe “. (97) United States diplomats described Ukraine as a kleptocracy according to WikiLeaks cables (98) Prominent Ukrainian economist Oleh Havrylyshyn research estimated the level of the corruption in Ukraine as comparable to countries of Sub-Saharan Africa with Uganda as the closest counterpart. (99) Ukraine's population spends most of its income on cosmetic products (100) The beauty industry is booming and is one of the fastest growing consumer markets, driven in particular by the cosmetics and skincare segments. largest industries and sectors in Ukraine in 2022 from the Datantify database: · 1. Bank · 2. Cafe · 3. Grocery … 10. Beauty 11. Clothing Stores (101) it is forbidden for men aged 18-60, Ukraine citizens, to leave the borders of Ukraine (102) Still, The UNHCR records 8,167,986 refugees from Ukraine across Europe as of 10 April 2023. This amounts to around 20% of the Ukrainian population (103) Corruption: Per R. Klitgaard Since a high degree of monopoly and low degree of transparency does not automatically lead to corruption, a fourth variable of "morality" or "integrity" has been introduced by others. The moral dimension has an intrinsic component and refers to a "mentality problem" (104) by Martial law Ukrainian Man are force to Participate war, while Russian Army is a Mix of contract und volunteers (105) </sub> 
+
+**Despite martial law 8,2 milions have fled Ukraine, What would be the number of Ukrainians leaving the country if martial law was not in place?**
+
+
+#### What makes ideological groups like ISIS and Taliban outperform most modern armies?
+
+Clear values and non-hierarchical structures (equality) in Ideological Groups versus Pathocratic armies claim to uphold non-negotiable human rights, but maintain strong ties with Saudi Arabia while imposing heavy sanctions on Iran for their human rights violations.
+
+
+#### Can a moral act be performed without clear values?
+
+morality: standards of behaviour; principles of right and wrong. (190)
+
+
 #### Does having no defined values lead to moral collapse?
 
 > Psychopathic democracies lead to corruption, which destroys the moral fabric of society. (122)
@@ -477,7 +486,7 @@ The UK’s Indian, Pakistani, and Asian population surprised London by voting pr
 
 > <sub> Buddhist society in Asia and two South American societies could unite to form a country if they share the same values </sub>
 
-**Creating the first Oversocieties?**
+## why Oversocieties are necessary?
 
 > If society 1, 2, 3, Christian, Hindus, Chinese, Islamic, and Atheists have a common value of no nuclear bombs, then all societies must comply
 
@@ -511,13 +520,6 @@ The merging of two societies occurs when they have the same values.
 > Can Christians be inspired by Muslims to reduce alcohol consumption and have more stable relationships?
 
 
-#### What makes ideological groups like ISIS and Taliban outperform most modern armies?
-
-Clear values and non-hierarchical structures (equality) in Ideological Groups versus Pathocratic armies claim to uphold non-negotiable human rights, but maintain strong ties with Saudi Arabia while imposing heavy sanctions on Iran for their human rights violations.
-
-
-#### Can a moral act be performed without clear values?
-morality: standards of behaviour; principles of right and wrong. (190)
 
 
 
