@@ -820,11 +820,13 @@ A Group for collaborate and devise strategies for developing an app that serves 
 
 > A boardless association, without proprietorship, psychopathical and hierarchical Structures, and without attractive Positions for psychopaths.
 
-> A Structure that nobody COULD have sociopathic behavior, desire for popularity, pursuit of profit, claims of ownership, aspirations for celebrity status, public disclosure of identity, engagement in university lectures, Social Media presence.
+> A structure within which there is **no room** for sociopathic behavior, the longing for popularity, the pursuit of profit, claims of ownership, aspirations for celebrity status, public disclosure of identity, engagement in university lectures, or a social media presence.
 
 > A group which has only two primary objectives: 
--first, to devise strategies for establishing a non-psychopathic platform for conducting initial societal voting;
--second, to make decisions regarding this website's content, including questions and methods for engaging and mobilizing individuals.
+
+-<sub> first, to devise strategies for establishing a non-psychopathic platform for conducting initial societal app- voting; </sub>
+
+-<sub> second, to make decisions regarding this website's content, including questions and methods for engaging and mobilizing individuals. </sub>
 
 ## Homo homini lupus, "A man is a wolf to another man,"?
 
