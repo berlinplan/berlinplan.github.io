@@ -247,9 +247,9 @@ why consumption culture and social Media leads to nuclear disaster?
 
 > Existing democracies can gradually integrate an anti-psychopathic app without the need for revolutionary change. A beta or pilot project can be tested in a village of 100 people.
 
-#### What are the benefits of having money in your own wallet instead of letting psychopaths decide?
+#### What are the benefits of personally holding money in your wallet instead of allowing psychopaths to have control over it?
 
-> <sub> A voting app for laws and suggestions with a separate sector for comments that includes pros and cons. Users can vote for their favorite arguments. </sub>
+> <sub> An interactive voting app incorporating a dedicated comments section that presents both advantages and disadvantages, enabling users to vote for their preferred arguments. </sub>
 -------------
 *Examples*
 > <sub> 1. should it be mandatory to pay monthly for ARD and ZDF? </sub>
