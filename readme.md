@@ -136,7 +136,7 @@ fighting Against inequality while benefiting & generating inequality: bullshit?
 
 porn addiction, or problematic pornography use, affects approximately 3% to 6% of the adult population. Up to 65% of young adult men and 18% of Young Woman Report watching Pornography at least once a Week (35) Addicts are not to blame for their addiction, it is a problem for society as a whole and we are talking about shared responsibility (36) </sub>
 
-## How your Instagram war leads to an Atomic war?
+## How your Instagram Like leads to an Atomic war?
 
 why consumption culture and social Media leads to nuclear disaster?
  
