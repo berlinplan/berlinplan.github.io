@@ -195,7 +195,7 @@ why consumption culture and social Media leads to nuclear disaster?
 
 > could the idea of granting voting Power to all and removing psychopathic Structures be an alternative?
 
-## Improving Democracy, Avoiding Nuclear War?
+## Can a Nuclear War be avoided by "Improving" Democracy?
 
 > <sub> Democracy has been the best political system from 508 BCE. </sub>
 
