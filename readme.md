@@ -182,7 +182,7 @@ why consumption culture and social Media leads to nuclear disaster?
 
 > Experts warn that new technology Like 3-D Printing makes it easier to covertly produce WMDs.
 
-#### Why psychopathic leaders would never utiliz an atom bombs?
+#### Why leaders of psychopathic Systems would never utiliz an Atom bomb?
 
 > Despite common misconceptions, psychopaths are fully cognizant of the consequences of their actions; they are not insane.(195)
 
