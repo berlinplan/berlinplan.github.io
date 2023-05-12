@@ -2,11 +2,11 @@
 
 <sub> Kindly consider the following questions, with the grey texts as additional information. </sub>
 
-### smarter smartphones, the cure for cancer, and the elimination of hunger in Africa if Slavery still presisted?
+### Smarter smartphones, the cure for cancer, and the elimination of hunger in Africa, if slavery still persisted?
 
 #### Benefits of slavery for World Development: (224)
 
-> <sub> **1.Improve African lives:** Slave trade led to the growth of international trade between Africa, the USA, and Europe. So many goods were exchanged to Africa in exchange for the slaves. These products were then used in Africa to improve the lives of people. Also, more Europeans would visit the slave market and even exchange goods with Americans and Africans. </sub>
+> <sub> **1.The improvement of African lives: The slave trade fostered international commerce between Africa, the USA, and Europe. Numerous goods were exchanged with Africa in return for slaves. These products were subsequently utilized within Africa to enhance the well-being of its people. Additionally, the slave market attracted increased European visitors who engaged in goods exchange with Americans and Africans. </sub>
 
 > <sub> **2.Multiculturism:** When different countries interacted, they exchanged their culture. This helped in building long-term relationships and developing nations. Besides, the slave trade also led to intermarriage. People from different continents intermarried to produced mixed races. </sub>
 
