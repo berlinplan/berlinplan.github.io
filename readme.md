@@ -115,40 +115,22 @@ Why does consumption culture and social media lead to a nuclear disaster?
 
 > <sub> An aging population's lack of workers and skilled labor in Industrial Countries can lead to economic collapse in third-world countries, from where migrants originate. This situation results in economic disadvantages, the loss of qualified professionals (especially in healthcare), and social problems for children who are left behind or do not grow up in large families. Remittances and money transfers may be blocked or face UN sanctions, while poor countries often experience negative trade balances with industrialized nations. Negative trade balances contribute to unemployment and capital outflow. Exploitation, as defined by Marxist theories, involves the inappropriate use of manpower and resources, specifically the appropriation of someone else's labor and contributes to increased international inequality (15,16,17,18,19,20,21, 22)  </sub>
 
-#### 5. Can international inequality only be reduced through violent shocks?
+#### 4. Can violent shocks be the only solution to reducing international inequality?
   
- Walter Scheidel, in his study tracing the global history of inequality from the Stone Age to today, shows that it never diminishes peacefully; violent shocks are needed to reduce inequality. For example, blanket bombing from the American air fleet and the use of atomic bombs led to a decline in social inequality (23).</sub>
-> <sub> French colonization in Haiti ended only after the Haitian slaves rebelled, resulting in the Haitian Massacre, which claimed the lives of 75,000 white French and 350,000 Haitians (24). </sub>
+> <sub>  study on the global history of inequality suggests that peaceful means have never effectively diminished it. Examples include the use of violent tactics such as blanket bombing, atomic bombs, slave uprisings, and wars, which have led to declines in social inequality. French colonization in Haiti ended after the Haitian slaves rebelled, resulting in the Haitian Massacre. Similarly, the end of slavery in the United States was driven by slave uprisings and economic factors. World War II also contributed to a notable reduction in income and wealth inequality across many nations. (23,24,25 26). </sub>
 
-> <sub> The end of slavery in the United States was due to slave uprisings and economic interests (25). </sub>
 
-> <sub> World War II also led to a significant reduction in income and wealth inequality in many countries (26). </sub>
+#### May economic sanctions, brain drain, youth migration, and inequalities drive a country to resort to violent measures?
 
-<sub> **End of Sanctions & Inequality after Atomic War?** </sub>
+> <sub> If everything becomes flat, how can the world and the environment be exploited on a large scale? Could Iran enriching uranium to build several nuclear weapons or North Korea's 100-kiloton atomic bomb potentially end sanctions and lead to equality?(30,209 )</sub>
 
-> <sub> North Korea possesses a 100 Kiloton atomic bomb (209), and Iran has enough enriched uranium to build several nuclear weapons, as stated by the UN (30). </sub>
+## How to grant people the freedom and equality to utilize an atom bomb?
 
-## Does an atomic bomb bring freedom and equality?
+> <sub> Polls show that about 80% of Iranians who desire an atomic bomb support its possession for defensive purposes. Over the years, Iranians have consistently shown strong backing for their country's nuclear program. In 2006, support reached 85%, and in 2010, it was 71%. Even amid sanctions, a 2013 Gallup poll found that 84% of Iranians expressed a desire for nuclear weapons. A 2013 Zogby poll similarly indicated majority opposition (84.5%) to ending uranium enrichment and ballistic missile testing (83.4%). Responsibility for sanctions varied among respondents, with 46% holding the U.S. responsible, 13% attributing it to the Iranian government, and 12% to the UN and EU, while 16% were uncertain. (155, 156, 157, 158, 159, 160, 161,163, 165). </sub>
 
-> <sub> If everything becomes flat and equal, how can the world and the environment be exploited on a large scale? </sub>
+#### Why would leaders in psychopathic regimes never utilize an atomic bomb, but marginalized groups outside of psychopathic power might?
 
-#### May economic sanctions, brain drain, youth migration, and inequalities force a country to adopt a strategy of violent shock?
-
-> According to poll results, around 80% of Iranians who desire an atomic bomb express support for defense based on the possession of such weapons (163).
-
-> <sub> Over the years, Iranians have consistently expressed strong support for their country's nuclear program, according to polls. In 2006, 85% of Iranians supported it, and in 2010, the figure was 71%. Even in the face of sanctions, a Gallup poll in 2013 found that Iranians remained staunchly in favor of the program, with 84% expressing their desire for a nuclear weapon. A 2013 Zogby poll similarly found that a large majority of Iranians opposed ending uranium enrichment (84.5%) and ballistic missile testing (83.4%). These views were reaffirmed by a 2020 CISSM poll (155, 156, 157, 158, 159, 160, 161). </sub>
-
-> <sub> In a 2013 Gallup Iran poll, respondents were asked about their views on sanctions against Iran. 46% of those surveyed held the U.S. responsible, while 13% held the Iranian government responsible, and 12% held the UN and EU responsible. 16% of respondents did not know who was responsible (165). </sub>
-
-### Would a well-organized group in marginalized societies outside of a psychopathic regime use an atomic bomb, or current Leaders ? (216)
-
-> Experts warn that new technologies like 3D printing make it easier to covertly produce weapons of mass destruction.
-
-#### Why would leaders of psychopathic systems never utilize an atomic bomb?
-
-> Contrary to common misconceptions, psychopaths are fully aware of the consequences of their actions; they are not insane (195).
-
-> In 2013, Iran's religious leader Khamenei prohibited the development and deployment of nuclear weapons under Islamic law by issuing an irrevocable Fatwa. Following this, Mahmoud Ahmadinejad, who strongly supported Iran's nuclear program, has been disqualified from all Iranian elections since then (154, 162, 163, 164, 178).
+> Experts warn that advancements like 3D printing make it easier for non-hierarchical groups to secretly produce weapons of mass destruction. Meanwhile, current people in power would never use it. Contrary to misconceptions, psychopaths are fully aware of the consequences of their actions; they are not insane. In 2013, Iran's religious leader Khamenei issued an irrevocable Fatwa prohibiting the development and deployment of nuclear weapons under Islamic law. Since then, Mahmoud Ahmadinejad, a strong supporter of Iran's nuclear program, has been disqualified from all Iranian elections. (154, 162, 163, 164, 178, 195,216).
 
 #### Are violent tactics the only effective means to effectively tackle inequality?
 
@@ -158,25 +140,16 @@ Why does consumption culture and social media lead to a nuclear disaster?
 
 ## Can a nuclear war be avoided by "improving" democracy?
 
-> <sub> Democracy has been considered the best political system since 508 BCE. However, despite its numerous advantages, democracy also has disadvantages: a polarizing debate culture, the development of psychopaths, corruption, misuse of equality, lack of protection for the common man, divide and rule methods, unfair business practices, addiction to power, and media misuse (63, 65). </sub>
-
-> <sub> Social hierarchies exist in democracies, and research has shown that power can affect brain dynamics, with individuals of higher status exhibiting decreased accuracy in empathizing with individuals of lower status. Scientists have used a clever paradigm to study the correlation between brain regions associated with empathy and one's power status (220). </sub>
-
-> <sub> Psychopathy is a serious personality disorder characterized by antisocial behavior, untruthfulness, irresponsibility, and lack of remorse or empathy (172). It is necessary to diagnose psychopathic personalities and prevent them from gaining power (79). Since psychopaths have no limitations on what they will do to reach the top, hierarchies tend to become top-heavy with psychopaths, turning democracy into a pathocracy (64, 68, 79, 80). </sub>
-
-> <sub> Current political and economic systems provide an ideal environment for psychopaths to thrive. Approximately 1.2% of U.S. adult men and 0.3% to 0.7% of U.S. adult women are considered to have clinically significant levels of psychopathic traits (175). Furthermore, studies show that 15% of prisoners, 21% of CEOs, and many U.S. presidents exhibit psychopathic traits (44, 45, 46, 47). Aristotle warned us more than two millennia ago that democracies are the best environment for psychopaths to develop (49). In the past fifty years, psychopaths have gained almost absolute control of all branches of government (173) </sub>
-
-> <sub> In Germany, it is estimated that approximately 84.3% of the population consists of ~505,000 males and 210,000 females with psychopathic profiles. Considering that 15% of prisoners and 21% of CEOs are psychopaths, it suggests a significant number of successful psychopaths in leadership positions in big companies and politics (177). </sub>
-
-> <sub> Psychopaths can misuse democratic organizations. Corporations have legal departments to handle lawsuits, which can be financially and emotionally draining for individuals. Late bill payments can lead to negative financial consequences, such as late fees, credit score damage, and sometimes imprisonment. Additionally, the largest companies often avoid paying taxes (73, 74, 75, 76, 77). </sub>
-
-> <sub> If someone is unable to pay their rent, how would the modern executive, legislative, and judiciary, which are responsible for creating billionaires and financed by taxpayers, address this situation? </sub>
-
-> <sub> The New York Times claimed that Donald Trump was already a millionaire at the young age of 8. Throughout human history, this has never been a common occurrence because having substantial wealth has always come with its own set of issues and uncertainties. (210) </sub>
-
-> <sub> Let's say someone inherits 3,000 apartments from their dad. Current Psychopathic System, help him to expand their apartment holdings to 6,000 units. Then, they pass it on to their child, who takes it further to 10,000 units. </sub> 
-
-> <sub> Preventing psychopaths from obtaining power is challenging since there is no reliable test to identify a psychopath (82) </sub>
+- <sub> Democracy has been considered the best political system since 508 BCE. However, despite its numerous advantages, democracy also has disadvantages: a polarizing debate culture, the development of psychopaths, corruption, misuse of equality, lack of protection for the common man, divide and rule methods, unfair business practices, addiction to power, and media misuse (63, 65). </sub>
+- <sub> Social hierarchies exist in democracies, and research has shown that power can affect brain dynamics, with individuals of higher status exhibiting decreased accuracy in empathizing with individuals of lower status. Scientists have used a clever paradigm to study the correlation between brain regions associated with empathy and one's power status (220). </sub>
+- <sub> Psychopathy is a serious personality disorder characterized by antisocial behavior, untruthfulness, irresponsibility, and lack of remorse or empathy (172). It is necessary to diagnose psychopathic personalities and prevent them from gaining power (79). Since psychopaths have no limitations on what they will do to reach the top, hierarchies tend to become top-heavy with psychopaths, turning democracy into a pathocracy (64, 68, 79, 80). </sub>
+- <sub> Current political and economic systems provide an ideal environment for psychopaths to thrive. Approximately 1.2% of U.S. adult men and 0.3% to 0.7% of U.S. adult women are considered to have clinically significant levels of psychopathic traits (175). Furthermore, studies show that 15% of prisoners, 21% of CEOs, and many U.S. presidents exhibit psychopathic traits (44, 45, 46, 47). Aristotle warned us more than two millennia ago that democracies are the best environment for psychopaths to develop (49). In the past fifty years, psychopaths have gained almost absolute control of all branches of government (173) </sub>
+- <sub> In Germany, it is estimated that approximately 84.3% of the population consists of ~505,000 males and 210,000 females with psychopathic profiles. Considering that 15% of prisoners and 21% of CEOs are psychopaths, it suggests a significant number of successful psychopaths in leadership positions in big companies and politics (177). </sub>
+- <sub> Psychopaths can misuse democratic organizations. Corporations have legal departments to handle lawsuits, which can be financially and emotionally draining for individuals. Late bill payments can lead to negative financial consequences, such as late fees, credit score damage, and sometimes imprisonment. Additionally, the largest companies often avoid paying taxes (73, 74, 75, 76, 77). </sub>
+- <sub> If someone is unable to pay their rent, how would the modern executive, legislative, and judiciary, which are responsible for creating billionaires and financed by taxpayers, address this situation? </sub>
+- <sub> The New York Times claimed that Donald Trump was already a millionaire at the young age of 8. Throughout human history, this has never been a common occurrence because having substantial wealth has always come with its own set of issues and uncertainties. (210) </sub>
+- <sub> Let's say someone inherits 3,000 apartments from their dad. Current Psychopathic System, help him to expand their apartment holdings to 6,000 units. Then, they pass it on to their child, who takes it further to 10,000 units. </sub> 
+- <sub> Preventing psychopaths from obtaining power is challenging since there is no reliable test to identify a psychopath (82) </sub>
  
 #### Should non-hierarchical systems be adopted due to the challenge of identifying psychopaths?
 
