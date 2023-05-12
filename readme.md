@@ -216,42 +216,42 @@ Why does consumption culture and social media lead to a nuclear disaster?
 
 > <sub> Let's say someone inherits 3,000 apartments from their dad. Current Psychopathic System, help him to expand their apartment holdings to 6,000 units. Then, they pass it on to their child, who takes it further to 10,000 units. </sub> 
 
-> <sub> Preventing psychopaths from obtaining power is challenging since there is no reliable test to identify a psychopath (82). </sub>
+> <sub> Preventing psychopaths from obtaining power is challenging since there is no reliable test to identify a psychopath (82) </sub>
  
-#### Should non-hierarchical systems be adopted to address this challenge?
+#### Should non-hierarchical systems be adopted due to the challenge of identifying psychopaths?
 
 > <sub> As the saying goes, "He who sups with the devil should have a long spoon" (69, 70). <sub>
 
-#### Could the solution to the 2500-year-old problem of psychopathy in democracy lie in the implementation of a simple voting app?
+#### Could the solution to the 2,500-year-old problem of psychopathy in democracy be found in a simple voting app?
 
-<sub> New smartphones allow for complicated verification processes for online banking or exchange platforms, such as fingerprint and face scans, making it possible to transfer huge amounts of money.(72) </sub>
+<sub> New smartphones offer advanced verification methods like fingerprint and face scans for tasks like online banking, enabling secure transactions of large sums of money. (72) </sub>
 
-> Can smartphones serve as effective tools for solving major problems, or are they only designed for social media consumption?
+> Do smartphones have the potential to address significant issues or are they primarily designed for social media?
+  
+#### Can an app replace politicians, parliamentarians, presidents, governors, and other coveted positions that attract psychopaths?
 
-#### Can an app replace politicians, parliamentarians, presidents, governors and other attractive positions for Psychopaths?
+> <sub> The President's responsibilities include treaty-making, bill vetoing and signing, representing the nation in foreign talks, enforcing laws, proposing new laws, leading a political party, hosting foreign guests, recognizing foreign countries, and granting pardons. Parliamentarians legislate and oversee the government's work. (66,67) </sub>
 
-> <sub> The President’s duties include making treaties, vetoing and signing bills, representing the nation in talks with foreign countries, enforcing laws passed by Congress, making suggestions about new laws, leading their political party, entertaining foreign guests, recognizing foreign countries and granting pardons. The parliamentarian’s tasks are to legislate and control the work of the government. (66,67) </sub>
+#### Is a gradual reduction and replacement of the existing psychopathic structure feasible?
 
-#### Is a step-by-step reduction and replacement of the current psychopathic structure feasible?
+> Eliminating hierarchies is crucial for reducing inequality.
 
-> Removing hierarchies is essential for mitigating inequality.
+> Current democracies can gradually incorporate an anti-psychopathy app without requiring a revolutionary change. A beta or pilot project can be tested in a village with 100 residents.
 
-> Existing democracies can gradually integrate an anti-psychopathic app without the need for revolutionary change. A beta or pilot project can be tested in a village of 100 people.
-
-#### What are the benefits of personally holding money in your wallet instead of allowing psychopaths to have control over it?
-
-> <sub> An interactive voting app incorporating a dedicated comments section that presents both advantages and disadvantages, enabling users to vote for their preferred arguments. </sub>
+#### What are the advantages of personally holding money in your wallet instead of allowing psychopaths to control it?
+  
+> <sub> An interactive voting app can include a dedicated comments section that presents both the advantages and disadvantages, allowing users to vote for their preferred arguments. </sub>
 -------------
 *Examples*
-> <sub> 1. should it be mandatory to pay monthly for ARD and ZDF? </sub>
+> <sub> 1. Should monthly payment for ARD and ZDF be mandatory? </sub>
 -------------
-> <sub> 2. Should the primary focus of the police be on protecting vulnerable populations like women and the elderly, rather than prioritizing the protection of capital through actions against impoverished tenants, debtors of Amazon, supermarket looters, and climate activists? </sub>
+> <sub> 2. Should the police prioritize protecting vulnerable populations like women and the elderly over protecting capital, such as taking action against impoverished tenants, debtors of Amazon, supermarket looters, and climate activists? </sub>
 -------------
-> <sub> 3. Should we construct a power plant in our village? </sub>
+> <sub> 3. Should we build a power plant in our village? </sub>
 
-> <sub> Which company should build it after a 50%+ YES decision? </sub>
+> <sub> After a 50%+ YES decision, which company should be chosen to build it? </sub>
 
-> <sub> Should we pay it step by step from each person’s account or send the money to a psychopathic system to pay the company? </sub>
+> <sub> Should the money be paid gradually from each person's account or sent to a psychopathic system to pay the company? </sub>
 -------------
 
 > <sub> 4. Should we impose sanctions on Russia, Saudi Arabia, USA or China for human rights violations? </sub>
