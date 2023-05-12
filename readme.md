@@ -596,9 +596,9 @@ The morally correct behavior is the one that inflicts the least necessary harm u
 
 #### How have big states attempted to curb the growth of Islam?
 
-- China: Hormone therapy of Muslims(Chinese Uyghur genocide) (131)
-- India: Anti-Muslim Laws. New Citizenship Law, Disturbed Area Act. ghettoize Muslims. (132) (133)
-- USA: Muslim-ban! (134)
+- China: Hormone therapy of Muslims (Chinese Uyghur genocide) (131)
+- India: Anti-Muslim Laws. New Citizenship Law, Disturbed Area Act. Ghettoize Muslims. (132) (133)
+- USA: Muslim ban! (134)
 - The European Court has allowed bans on religious dress in countries like Austria, Belgium, and France, where the hijab and niqab have been prohibited (135)
 
 #### Why is Islam the world's fastest-growing religion?
@@ -608,63 +608,32 @@ The morally correct behavior is the one that inflicts the least necessary harm u
 #### What role do stable marriages and families play in countering the expansion of Islam?
 
 > Society's values and civilization depend on families' foundational role (124) (123)
+  
+*Some statistics related to divorce rates:*
 
-- Almost 50 percent of all marriages in the United States will end in divorce or separation.
-- Researchers estimate that 41 percent of all first marriages end in divorce.
-- 60 percent of second marriages end in divorce.
-- 73 percent of all third marriages end in divorce.
-- 15 percent of adult women in the United States are divorced or separated today, compared with less than one percent in 1920
-- The average first marriage that ends in divorce lasts about 8 years.
-- median duration of first marriages that end in divorce:
-- Males: 7.8 years Females: 7.9 years
-- median duration of second marriages:
-- Males: 7.3 years Females: 6.8 years
-- if you or your partner have been married before: If both you and your partner have had previous marriages, you are 90 percent more likely to get divorced than if this had been the first marriage for both of you
-- If a person has strong religious beliefs, the risk of divorce is 14 percent less and having no religious affiliation makes you 14 percent more likely to get divorced.
+> <sub> Early sexual activity and multiple partners increase the risk of unstable marriages. </sub>
+> <sub> Women who lost their virginity as teenagers have over twice the divorce rate within the first 5 years of marriage compared to those who waited. </sub>
+> <sub> Women with 6 or more premarital sexual partners are almost 3 times less likely to be in a stable marriage. </sub>
+> <sub> Female serial cohabiters are 40% more likely to get divorced than women who haven't. </sub>
+> <sub> When mothers work while husbands contribute minimally to housework and childcare, divorce risk nearly doubles. </sub>
+> <sub> Facebook contributes to 1/3 of examined divorce cases, while pornography addiction is a factor in 56% of divorces. </sub>
+> <sub> Having happily married parents decreases divorce risk by 14%, while having divorced and remarried parents increases it by 91%. </sub>
+> <sub> Children of divorce are more likely to marry someone who also experienced divorce. </sub>
+> <sub> About 50% of marriages in the US end in divorce or separation. Currently, 15% of adult women in the US are divorced or separated, compared to less than 1% in 1920. </sub>
+> <sub> The average duration of a first marriage that ends in divorce is 8 years and 7 Years for second marriages. </sub>
+> <sub> If both partners have had previous marriages, they are 90% more likely to get divorced. </sub>
+> <sub> Having strong religious beliefs reduces the risk of divorce by 14%. </sub>
+> <sub> High school dropouts have a 13% higher divorce risk, while college attendees have a 13% lower risk. </sub>
+> <sub> Those with "below average" IQs are 50% more likely to be divorced. </sub>
+> <sub> Meeting your spouse in high school, college, or grad school reduces divorce likelihood by 41%, while meeting in bars increases it by 24%. </sub>
+> <sub> Couples with children have a divorce rate up to 40% lower than those without children. Having a baby before marriage increases the risk of divorce by 24%. </sub>
+> <sub> Couples where only one partner smokes are 76-95% more likely to divorce, and even couples where both smoke have a 53% higher likelihood of divorce compared to non-smoking couples. </sub>
+> <sub> Each liter of alcohol consumed raises the chance of divorce by 20%. </sub>
+> <sub> Video game addiction is cited as a major factor in almost 15% of divorce petitions. </sub>
+> <sub> Being close friends with someone who divorces increases your likelihood of divorce by 147%, and having a divorced sibling raises it by 22%. </sub>
+> <sub> Working with someone going through a divorce increases a married person's chance of divorce by 75%. </sub>
+  
 
-education and intelligence
-- High School dropouts are 13 percent more likely to get divorced.
-- Individuals who have attended college have a 13 percent lower risk of divorce.
-- Those with “below average” IQs are 50 percent more likely to be divorced than those with “above average” IQs.
-- 60 percent of cohabiting couples will eventually marry. However, living together prior to marriage can increase the chance of getting divorced by as much as 40 percent.
-- If you are a female serial cohabiter – a woman who has lived with more than one partner before your first marriage – then you’re 40 percent more likely to get divorced than women who have never done so.
- 
-
-where you met
-- According to this study at least, if you met your spouse in high school, college, or grad school, you are 41 percent less likely to get divorced.
-- The other major difference was couples who met in bars were 24 percent more likely to get divorced than expected
- 
-your sexual history
-- Women who lost their virginity as a teenager are more than twice as likely to get divorced in the first 5 years of marriage than women who waited until age 18 or older
- marriage.
-- When compared to women who began sexual activity in their early 20s, girls who initiated sexual activity at ages 13 or 14 were less than half as likely to be in stable marriages in their 30s. – (in this study a stable marriage was defined as a marriage of over five years).
-- the harmful effects of early sexual activity and multiple sexual partners among women
-- Women with 6 or more premarital sexual partners are almost 3 times less likely to be in a stable marriage.
-your habits, your marriage
-- The risk of divorce was said to be almost doubled – 97 percent higher – when the mother went out to work but her husband made a “minimal contribution” to housework and childcare.
-- In 2011, Facebook was cited as a major contributor to 1/3 of divorce petitions examined by one U.K. study.
-- Pornography addiction was cited as a factor in 56 percent of divorces according to a recent study.
-our parent’s relationship
-- If your parents are happily married, your risk of divorce decreases by 14 percent.
-- If your parents married others after divorcing, you’re 91 percent more likely to get divorced.
-- According to Nicholas Wolfinger in “Understanding the Divorce Cycle”, the risk of divorce is 50 percent higher when one spouse comes from a divorced home and 200 percent higher when both partners do.
-- In addition, children of divorce are 50 percent more likely to marry another child of divorce.
-- Certain studies have shown that daughters of divorced parents have a 60 percent higher divorce rate in marriages than children of non-divorced parents while sons have a 35 percent higher rate.
-
-if you have kids or not
-- The divorce rate for couples with children is as much as 40 percent lower than for those without children.
-- Half of all children in the United States will witness the ending of a parent’s marriage.
-- Of this half, close to 50 percent will also see the breakup of a parent’s second marriage.
-- Having a baby before marriage can increase the risk of divorce by 24 percent
-- Couples are an astonishing 76-95% more likely to get divorced if only one of them smokes. The amount increases when the wife is the partner with the habit.
-- While couples who both smokes have it a bit better, a 1998 study found they are still 53% more likely than non-smoking couples to end their marriage.
-- Each liter of alcohol consumed raises the chance of divorce by 20%! Factor in that the average American drinks 9.4 liters of alcohol per year, raising their divorce likely hood by 188%!
-- if one spouse is a heavy drinker and the other is not, they are 60 percent more likely to get divorced.
-- A recent study of divorce petitions found that nearly 15 percent of them cited video game addiction as a major factor in the decision to get divorced.
-- If a close friend gets divorced, you are 147% more likely to become divorced and 33% more likely if a friend of a friend is divorced.
-- Studies at the University of California and Brown University cite that when a married person works with someone who is in the process of divorcing, it increases the married person chances of divorce by 75%.
-- These same studies also found that people with divorced sisters or brothers are 22% more likely to get divorced than if siblings are not divorced.
- 
 Professions with highest divorce rates:
 - Celebrity divorce rate 67 per cent higher than other couples
 - Dancers – 43
