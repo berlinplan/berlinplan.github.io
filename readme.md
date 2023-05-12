@@ -657,7 +657,7 @@ If a freedom harms others, is it sustainable?
 
 #### Which criteria are crucial for establishing a stable family?
 
-+Red flags for stable relationships:
+Red flags for stable relationships:
 <sub> *if someone* </sub>
 - <sub> Has a history of multiple partners prior to marriage or was sexually active in their teenage years. </sub>
 - <sub> Consumes alcohol, drugs, or tobacco. </sub>
@@ -666,7 +666,6 @@ If a freedom harms others, is it sustainable?
 - <sub> Is employed in occupations involving the body, entertainment, and physical appearance. </sub>
 - <sub> Seeking partner in bars and clubs and dating apps. (~40%)(126) </sub>
 - <sub> Approaches strangers on the street without hesitation and inhibitions with sexual intentions. </sub>
---------------
 
 #### Do women favor polygynous societies?
 
@@ -676,127 +675,93 @@ If a freedom harms others, is it sustainable?
 
 > Online dating apps claim to empower women and promote Sexual equality. (150)
 
-#### How do psychopathic dating platforms lead to international inequality?
+#### How do psychopathic dating platforms contribute to international inequality?
 
 Online dating has been linked to an increase in sexual activity. Multiple sexual activity leads to higher turnover rates among sexual partners, which can decrease birthrates and cause ageing population.(13,14,61,62)
 
-#### why psychopaths thrive in online dating environments?
+Psychopaths tend to **thrive** in online dating environments due to their engagement in promiscuous sexual behavior and short-term marital relationships.(59)
 
-> Psychopaths tend to engage in promiscuous sexual behavior and have short-term marital relationships.(59)
+#### How do dating apps contribute to open relationships and polygyny?
 
-#### How do dating apps contribute to the emergence of open relationships and polygyny?
-
-> The popularity of dating apps is on the rise, with millions of users (55, 56)
-> Dating apps facilitate access for the top 5% of men to 95% of women, leading to an increase in sexual activity and a rise in open relationships.(56,62,149)
-> Polygamous scenarios often result in the phenomenon of polygyny, where males show renewed sexual interest upon encountering new females , unlike females who are unaffected by the Coolidge effect. (146)
-> Studies have indicated that men exhibit a higher preference for variety in short-term partners as compared to women. A Tinder-style experiment also found that men selected more potential sex partners than women.(151,152)
+Dating apps are increasingly popular, attracting millions of users. They enable the top 5% of men to connect with 95% of women, leading to more sexual activity and an increase in open relationships. This, in turn, often results in polygyny, where men exhibit renewed sexual interest when encountering new females. Unlike females, men are influenced by the Coolidge effect, seeking variety in short-term partners. Research studies and experiments, including a Tinder-style study, have consistently shown that men exhibit a higher preference for multiple sexual partners compared to women. (55,56,62,146,149,151,152)
 
 #### How does polygyny affect men, women, and children in society?
 
 > <sub> Polygynous societies result in lower status and freedom for women, increased violence, and abuse, and poorer mental and physical health. Children in polygynous families also experience more problems and have higher mortality rates. Polygyny creates an imbalance in the number of unmarried men and women, leading to intense competition among men for mates and motivating male control over their female family members. Unmarried men are more likely to commit crimes than married men, and polygynous husbands have more extramarital affairs than monogamous husbands. Additionally, competition for wives increases in societies where women and children are important laborers, leading to a larger number of unmarried males.</sub>
 
-#### Do competitions on psychopathic platforms generate value and Improvment?
+#### Do competitions on psychopathic platforms create value and foster improvement?
 
-The use of beauty operations, dating apps, pickup and alpha masculinity coaches, hook up and ghost culture, style coaches, and online dating profile designers is on the rise. (58, 57, 60)
+The popularity of various platforms promoting psychopathic behaviors such as beauty operations, dating apps, pickup and alpha masculinity coaches, hook up and ghost culture, style coaches, and online dating profile designers is increasing. (58, 57, 60)
 
-#### Is it morally justifiable to allow transgender individuals to participate in women's sports competitions? (193)
+#### Is it morally justifiable to allow transgender individuals in women's sports competitions? (193)
 
-#### seeking fairness in sports competitions, bullshit?
+#### Seeking fairness in sports competitions, bullshit?
 
-> <sub> Athletes from wealthier, psychopathic countries are celebrated and proud for defeating their loser competitors from poorer countries, regardless of whether they used performance-enhancing drugs or were trained from a young age. (194) </sub>
+<sub> Athletes from wealthy Countries triumph over their less fortunate opponents from poor Countries, regardless of doping or early training. Young athletes face a greater risk of overuse injuries due to sports specialization. Commercialization has stripped away the joy, turning athletes into marketing products. Match-fixing and doping cast doubt on sports results. Profitability rests with top-level tournaments, favored by viewers. In light of these issues, the quest for fairness in sports competitions may seem meaningless.(194) </sub>
 
-> <sub> Greater risk of overuse injuries in young athletes due to gradual and worsening effects of sports specialization on muscles, bones, tendons, and ligaments. </sub>
+#### How can individuals spend their free time without psychopathic entertainment?
 
-> <sub> Sports have become commercialized for TV, leading to loss of fun. Athletes are turned into marketing products, losing their personalities. Legitimacy of sports results is questioned due to match-fixing and doping. Only top-level tournaments are profitable because people prefer to watch the best. </sub>
+- <sub> Engage in quality time with family, enjoying outdoor activities, pursuing creative hobbies, playing games, reading, and volunteering. Avoid the sexualized content on platforms like TikTok and Instagram. </sub>
+- <sub> Contribute to environmental sustainability by addressing past damages and supporting local food production instead of relying on distant imports like avocados. </sub>
 
-#### How can an individual spend their free time if they decrease their involvement in psychopathic entertainment?
+### What defined the pre-religious barbaric era?
 
-> <sub> Opt for spending quality time with family through activities such as outdoor recreation, creative pursuits, playing games, reading, education, and volunteering, rather than being exposed to sexualization on social media channels like TikTok and Instagram. </sub>
+> During this era, common behaviors included living in clans, following minor prophets and gods, exhibiting pride and boasting, practicing polygyny, engaging in gambling and alcohol consumption, embracing superstitions, participating in various sexual activities, seeking personal gain, and practicing usury. Bloody fights were frequent, and physical attributes such as muscles, height, and testosterone levels for men, as well as physical features like breast and hip size for women, played significant roles in attraction. (188) 
 
-> <sub> clean past environmental damages or produce food locally instead of importing avocados from faraway places. </sub>
+## Modern psychopathic barbarism: Barbaropathism?
 
-### What characterized the pre-religious barbaric era?
+- <sub> Berlin hosts diverse clans: Lebanese Shiites, Lebanese Sunnis, Turks, Afghans, hipsters, conservatives, and Moroccans. </sub>
+- <sub> Attraction factors: Muscles, bodybuilding, testosterone injections for men; cosmetic procedures, large breasts, social media presence for women. </sub>
+- <sub> Online Clans: Facebook groups, fan communities, YouTube algorithms leading to continuous recommendations on similar topics. </sub>
+- <sub> Influencers and followers: New-age prophets? </sub>
+- <sub> Pride and boasting: Amplified on social media. </sub>
+- <sub> Marriage dynamics: Polygamy, polygyny, pickup strategies, masculinity/femininity coaches, Red/Black/Yellow pill ideologies. </sub>
+- <sub> Gambling: Smartphone apps, online casinos, Coin Master. </sub>
+- <sub> Superstitions: Energy spirituality on social media. </sub>
+- <sub> Sexual activities: Bumble, Hinge, Tinder leading to open relationships and hypergyny. </sub>
+- <sub> Profiteering and usury: Crypto trading, forex, passive income, property investments. (189) </sub>
 
-> common behaviors: living in clans, following little prophets and gods, pride, boasting, polygyny, gambling, alcohol, superstitions, various sexual activities, profiteering, and usury. Bloody fights were a regular occurrence, and physical attributes such as muscles, height, testosterone for men and physical features like breast and hip size for women were important factors for attraction. (188) 
+#### Would psychopathic solutions address the inequality caused by the psychopathic system?
 
-## Modern psychopathic barbarism ->  Barbaropathism? 
+Boris Palmer's proposal suggests that asylum seekers should be required to work, social benefits should be eliminated, and non-compliant individuals should be deported (196).
 
-- Berlin is home to various clans, such as Lebanese Shiites, Lebanese Sunnis, Turks, Afghans, hipsters, and conservative and Moroccan societies.
-- Factors of Attraction: Men - Muscles, Bodybuilding, Testosterone Injections, Supplements. Women - Cosmetic Procedures, Large Breasts, Beauty Operations, Botox, Social Media Presence.
-- Online Clans: Facebook Groups, Fan communities, YouTube algorithm: watch a video, get numerous suggestions about the same topic.
-- Influencer and Followers -> New Prophets?
-- Pride and boasting -> social Media?
-- Marriage: Polygamy, polygyny, alpha/beta pick-up strategies, masculinity and femininity coaches, Red, Black, and Yellow pill.
-- Gambling -> Smartphone Apps , online casino, Coin Master? 
-- Superstitions->  social media chanels Energy Spirituality ...
-- Varoius sexual Activities -> bumble, hinge tinder -> open Relationships-> hypergyny
-- Profiteering and usury -> Crypto trading, forex, passive income, Invest Bank Money in Appartements (189)
----------
+Additional psychopathic solutions could involve building extensive walls beyond Germany/EU borders and preventing marginalized societies from producing atomic bombs by Sanctions.
 
-#### would psychopathic Solutions solve the inequality caused by the psychopathic system?
-
-In his proposal, Boris Palmer suggested that asylum seekers must work, social benefits should be removed, and those who fail to follow the rules should be deported.(196)
-
-#### Which further solutions could be proposed by psychopaths to solve the inequality caused by the psychopathic system?
-
--construct massive walls beyond Germany/EU borders.
--Prevent the production of atomic bombs in marginalized societies.
-
-## Does it make sense to wait for psychopaths to create a simple Voting app?
+## Does it make sense to wait for psychopaths to create a simple voting app?
 
 #### Is it possible for a group of people to collectively brainstorm strategies for creating a public utility app?
 
-A Group for collaborate and devise strategies for developing an app that serves the public's needs,*Must be:*
+A group collaborating to devise strategies for developing an app that serves the public's needs *must:*
 
-> A boardless association, without proprietorship, psychopathical and hierarchical Structures, and without attractive Positions for psychopaths.
+- Be an inclusive association without hierarchical structures or attractive positions for psychopaths.
+- Establish a structure where sociopathic behavior, the longing for popularity, the pursuit of profit, claims of ownership, aspirations for celebrity status, public disclosure of identity, engagement in university lectures, or a social media presence have no place.
+- Have two primary objectives:
+- <sub> Devise strategies for establishing a non-psychopathic platform for conducting initial societal app voting. </sub>
+- <sub> Make decisions regarding the website's content, including questions and methods for engaging and mobilizing individuals.</sub>
 
-> A structure within which there is **no room** for sociopathic behavior, the longing for popularity, the pursuit of profit, claims of ownership, aspirations for celebrity status, public disclosure of identity, engagement in university lectures, or a social media presence.
+## "Homo homini lupus" - A man is a wolf to another man, **but not always**?
 
-> A group which has only two primary objectives: 
+Due to high morality, concerns after the Fukushima accident, or increased awareness, Germany has decommissioned its nuclear power plants, despite other countries still investing in this technology.
 
-> <sub> first, to devise strategies for establishing a non-psychopathic platform for conducting initial societal app- voting; </sub>
+Over the past 2000 years, around 70 generations have lived, while approximately 33,000 future generations will be responsible for managing nuclear waste. Is it morally justifiable for one generation to harm 33,000 generations? 
 
-> <sub> second, to make decisions regarding this website's content, including questions and methods for engaging and mobilizing individuals. </sub>
+The decision to shut down nuclear power plants in Germany has resulted in significant costs, power shortages, and economic losses for its people. (201,202, 203, 204,205,206)
+  
+## You may send an Email if you want: 
 
-## Homo homini lupus, "A man is a wolf to another man,"?
-
-### Germany has decommissioned all of its nuclear power plants, despite other countries investing in this technology! (201)
-
-> While ~70 Generations has lived over the past 2000 years, ~33000 Generations in Future have to manage nuclear waste[201](https://www.base.bund.de/DE/themen/kt/ausstieg-atomkraft/ausstieg_node.html)[202](https://answersingenesis.org/bible-timeline/genealogy/how-many-human-generations-are-there-from-adam-until-today/)
-
-> One generation harms 33,000 Generations, morally justifiable?
-
-> The decision to switch off nuclear power plants resulted in significant costs, power shortages, and economic losses for the people of Germany. [203](https://amp2.wiwo.de/unternehmen/energie/energiewende-der-wirtschaftliche-schaden-eines-schnellen-atomausstiegs/5154328.html)
-
-#### Why did Germany switch off its nuclear power plants ?
-
-> <sub> ethically unacceptable [205](https://www.deutschlandfunk.de/atomenergie-ist-per-se-ethisch-nicht-vertretbar-100.html) </sub>
-
-> <sub> worries after Fukushima accident [206](https://www.bfs.de/DE/themen/ion/notfallschutz/notfall/fukushima/unfall.html) </sub>
-
-> <sub> awareness [204](https://www.greenpeace.de/klimaschutz/energiewende/atomausstieg#:~:text=Am%20Samstag%2C%2015.,Der%20Atomausstieg%20ist%20vollzogen) </sub>
-
-## send an Email if you want: 
-
-> Participate and collaborate to brainstorm strategies for developing a Voting app. 
-
-<sub> Once the volunteer count reaches 150, you will be provided with instructions for participation via WhatsApp, Telegram, email, or other suitable means. </sub>
-
-> To share your ideas or suggestions for creating the initial groups for the voting platform.
-
-> changing this page's content.
+to participate in brainstorming strategies for developing a Voting app. 
+  
+> Once we reach 150 volunteers, you will be provided with instructions for participation via WhatsApp, Telegram, email, or other suitable means. Your input is also welcome How to create the initial groups for the voting platform. Feel free to suggest any changes to this page's content.
 
 Email: theberlinplan@gmail.com
 
-## What is the correct way to distribute this content?
+## How should this content be distributed correctly?
 
-Posting this content on TV, social media, or other psychopathic platforms and profiting from it or gaining notoriety is morally wrong unless (Over)society determines otherwise.
-
-Anyone can create a website, distribute this content, create Group and potentially be compensated for their work. people's Groups can merge in the future. 
+Posting this content on TV, social media, or other psychopathic platforms and profiting from it or gaining notoriety is morally wrong unless (Over)society determines otherwise. However, individuals are free to create websites, distribute the content, form groups, and potentially receive compensation for their efforts. These groups may also merge in the future.
  
 #### Alms of science is its distribution (200)
 
-> This content is for free.
+> This content is free.
 
 ## Did you get this Page on the street? 
 
@@ -807,6 +772,6 @@ You might want to consider sending the person compensation for his effort.
 
 #### Paypal: theberlinplan@gmail.com 
 
-*for other payment methods contact by Email:*
+*alternative payment methods via email.* theberlinplan@gmail.com 
 
-**Calculating Compensation:** Taking into account 8 hours of approach work per day (with 10 minutes per person) and a total of 48 people approached, if one person pays per day, the minimum wage of €12.5 per hour would require €100 for each book. However, considering the affordability of the majority of society, a more suitable price for the effort would be 10€-20€
+**Calculating Compensation:** With 8 hours of daily work, if 1 out of 48 approached individuals pays, with each interaction lasting 10 minutes, it would require €100 per book based on the minimum wage of €12.5 per hour. However, a more suitable price range for affordability is €10-€20.
