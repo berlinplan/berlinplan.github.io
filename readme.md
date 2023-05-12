@@ -505,61 +505,53 @@ Is it morally acceptable to use barbaric torture methods with an 80% success rat
 
 **Why are current ethical rules insufficient?**
 
-> While Kant's Golden Rule forbids torture, Consequentialism considers it ethical if the result is favorable. Psychopaths often justify their actions by claiming that the outcome will be good.
+> While Kant’s Golden Rule forbids torture, consequentialism considers it ethical if the result is favorable. Psychopaths often justify their actions by claiming that the outcome will be good. Religious and political psychopaths seek moral justification from leaders or judges.
 
-> Religious and political psychopaths suggest seek moral justification from leaders or judges.
+#### How can an app solve the torture dilemma for the first time in human history?
 
-#### How an app solve the torture Dilemma for the first time in human history?
+  It is morally wrong to torture if society refuses any kind of torture. It is morally fine to torture if society approves limited use of torture to gather information but not prolonged use.
 
-It is moraly wrong to torture if the society refuse any Kind of torture.
+#### Is it morally acceptable to use psychopathic platforms for good goals? 
 
-It is moraly fine to torture if the society approve limited use of torture to get Information but not prolonged use.
-
-#### use Psychopathic Platforms for Good Goals, moraly acceptable? 
-
-*Aka. The end justifies the means?* (144)
-
+*In other words, does the end justify the means? (144)*
+ 
 The app aims to resolve the following dilemmas as examples:
 
-> - End: save 1 life
-> - Mean: kill 1 
-> - No: due to App -> kill -> big damage
+> <sub> End: save 1 life </sub>
+> <sub> Mean: kill 1 </sub>
+> <sub> No: due to the app -> kill -> big damage </sub>
 --------------
-
-> - End: save 7 lifes
-> - Mean: kill 1
-> - No: due to App -> kill -> big damage
+> <sub> End: save 7 lives </sub>
+> <sub> Mean: kill 1 </sub>
+> <sub> No: due to the app -> kill -> big damage </sub>
 --------------
-
-> - End: save all human kind </sub>
-> - Mean: kill 1 </sub>
-> - X: An emergency situation will trigger an app notification for all people on the planet to vote.
+> <sub> End: save all humankind </sub>
+> <sub> Mean: kill 1 </sub>
+> <sub> X: An emergency situation will trigger an app notification for all people on the planet to vote. </sub>
 --------------
-
-> - End: rescue a dog trapped inside a car 
-> - Mean: break others property, enter privat room
-> - Yes: app-> Choosing not to save a life is a greater harm than entering a private room.
+> <sub> End: rescue a dog trapped inside a car </sub>
+> <sub> Mean: break others' property, enter a private room </sub>
+> <sub> Yes: app -> Choosing not to save a life is a greater harm than entering a private room. </sub>
 --------------
 <sub> **Can lying in an election to achieve power for a good cause later be morally justified?** </sub>
 
-> - End : save lifes  
-> - Mean : lie through election
-> - No : app-> Systematic lying in elections causes greater societal and personal damage than the benefit of saving lives later.
+> <sub> End: save lives </sub>
+> <sub> Mean: lie through the election </sub>
+> <sub> No: app -> Systematic lying in elections causes greater societal and personal damage than the benefit of saving lives later. </sub>
 --------------
-
-> - End : save milion lifes
-> - Mean : kill thousends, Atom bomb Hiroshima? 
-> - app
+> <sub> End: save million lives </sub>
+> <sub> Mean: kill thousands, Atom bomb Hiroshima? </sub>
+> <sub> App: [?]  </sub>
 --------------
 #### a skinny professional boxer approach a random passer-by on the street and, after obtaining his consent, beat him into a coma, moraly acceptable?
 
-#### What is wrong with Debatte-Culture? 
+#### What is wrong with debate culture?
 
-> Critiques of debate: Sophistry fallacy, polarization, conversation, and speech are trainable skills, which involve the brain's hypertrophy and may lead to potential bias.(192)
+> Critiques of debate: Sophistry fallacy, polarization, conversation, and speech are trainable skills that involve the brain's hypertrophy and may lead to potential bias. (192)
 
-## Go viral , instead of Writing a free book?
+## Instead of writing a free book, why not go viral?
 
-train your brain in different topics, ask unprepared individuals on the street controversial questions, conduct cast interviews and debates, edit/cut videos as desired, aim for viral fame on platforms like YouTube, TikTok, and Instagram, polarize society, and make money with the intention of **reducing inequality**?
+Train your brain in different topics, ask unprepared individuals on the street controversial questions, conduct cast interviews and debates, edit/cut videos as desired, aim for viral fame on platforms like YouTube, TikTok, and Instagram, polarize society, and make money with the intention of **reducing inequality?**
 
 #### Why Döner-Kebab-Sellers are Killers? 
 
