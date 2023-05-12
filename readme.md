@@ -6,45 +6,45 @@
 
 #### Benefits of slavery for World Development: (224)
 
-> <sub> **1.The improvement of African lives:** The slave trade fostered international commerce between Africa, the USA, and Europe. Numerous goods were exchanged with Africa in return for slaves. These products were subsequently utilized within Africa to enhance the well-being of its people. Additionally, the slave market attracted increased European visitors who engaged in goods exchange with Americans and Africans. </sub>
+> <sub> **1. The improvement of African lives:** The slave trade fostered international commerce between Africa, the USA, and Europe. Numerous goods were exchanged with Africa in return for slaves. These products were subsequently utilized within Africa to enhance the well-being of its people. Additionally, the slave market attracted increased European visitors who engaged in goods exchange with Americans and Africans. </sub>
 
-> <sub> **2.Multiculturism:** When different countries interacted, they exchanged their culture. This helped in building long-term relationships and developing nations. Besides, the slave trade also led to intermarriage. People from different continents intermarried to produced mixed races. </sub>
+> <sub> **2. Multiculturalism:** When different countries interacted, they exchanged their culture. This helped in building long-term relationships and developing nations. Besides, the slave trade also led to intermarriage. People from different continents intermarried to produce mixed races. </sub>
 
-> <sub> **3.Free trade:** Slavery contributes to free trade by providing European farms with cost-free labor, leading to increased profitability and economic growth.</sub> 
+> <sub> **3. Free trade:** Slavery contributes to free trade by providing European farms with cost-free labor, leading to increased profitability and economic growth.</sub> 
 
-> <sub> **4.Quick production:** Slavery enables industries to achieve rapid production as slaves efficiently contribute to the manufacturing process. </sub>
+> <sub> **4. Quick production:** Slavery enables industries to achieve rapid production as slaves efficiently contribute to the manufacturing process. </sub>
 
-> <sub> **5.Economical stability:** By relying on enslaved labor in their firms, Britain harnessed the economic benefits of slavery, which served as a stabilizing force for the country's economy during the colonial era. </sub>
+> <sub> **Economic stability:** By relying on enslaved labor in their firms, Britain harnessed the economic benefits of slavery, which served as a stabilizing force for the country's economy during the colonial era. </sub>
 
-> <sub> **6.Transport system:** The transport industry developed rapidly across the Atlantic ocean. This is because thousands of slaves would be transported each month. Inventors started making ships that would accommodate more people and goods. </sub>
+> <sub> **6.Transport system:** The transport industry developed rapidly across the Atlantic Ocean. This is because thousands of slaves would be transported each month. Inventors started making ships that would accommodate more people and goods. </sub>
 
-> <sub> **7.Job security:** The master had to feed the slaves even when they get sick or become too old. This was the main reason why some people would join slavery voluntarily. Also when there was no work available, the master had to feed his slaves for future jobs. </sub>
+> <sub> **7.Job security:** The master had to feed the slaves even when they got sick or became too old. This was the main reason why some people would join slavery voluntarily. Also, when there was no work available, the master had to feed his slaves for future jobs. </sub>
 
 > <sub> **8.Exploration:** Slave trade was one of the factors that contributed to exploration in Africa, Europe, and America. Traders would explore new places each time they visited a different market. </sub>
 
-> <sub> **9. Development:** Slave owners saved a lot of money as they did not have to hire employees. The slaves worked for free and only require food and medication. This helped the slave owners to make more profits and maybe develop their areas. </sub>
+> <sub> **9. Development:** Slave owners saved a lot of money as they did not have to hire employees. The slaves worked for free and only required food and medication. This helped the slave owners make more profits and maybe develop their areas. </sub>
 
-> <sub> *slavery was the engine of us growth(214)* </sub>
+> <sub> *Slavery was the engine of US growth (214).* </sub>
 
-> <sub> *colonization had a huge Impact on Development in Western countries(215)* </sub>
+> <sub> *Colonization had a huge impact on development in Western countries (215).* </sub>
 
-##  blocking streets and increase polarization to solve environmental crisis, correct? 
+##  Blocking streets and increasing polarization to solve the environmental crisis, correct? 
 
 > Can street blockades for Instagram videos and power struggles within the political system effectively address environmental issues?
 
 or
 
-> <sub> Would granting voting power to marginalized groups such as children & 3rd-world countries, lead to equality? as granting voting Power to African American reduced inequality. (223) </sub>
+> <sub> Would granting voting power to marginalized groups such as children & 3rd-world countries lead to equality, as granting voting power to African Americans reduced inequality? (223) </sub>
 
 > <sub> Can human envy and voting power serve as a check on rapid development, leading to greater equality and environmental protection? </sub>
 
-## are e-cars good for environment or bullshit for Environment?
+## Are e-cars good for the environment or bullshit for the environment?
 
-> e-cars require ten times as many chips as petrol or diesel. Joe Biden passed the Chips Act to restrict the use of US technology in producing semiconductors. Technology producers prioritize profit, leading to poorer countries importing the technology. This creates a cycle of wealth inequality, where the rich get richer and the poor get poorer. E-cars increase inequality(139,140)
+> E-cars require ten times as many chips as petrol or diesel. Joe Biden passed the Chips Act to restrict the use of US technology in producing semiconductors. Technology producers prioritize profit, leading to poorer countries importing the technology. This creates a cycle of wealth inequality, where the rich get richer and the poor get poorer. E-cars increase inequality (139, 140).
 
-> <sub> While most 3rd-world countries have no roads, How much do luxury self Pilot e-cars, NASA space travel, or Hi-Tech super yachts contribute to the well-being of their citizens? </sub>
+> <sub> While most 3rd-world countries have no roads, how much do luxury self-pilot e-cars, NASA space travel, or hi-tech super yachts contribute to the well-being of their citizens? </sub>
 
-> <sub> Is it probable that citizens of the Middle East rather see on damaged streets, Hi-Tech Drones, Aircrafts, Sattelite runned rockets, Tanks and Military Technology of psychopathic countries, or luxury self-driving e-cars? </sub>
+> <sub> Is it probable that citizens of the Middle East would rather see damaged streets, hi-tech drones, aircraft, satellite-run rockets, tanks, and military technology of psychopathic countries, or luxury self-driving e-cars? </sub>
 
 ##  #awareness #equality #woke #muslimlivesmatter, truth?
 
