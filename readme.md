@@ -315,47 +315,45 @@ Why does consumption culture and social media lead to a nuclear disaster?
 
 > <sub> If millionaires were taxed appropriately for all the damages they caused (environmental, inequality, brain drain, forced migrations, travel, and consumerism supported by advertisement), would someone still be able to own empires like Microsoft, Tesla, and Amazon? </sub>
 
-#### Why an Economic sector in the voting app is necessary?
+#### Why is the inclusion of an Economic sector necessary in the voting app?
 
-> <sub> Instead of fixed salaries, incentivizing individuals with a percentage of the losses and victories boosts motivation. to illustrate, each person receives 2% (~2000€) per month, but can earn additional shares through requests or online votes for exceptional performance. </sub>
+> <sub> Incentivizing individuals with a percentage of losses and victories, instead of fixed salaries, enhances motivation. For instance, each person receives a base amount of 2% (~2000€) per month but can earn additional shares through exceptional performance, requests, or online votes. </sub>
 
-> <sub> since non-hierarchical companies are more sustainable for the world and environment, society may vote lower taxes for them.
+> <sub> Non-hierarchical companies, which are more sustainable for the world and environment, may be favored by society through lower taxes determined by voting. </sub>
 
- <sub> Embracing **Egoism**, self-interest, and increased earnings fosters greater competition, productivity, and sustainability. </sub>
+ <sub> Embracing egoism, self-interest, and increased earnings fosters greater competition, productivity, and sustainability. </sub>
 
-## How does the lack of respect for human egoism contribute to communism and laziness?
+## How does the disregard for human egoism contribute to communism and laziness?
 
  <sub> *Authentic egoists:* </sub>
 
-> <sub> seek both the highest workplace equality and a commitment to fairness towards the world and the environment, enabling them to enjoy life to the fullest </sub>
+> <sub> Strive for workplace equality and fairness towards the world and the environment, enabling them to lead fulfilling lives. </sub>
 
-> <sub> prioritize equality as the only means to ensure long-term safety and cleanliness within societies, while preventing revolutions and theft. </sub>
+> <sub> Prioritize equality as a means to ensure long-term safety and cleanliness in societies, thereby preventing revolutions and theft. </sub>
 
-> <sub> oppose global inequality due to their aversion to the possibility of a nuclear attack </sub>
+> <sub> Oppose global inequality due to the potential risk of a nuclear attack. </sub>
 
-> <sub> uphold sustainable values, abstain from harmful substances and behaviors such as alcohol, cigarettes, promiscuity, pornography, and excessive social media usage, fostering a stable family unit. This, in turn, reduces dependence on imported labor, curbs the emergence of psychopathic multiculturalism and parallel societies, mitigates inequality, and prevents societal unrest. </sub>
+> <sub> Uphold sustainable values, abstaining from harmful substances and behaviors, and promoting stable family units. This reduces dependence on imported labor, mitigates inequality, prevents societal unrest, and curbs the emergence of psychopathic multiculturalism and parallel societies. </sub>
 
-## Multiculturalism: Does it lead to a tolerant and open-minded society or paralyzed parallel societies?
+## Multiculturalism: Does it lead to a tolerant and open-minded society or foster parallel societies?
 
-> Multiculturalism is often seen as a way to promote cultural exchange, tolerance, openness to other cultures, and new ideas. (110) However, there are also studies that show the opposite. Multiculturalism leads to social tensions, culture clash, polarization, marginalization, and language problems.
+> Multiculturalism is often viewed as a means to promote cultural exchange, tolerance, openness, and new ideas. However, studies indicate that it can also lead to social tensions, culture clashes, polarization, marginalization, and language problems.(110)
 
-> A bounded confidence model is a model of consensus-like opinion dynamics in which agents interact only when their opinions are close enough.(111)
+> A bounded confidence model describes consensus-like opinion dynamics, where agents interact only when their opinions are sufficiently similar. (111)
 
-> Free circulation of information, social media, and debates can lead to group polarization.(112)(113) 
+> Free circulation of information, social media, and debates can contribute to group polarization. (112)(113) 
 
-> People with similar points of view tend to follow, share, and comment on each other’s posts. Discussion of racial attitude items with others having similar attitudes significantly increased the gap between high- and low-prejudice groups. Based on that, extremists who meet and interact with each other in a place get even more extremist, which can raise the gap of parallel societies. (114,115,116)
+> People with similar viewpoints tend to follow, share, and comment on each other's posts. Discussions on racial attitudes with individuals who hold similar attitudes can significantly increase the gap between high- and low-prejudice groups. This interaction among extremists can further exacerbate the gap and contribute to the formation of parallel societies. (114,115,116)
 
-#### Why Cultural dialogue ends in tribalism?
+#### Why does cultural dialogue often result in tribalism?
 
-> The exchange of ideas and debates lead to more polarization.
+> The exchange of ideas and debates can lead to increased polarization.
 
-> The decrease in the percentage of people who take friends or marry someone with different political viewpoints reflects how social media has made the atmosphere so polarizing.
+> The decrease in the percentage of people who befriend or marry individuals with different political viewpoints reflects how social media has contributed to polarization.
 
-> Devout religious belief or observance is not a predictor of extremism. However, studies show that support for terrorism in majority Muslim countries is related to how often you pray in a mosque, not how often you pray or how devout you are about food prohibitions. The same is also true of right-wing Jewish extremists in Israel.
+> Devout religious belief or observance does not necessarily predict extremism. However, studies indicate that support for terrorism in majority Muslim countries is related to mosque attendance rather than individual prayer frequency or adherence to food prohibitions. Similar patterns can be observed among right-wing Jewish extremists in Israel.
 
-> Nationalism and tolerance for autocratic leaders are rising all around the world most likely as a reaction to globalization.
- 
-> Research suggests that it’s bad for everyone’s well-being when the rich don’t have contact with the poor or the poor with the middle class. (211,212,213)
+> Nationalism and tolerance for autocratic leaders are rising globally, possibly as reactions to globalization. Research suggests that the well-being of everyone is negatively impacted when the rich do not interact with the poor or when the poor have limited contact with the middle class. (211,212,213)
 
 #### Can multiculturalism contribute to international inequality?
 
