@@ -867,13 +867,13 @@ Anyone can create a website, distribute this content, create Group and potential
 
 ## Did you get this Page on the street? 
 
-You can consider sending a compensation amount to the effort of the person who gave it to you.
+You might want to send the person a compensation for his effort.
 
 #### Name: Berlin Plan
 #### IBAN: DE73500105175414887887
 
 #### Paypal: theberlinplan@gmail.com 
 
-**for other Methods contact by Email: **
+*for other payment methods contact by Email:*
 
 **Calculating Compensation:** Taking into account 8 hours of approach work per day (with 10 minutes per person) and a total of 48 people approached, if one person pays per day, the minimum wage of €12.5 per hour would require €100 for each book. However, considering the affordability of the majority of society, a more suitable price for the effort would be 10€-20€
