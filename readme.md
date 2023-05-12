@@ -109,9 +109,9 @@ fighting inequality while benefiting & generating inequality, bullshit?
 
 #### social Media is not entirely harmful, people are responsible for managing their own usage, right?
 
-> Is it a valid argument for creators on OnlyFans to claim that individuals are responsible for their own porn addiction, and that consumers must be aware of what they are consuming?
+> Is it a valid argument for pornohraphic creators to claim that individuals are responsible for their own porn addiction, and that consumers must be aware of what they are consuming?
 
-#### Is it socially and morally acceptable that an OnlyFans star earns 270 times more than a nursing assistant who makes ~ 1300€ per month? (1)(4)(5)
+#### Is it socially and morally acceptable that a social Media star earns 270 times more than a nursing assistant who makes ~ 1300€ per month? (1)(4)(5)
 
 > <sub> 1. The content produced on OnlyFans is considered pornographic, and such activity is deemed harmful to society (28)(3). </sub>
 
