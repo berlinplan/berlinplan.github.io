@@ -48,37 +48,39 @@ or
 
 ##  #awareness #equality #woke #muslimlivesmatter, truth?
 
-> <sub> Luxury brands such as Louis Vuitton and Gucci leverage their influential social media accounts to endorse #equality , #blacklivesmatter in the fight against social injustices.(218) </sub>
+> <sub> Luxury brands such as Louis Vuitton and Gucci leverage their influential social media accounts to endorse #equality and #blacklivesmatter in the fight against social injustices (218). </sub>
 
-> <sub> Consumers use luxury goods to signal their social status (222) </sub>
+> <sub> Consumers use luxury goods to signal their social status (222). </sub>
 
-increase inequality through production, but employ on social media to address social injustices, bullshit?(219)
+increase inequality through production but employ social media to address social injustices, bullshit?(219)
 
-> Hypocrisy: A hypocrite is basically characterised by behaviour that contradicts what one claims to believe or feel. (217)
+> Hypocrisy: A hypocrite is essentially characterized by behavior that contradicts what one claims to believe or feel (217).
 
-## Follow, subscribe, comment and Like My content, right? 
+## Follow, subscribe, comment, and like my content, right? 
 
-> pay my Lamborghini because i want to do Activity against inequality.
+> Pay for my Lamborghini because I want to take action against inequality.
 
-> Support me to get Advertisements > consumption culture > Environment damages > World inequality. 
+> Support me to get advertisements, which promote a consumption culture, causing environmental damage and world inequality.
 
-fighting inequality while benefiting & generating inequality, bullshit?
+Is fighting inequality while benefiting from and generating inequality just nonsense?
 
-**Activism in social media** Get maximum attention for your Instagram activism with these top hashtags: (78)
+Activism on social media: Get maximum attention for your Instagram activism with these top hashtags: (78)
+
 > <sub> #activism (48%), #activist (8%), #blacklivesmatter (6%), #feminism (5%), #humanrights (5%), #equality (5%), #socialjustice (5%), #love (4%), #change (4%), and #nonprofit (4%) #climatechange, #vegan, #peace, #women, #freedom, #lgbt, #support, #pride, #mentalhealth, #community, #change, #lgbtq, #charity, #govegan, #awareness, #bodypositivity, #WomensMarch, #YouAintNoMuslimBruv, and #MeToo. </sub>
 
-<sub> sell "Anti-inequality" content on Economical Corporations Platforms, Spotify , YouTube, Google, Instagram, Facebook, Amazon, Twitter, TikTok, and TV, Bullshit? 
+<sub> Sell "Anti-inequality" content on economical corporate platforms such as Spotify, YouTube, Google, Instagram, Facebook, Amazon, Twitter, TikTok, and TV. Is this nonsense? 
 
-> <sub> Write a book on inequality, publish it on Amazon, obtain 5-star reviews (each ~4€ on Telegram: "Amazon review DE, Amazon Produkttester, Amazon De tester 2"), and make it a bestseller through the Matthew Effect. The Matthew Effect describes a social pattern where initial advantages lead to further advantages, creating a growing disparity between resource-rich and resource-poor individuals. (141) </sub>
-## Freedom for drug dealers, acceptable?
+> <sub> Write a book on inequality, publish it on Amazon, obtain 5-star reviews (each ~4€ on Telegram: "Amazon review DE, Amazon Produkttester, Amazon De tester 2"), and make it a bestseller through the Matthew Effect. The Matthew Effect describes a social pattern where initial advantages lead to further advantages, creating a growing disparity between resource-rich and resource-poor individuals (141). </sub>
+  
+## Is freedom for drug dealers acceptable?
 
-> all societies prohibit drug dealers by law. 
+> All societies prohibit drug dealers by law.
 
-> <sub> Drug abuse: Addiction, Mental Health Disorder, Violence, Society collapse , high Costs to Social Health, Economy & Family.(8) Drug users cannot be treated as criminals (169) they suffer from  something out of their control (170) £10000 a week trade of drug dealers (171) </sub> 
+> <sub> Drug abuse: Addiction, Mental Health Disorder, Violence, Societal collapse, high Costs to Social Health, Economy & Family (8). Drug users cannot be treated as criminals (169); they suffer from something beyond their control (170). There is a £10,000-a-week trade of drug dealers (171). </sub> 
 
 #### Is donating money to charities with funds obtained from drug selling morally justifiable?
 
-> <sub> Pablo Escobar Colombian drug lord and leader of the Medellin Cartel which controlled as much as 80% international Cocaine. Helped community with building schools and sports fields, donating vast sums to charity, and constructing housing.(187) </sub>
+> <sub> Pablo Escobar, a Colombian drug lord and leader of the Medellin Cartel, which controlled as much as 80% of international cocaine, helped the community by building schools and sports fields, donating vast sums to charity, and constructing housing (187) </sub>
 
 #### The right drug and dosage can cure certain illnesses, addiction is people's own fault, acceptable?
 
