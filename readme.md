@@ -867,7 +867,7 @@ Anyone can create a website, distribute this content, create Group and potential
 
 ## Did you get this Page on the street? 
 
-You might want to send the person a compensation for his effort.
+You might want to consider sending the person compensation for his effort.
 
 #### Name: Berlin Plan
 #### IBAN: DE73500105175414887887
