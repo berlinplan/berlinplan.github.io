@@ -635,47 +635,46 @@ The morally correct behavior is the one that inflicts the least necessary harm u
 - <sub> Professions with the highest divorce rates: celebrities (67%), dancers (43%), bartenders (39%), massage therapists (38%), gaming cage workers (35%), and gaming service workers (32%) </sub>
 - <sub> professions with the lowest divorce rates: farmers, clergy, veterans and agricultural engineers. These occupations have divorce rates ranging from 1% to 7%. </sub>
 
-#### Do stable family values align with religious values?(137)
+#### Do stable family values align with religious values? (137)
 
-> Could accepting islamic/religous values be an effective way to counter the expansion of Islam as it gains influence around the world?
+> Could accepting Islamic/religious values be an effective way to counter the expansion of Islam as it gains influence around the world?
 
-**Values are defined by individuals in the Voting app, similar to religion but without institution and corruption**
+**Values are defined by individuals in the Voting app, similar to religion but without institution and corruption.**
 
-#### does "religion" provide the most sustainable freedom?
+#### Does "religion" provide the most sustainable freedom? 
 
-> Studies reveal that respecting and defining certain factors result in stable relationships which leads to sustainability and equality.
+> Studies reveal that respecting and defining certain factors result in stable relationships, which leads to sustainability and equality.
 
 > Monogamy is the most consistent and stable form of relationship for individuals and families, similar to religious values.
 
 <sub> **Considering aging populations and issues with societal values, is the promotion of stable families the most effective way to promote global equality and consistency?** </sub>
 
-## sexual Freedom and open Relationships, bullshit? 
+## Sexual freedom and open relationships: bullshit?
 
-if a Freedom harms others, is it sustainable?
+If a freedom harms others, is it sustainable?
 
-> a society that adopts open relationships and sexual freedom, resulting in an aging population and increased immigration and inequality, is that freedom: sustainable? 
+> A society that adopts open relationships and sexual freedom, resulting in an aging population and increased immigration and inequality, is that freedom sustainable?
 
 #### Which criteria are crucial for establishing a stable family?
 
-Red Flags for stable Relationships:
++Red flags for stable relationships:
 <sub> *if someone* </sub>
-- have a history of multiple partners prior to marriage
-- Was sexually active in their teenage years.
-- Consumes alcohol, drugs, or tobacco.
-- Engages in pornography, social media, and gaming addictions.- many friends, Family members divorced or not being in a stable Relationships, Red flag? 
-- Employed in occupations involving the body, entertainment, and physical appearance.
-- look for a partner in bars and clubs.
-- seeking partners through dating apps prioritize physical appearance.(~40%)(126)
-- who approach strangers on the street without hesitation and inhibitions with sexual intentions.
+- <sub> Has a history of multiple partners prior to marriage or was sexually active in their teenage years. </sub>
+- <sub> Consumes alcohol, drugs, or tobacco. </sub>
+- <sub> Engages in pornography, social media, and gaming addictions. </sub>
+- <sub> Has many friends or family members who are divorced or not in stable relationships. </sub>
+- <sub> Is employed in occupations involving the body, entertainment, and physical appearance. </sub>
+- <sub> Seeking partner in bars and clubs and dating apps. (~40%)(126) </sub>
+- <sub> Approaches strangers on the street without hesitation and inhibitions with sexual intentions. </sub>
 --------------
 
-#### women favor polygynous societies?
+#### Do women favor polygynous societies?
 
->The argument for women's choice in polygyny posits that they would have the autonomy to select their partners in polygynous societies. Additionally, it assumes that women's rights, stature, and freedoms in traditions of monogamy aren't constrained by the institution itself.(147)
+> The argument for women's choice in polygyny posits that they would have the autonomy to select their partners in polygynous societies. Additionally, it assumes that women's rights, stature, and freedoms in traditions of monogamy aren't constrained by the institution itself. (147)
 
 #### Do dating apps empower or disempower women?
 
-> online dating apps claims to empower women and promote equality. (150)
+> Online dating apps claim to empower women and promote Sexual equality. (150)
 
 #### How do psychopathic dating platforms lead to international inequality?
 
