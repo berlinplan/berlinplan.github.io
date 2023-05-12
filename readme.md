@@ -621,10 +621,13 @@ The morally correct behavior is the one that inflicts the least necessary harm u
   
 > <sub> When mothers work while husbands contribute minimally to housework and childcare, divorce risk nearly doubles. </sub>
   
-- > <sub> Facebook contributes to 1/3 of examined divorce cases, while pornography addiction is a factor in 56% of divorces. </sub>
-- > <sub> Having happily married parents decreases divorce risk by 14%, while having divorced and remarried parents increases it by 91%. </sub>
-- > <sub> Children of divorce are more likely to marry someone who also experienced divorce. </sub>
--> <sub> About 50% of marriages in the US end in divorce or separation. Currently, 15% of adult women in the US are divorced or separated, compared to less than 1% in 1920. </sub>
+<sub> Facebook contributes to 1/3 of examined divorce cases, while pornography addiction is a factor in 56% of divorces. </sub>
+
+<sub> Having happily married parents decreases divorce risk by 14%, while having divorced and remarried parents increases it by 91%. </sub>
+
+<sub> Children of divorce are more likely to marry someone who also experienced divorce. </sub>
+
+<sub> About 50% of marriages in the US end in divorce or separation. Currently, 15% of adult women in the US are divorced or separated, compared to less than 1% in 1920. </sub>
 -> <sub> The average duration of a first marriage that ends in divorce is 8 years and 7 Years for second marriages. </sub>
 -> <sub> If both partners have had previous marriages, they are 90% more likely to get divorced. </sub>
 > <sub> Having strong religious beliefs reduces the risk of divorce by 14%. </sub>
