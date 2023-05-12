@@ -18,23 +18,15 @@
 - <sub> *Slavery played a significant role in the growth of the United States. (214).* </sub>
 - <sub> *Colonization had a profound impact on development in Western countries (215).* </sub>
 
-##  Blocking streets and increasing polarization to solve the environmental crisis, correct? 
+##  Can street blockades and polarization effectively solve the environmental crisis?
 
-> Can street blockades for Instagram videos and power struggles within the political system effectively address environmental issues?
+> As granting voting power to African Americans reduced inequality, would respecting human envy and granting voting power to marginalized groups such as children and third-world countries serve as a check on rapid development, leading to equality and environmental protection? Or would street blockades for Instagram videos and the fight for political power be a more effective approach? (223)
 
-or
+## Are e-cars environmentally friendly or bullshit?
 
-> <sub> Would granting voting power to marginalized groups such as children & 3rd-world countries lead to equality, as granting voting power to African Americans reduced inequality? (223) </sub>
+> E-cars require ten times more chips than petrol or diesel vehicles. The Chips Act, passed by Joe Biden, restricts US technology involvement in semiconductor production. As technology manufacturers prioritize profit, poorer countries rely on importing technology, perpetuating a cycle of wealth inequality that benefits the rich and leaves the poor behind. This contributes to the growing inequality (139, 140).
 
-> <sub> Can human envy and voting power serve as a check on rapid development, leading to greater equality and environmental protection? </sub>
-
-## Are e-cars good for the environment or bullshit for the environment?
-
-> E-cars require ten times as many chips as petrol or diesel. Joe Biden passed the Chips Act to restrict the use of US technology in producing semiconductors. Technology producers prioritize profit, leading to poorer countries importing the technology. This creates a cycle of wealth inequality, where the rich get richer and the poor get poorer. E-cars increase inequality (139, 140).
-
-> <sub> While most 3rd-world countries have no roads, how much do luxury self-pilot e-cars, NASA space travel, or hi-tech super yachts contribute to the well-being of their citizens? </sub>
-
-> <sub> Is it probable that citizens of the Middle East would rather see damaged streets, hi-tech drones, aircraft, satellite-run rockets, tanks, and military technology of psychopathic countries, or luxury self-driving e-cars? </sub>
+> <sub> What would citizens of a poor country rather see on their damaged streets: high-tech drones, aircraft, satellite-run rockets, tanks, and military technology from psychopathic countries, or luxury self-driving e-cars? </sub>
 
 ##  #awareness #equality #woke #muslimlivesmatter, truth?
 
@@ -42,7 +34,7 @@ or
 
 > <sub> Consumers use luxury goods to signal their social status (222). </sub>
 
-increase inequality through production but employ social media to address social injustices, bullshit?(219)
+using social media to address social injustices while contributing to inequality through production? (219)
 
 > Hypocrisy: A hypocrite is essentially characterized by behavior that contradicts what one claims to believe or feel (217).
 
@@ -62,13 +54,13 @@ Activism on social media: Get maximum attention for your Instagram activism with
 
 > <sub> Write a book on inequality, publish it on Amazon, obtain 5-star reviews (each ~4€ on Telegram: "Amazon review DE, Amazon Produkttester, Amazon De tester 2"), and make it a bestseller through the Matthew Effect. The Matthew Effect describes a social pattern where initial advantages lead to further advantages, creating a growing disparity between resource-rich and resource-poor individuals (141). </sub>
   
-## Is freedom for drug dealers acceptable?
+## Can we justify freedom for drug dealers?
 
 > All societies prohibit drug dealers by law.
 
 > <sub> Drug abuse: Addiction, Mental Health Disorder, Violence, Societal collapse, high Costs to Social Health, Economy & Family (8). Drug users cannot be treated as criminals (169); they suffer from something beyond their control (170). There is a £10,000-a-week trade of drug dealers (171). </sub> 
 
-#### Is donating money to charities with funds obtained from drug selling morally justifiable?
+#### Is it morally justifiable to donate drug money to charities?
 
 > <sub> Pablo Escobar, a Colombian drug lord and leader of the Medellin Cartel, which controlled as much as 80% of international cocaine, helped the community by building schools and sports fields, donating vast sums to charity, and constructing housing (187) </sub>
 
@@ -76,8 +68,7 @@ Activism on social media: Get maximum attention for your Instagram activism with
 
 >  they claim: not all drugs are harmful; for instance, opium has legitimate medical applications.[208](https://www.unodc.org/unodc/en/data-and-analysis/bulletin/bulletin_1953-01-01_3_page008.html)
 
-#### Can social media be considered harmful to societies, or are the effects primarily beneficial?
-
+#### Is social media harmful or beneficial to societies?
 
 > - <sub> 1. Mental health problems such as depression, anxiety, and addiction. </sub>
 > - <sub> 2. Cyberbullying and online harassment. </sub>
@@ -94,7 +85,7 @@ Activism on social media: Get maximum attention for your Instagram activism with
 
 > Is it a valid argument for pornography creators to claim that individuals are responsible for their own porn addiction and that consumers must be aware of what they are consuming?
 
-#### Is it socially and morally acceptable that a social media star earns 270 times more than a nursing assistant who makes ~ 1300€ per month? (1)(4)(5)
+#### Is it fair for a social media star to earn 270 times more than a nursing assistant making ~ €1300 per month? (1)(4)(5)
 
 > <sub> 1. The content produced on platforms like OnlyFans is considered pornographic and is deemed harmful to society (28)(3). </sub>
 
