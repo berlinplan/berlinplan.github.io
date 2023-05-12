@@ -632,28 +632,12 @@ The morally correct behavior is the one that inflicts the least necessary harm u
 - <sub> Being close friends with someone who divorces increases your likelihood of divorce by 147%, and having a divorced sibling raises it by 22%. </sub>
 - <sub> Working with someone going through a divorce increases a married person's chance of divorce by 75%. </sub>
   
-
-Professions with highest divorce rates:
-- Celebrity divorce rate 67 per cent higher than other couples
-- Dancers – 43
-- Bartender s- 38.4
-- Massage Therapists – 38.2
-- Gaming Cage Workers – 34.6
-- Gaming Service Workers – 31.3
-
-Professions with lowest divorce rates:
-- Farmers – 7.63
-- Podiatrists – 6.81
-- Clergy – 5.61
-- Optometrists – 4.01
-- Agricultural Engineers – 1.78
---------------
-
-Summary: Engaging in premarital sex, Alcohol, religious beliefs, Educational attainment level of high school or college completion, Pre-marital cohabitation, Meeting  in college or in bar, sexual debut during teenage years, early initiation of sexual activity, social media use, exposure to pornography or games, parental divorce, premarital parenthood, tobacco or alcohol consumption, relationships with divorced family members or friends, and jobs with exposure to nudity.
+- <sub> Professions with the highest divorce rates: celebrities (67%), dancers (43%), bartenders (39%), massage therapists (38%), gaming cage workers (35%), and gaming service workers (32%) </sub>
+- <sub> professions with the lowest divorce rates: farmers, clergy, veterans and agricultural engineers. These occupations have divorce rates ranging from 1% to 7%. </sub>
 
 #### Do stable family values align with religious values?(137)
 
-> Could accepting Islamic values be an effective way to counter the expansion of Islam as it gains influence around the world?
+> Could accepting islamic/religous values be an effective way to counter the expansion of Islam as it gains influence around the world?
 
 **Values are defined by individuals in the Voting app, similar to religion but without institution and corruption**
 
