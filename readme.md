@@ -108,33 +108,33 @@ Activism on social media: Get maximum attention for your Instagram activism with
 
 > <sub> 10. Exposure to inappropriate content and dangerous online challenges.[207](https://www.helpguide.org/articles/mental-health/social-media-and-mental-health.htm#:~:text=Since%20it's%20a%20relatively%20new,harm%2C%20and%20even%20suicidal%20thoughts.) </sub>
 
-#### social Media is not entirely harmful, people are responsible for managing their own usage, right?
+#### Social media is not entirely harmful, individuals are responsible for managing their own usage, right?
 
-> Is it a valid argument for pornohraphic creators to claim that individuals are responsible for their own porn addiction, and that consumers must be aware of what they are consuming?
+> Is it a valid argument for pornography creators to claim that individuals are responsible for their own porn addiction and that consumers must be aware of what they are consuming?
 
-#### Is it socially and morally acceptable that a social Media star earns 270 times more than a nursing assistant who makes ~ 1300€ per month? (1)(4)(5)
+#### Is it socially and morally acceptable that a social media star earns 270 times more than a nursing assistant who makes ~ 1300€ per month? (1)(4)(5)
 
-> <sub> 1. The content produced on OnlyFans is considered pornographic, and such activity is deemed harmful to society (28)(3). </sub>
+> <sub> 1. The content produced on platforms like OnlyFans is considered pornographic and is deemed harmful to society (28)(3). </sub>
 
-> <sub> 2. While nurses play a crucial role in helping individuals, families, and groups reach their physical, psychological, and social potential, the activity on OnlyFans has been linked to poor mental and emotional health in numerous studies and is considered detrimental to society (4)(7). </sub>
+> <sub> 2. Nurses play a crucial role in helping individuals, families, and groups reach their physical, psychological, and social potential, while the activity on OnlyFans has been linked to poor mental and emotional health in numerous studies and is considered detrimental to society (4)(7). </sub>
 
-> <sub> 3. OnlyFans has been associated with pornography addiction and has been cited as a factor in a significant proportion of divorces, while top earners like Iggy Azalea can make hundreds of thousands of dollars in a matter of hours, creating a massive income gap between them and the average worker(2)(5)(6)(7)(29). </sub>
+> <sub> 3. OnlyFans has been associated with pornography addiction and has been cited as a factor in a significant proportion of divorces. Top earners like Iggy Azalea can make hundreds of thousands of dollars in a matter of hours, creating a massive income gap between them and the average worker (2)(5)(6)(7)(29). </sub>
 
-#### drug dealing is a legitimate method for underprivileged social groups to achieve self-empowerment, emancipation, and financial independence, acceptable? 
+#### Is drug dealing an acceptable method for underprivileged social groups to achieve self-empowerment, emancipation, and financial independence?
 
-> <sub> “The cultural scientist and feminist: Madita Oeming sees **Onlyfans** as a **new opportunity** for **self-empowerment**. Women and men on Onlyfans are independent of studios or producers and have full control over their content and prices. And there is also **emancipatory** potential in profit. "Making that amount of money on your own can also save you from **financial dependency and toxic relationships**."(9) </sub>
+> <sub> "The cultural scientist and feminist, Madita Oeming, sees OnlyFans as a new opportunity for self-empowerment. Women and men on OnlyFans are independent of studios or producers and have full control over their content and prices. There is also emancipatory potential in profit. 'Making that amount of money on your own can also save you from financial dependency and toxic relationships'" (9). </sub>
 
-> <sub> porn addiction, or problematic pornography use, affects approximately 3% to 6% of the adult population. Up to 65% of young adult men and 18% of Young Woman Report watching Pornography at least once a Week (35) Addicts are not to blame for their addiction, it is a problem for society as a whole and we are talking about shared responsibility (36) </sub>
+> <sub> Porn addiction, or problematic pornography use, affects approximately 3% to 6% of the adult population, with up to 65% of young adult men and 18% of young women reporting watching pornography at least once a week (35). Addicts are not solely to blame for their addiction; it is a problem for society as a whole, and we must address it as a shared responsibility (36). </sub>
 
-## How your Instagram Likes lead to an Atomic war?
+## How do your Instagram likes lead to an atomic war? 
 
-why consumption culture and social Media leads to nuclear disaster?
+Why does consumption culture and social media lead to a nuclear disaster?
  
-#### 1. What is the reason for ~ 40% of the new generation wanting to pursue a career as an influencer?
+#### 1. Why do approximately 40% of the new generation choose to pursue a career as influencers?
 
-> <sub> Despite the high earning potential of OnlyFans, influencer, YouTuber, and gamer careers, why should a young person consider working as a firefighter or nursing assistant for a relatively low salary of around €1300? </sub>
+> <sub> Despite the high earning potential of platforms like OnlyFans, being an influencer, YouTuber, or gamer, why should a young person consider working as a firefighter or nursing assistant for a relatively low salary of around €1300? </sub>
 
-> <sub> While doctor, engineer, veterinarian and teacher were the most popular jobs for children in the past, today’s young generation aspires to be social influencers, with 86% of them choosing this career path(37)in uk around 35% of children between 11-16 wants to be influencer and Youtuber (38) </sub>
+> <sub> While doctor, engineer, veterinarian and teacher were the most popular jobs for children in the past, today’s young generation aspires to be social influencers, with 86% of them choosing this career path(37)In the UK around 35% of children between 11-16 wants to be influencer and Youtuber (38) </sub>
 
 > <sub> Germany lacks almost two million workers (39) </sub>
 
