@@ -518,29 +518,41 @@ Is it morally acceptable to use barbaric torture methods with an 80% success rat
 The app aims to resolve the following dilemmas as examples:
 
 > <sub> End: save 1 life </sub>
+  
 > <sub> Mean: kill 1 </sub>
+  
 > <sub> No: due to the app -> kill -> big damage </sub>
 --------------
 > <sub> End: save 7 lives </sub>
+  
 > <sub> Mean: kill 1 </sub>
+  
 > <sub> No: due to the app -> kill -> big damage </sub>
 --------------
 > <sub> End: save all humankind </sub>
+  
 > <sub> Mean: kill 1 </sub>
+  
 > <sub> X: An emergency situation will trigger an app notification for all people on the planet to vote. </sub>
 --------------
 > <sub> End: rescue a dog trapped inside a car </sub>
+  
 > <sub> Mean: break others' property, enter a private room </sub>
+  
 > <sub> Yes: app -> Choosing not to save a life is a greater harm than entering a private room. </sub>
 --------------
 <sub> **Can lying in an election to achieve power for a good cause later be morally justified?** </sub>
 
 > <sub> End: save lives </sub>
+  
 > <sub> Mean: lie through the election </sub>
+  
 > <sub> No: app -> Systematic lying in elections causes greater societal and personal damage than the benefit of saving lives later. </sub>
 --------------
 > <sub> End: save million lives </sub>
+  
 > <sub> Mean: kill thousands, Atom bomb Hiroshima? </sub>
+  
 > <sub> App: [?]  </sub>
 --------------
 #### a skinny professional boxer approach a random passer-by on the street and, after obtaining his consent, beat him into a coma, moraly acceptable?
