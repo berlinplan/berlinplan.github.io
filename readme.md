@@ -628,15 +628,18 @@ The morally correct behavior is the one that inflicts the least necessary harm u
 <sub> Children of divorce are more likely to marry someone who also experienced divorce. </sub>
 
 <sub> About 50% of marriages in the US end in divorce or separation. Currently, 15% of adult women in the US are divorced or separated, compared to less than 1% in 1920. </sub>
--> <sub> The average duration of a first marriage that ends in divorce is 8 years and 7 Years for second marriages. </sub>
--> <sub> If both partners have had previous marriages, they are 90% more likely to get divorced. </sub>
-> <sub> Having strong religious beliefs reduces the risk of divorce by 14%. </sub>
-> <sub> High school dropouts have a 13% higher divorce risk, while college attendees have a 13% lower risk. </sub>
-> <sub> Those with "below average" IQs are 50% more likely to be divorced. </sub>
-> <sub> Meeting your spouse in high school, college, or grad school reduces divorce likelihood by 41%, while meeting in bars increases it by 24%. </sub>
-> <sub> Couples with children have a divorce rate up to 40% lower than those without children. Having a baby before marriage increases the risk of divorce by 24%. </sub>
-> <sub> Couples where only one partner smokes are 76-95% more likely to divorce, and even couples where both smoke have a 53% higher likelihood of divorce compared to non-smoking couples. </sub>
-> <sub> Each liter of alcohol consumed raises the chance of divorce by 20%. </sub>
+- <sub> The average duration of a first marriage that ends in divorce is 8 years and 7 Years for second marriages. </sub>
+- <sub> If both partners have had previous marriages, they are 90% more likely to get divorced. </sub>
+- <sub> Having strong religious beliefs reduces the risk of divorce by 14%. </sub>
+-<sub> High school dropouts have a 13% higher divorce risk, while college attendees have a 13% lower risk. </sub>
+-<sub> Those with "below average" IQs are 50% more likely to be divorced. </sub>
+-<sub> Meeting your spouse in high school, college, or grad school reduces divorce likelihood by 41%, while meeting in bars increases it by 24%. </sub>
+  
+ <sub> - Couples with children have a divorce rate up to 40% lower than those without children. Having a baby before marriage increases the risk of divorce by 24%. </sub>
+  
+<sub> - Couples where only one partner smokes are 76-95% more likely to divorce, and even couples where both smoke have a 53% higher likelihood of divorce compared to non-smoking couples. </sub>
+  
+<sub> - Each liter of alcohol consumed raises the chance of divorce by 20%. </sub>
 > <sub> Video game addiction is cited as a major factor in almost 15% of divorce petitions. </sub>
 > <sub> Being close friends with someone who divorces increases your likelihood of divorce by 147%, and having a divorced sibling raises it by 22%. </sub>
 > <sub> Working with someone going through a divorce increases a married person's chance of divorce by 75%. </sub>
