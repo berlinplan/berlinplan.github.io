@@ -361,23 +361,23 @@ Why does consumption culture and social media lead to a nuclear disaster?
 
 <sub> Germany is the biggest **Winner.** According to Brücker in 2013, without immigration, the labor force potential in Germany would fall by around 40% by 2050. (117) <sub>
 
-#### Are the "Homeland countries" of migrants the biggest Winners, too?
+#### Do the countries of origin of migrants also benefit?
 
-> Immigration leads to a decrease in IQ in origin countries. Scotland has the lowest average IQ in the UK and performs poorly compared to most of Europe, according to studies.(119)
+> Immigration can lead to a decrease in average IQ in the countries of origin. Studies have shown that Scotland, for instance, has the lowest average IQ in the UK and performs less favorably compared to most European countries.(119)
 
-> Over 80% of intelligent students from top universities in third world countries migrate to industrial countries.(121)
+> Over 80% of intelligent students from third-world countries migrate to industrialized nations, as highlighted by research.(121)
 
-> 77% of working people from a third world country are willing to migrate, according to a survey conducted by a Job Vision center.(120)
+> A survey conducted by a Job Vision center found that 77% of working individuals from third-world countries are willing to migrate.(120)
 
-> Each young migrant in early working age costs their country of origin $120,000, according to international organizations.(118)
+> International organizations estimate that each young migrant in their early working age costs their country of origin $120,000.(118)
 
-#### Is multiculturalism a result of a psychopathic economy?
-
+#### Is multiculturalism a consequence of a psychopathic economy?
+  
 Would individuals still seek refuge if economic disparities between third-world and industrial nations were eliminated?
 
-> Psychopathic economies benefit from multiculturalism despite its increase in polarization and inequality.
+> Despite its potential for polarization and inequality, psychopathic economies often benefit from multiculturalism.
 
-## Integration of migrants has failed, bullshit? 
+## Has the integration of migrants failed?
 
 > Sweden: “Integration of migrants has failed” (166)
 
@@ -385,39 +385,33 @@ Would individuals still seek refuge if economic disparities between third-world 
 
 > **Combine:** implies some merging or mingling with corresponding loss of identity of each unit (168)
 
-> Most top students from poor countries end up in industrial countries where their hi-tech products are most likely to be used by the US Army.(179)
+> Many top students from economically disadvantaged countries end up in industrialized nations, where their hi-tech products are more likely to be utilized, particularly by the US Army. (179)
 
-> US Army operations are mostly conducted in the Middle East, including Libya, Iraq, Iran, Afghanistan, Syria, Somalia, Pakistan, and Sudan and also in South America.(180)
+> The US Army operates extensively in the Middle East, including countries like Libya, Iraq, Iran, Afghanistan, Syria, Somalia, Pakistan, Sudan, as well as South America. (180)
 
-> Migrants come as worker to Psychopathical Systems, where their production are used to increase inequality against their homeland.
+> Migrants often reject the traditions of residents within the psychopathic systems they migrate to, which has contributed to the erosion of their own populations, cultures, and values. However, when a migrant chooses to leave their country and endorse a more psychopathic system that perpetuates inequality, they become fully integrated into that Psychopathic system. (psychopathegration) (186)
 
-> psychopathological integration: psychopathegration
+#### Why does the economy prefer a psychopathically integrated population over an organic population?
 
-> Migrants often reject the traditions of psychopathic system residents, which contributed to the erosion of their populations, cultures, and values. However a migrant that choosed to leave their country, disregarding social and religious principles, in favor of endorsing to endorse a more Psychopathic System which perpetuates inequality, is fully psychopathegriert. (186)
-
-#### why Economy prefer a psychopathegrated population to an organic population? 
-
-> The lowered affinity of migrants towards their original values increases their susceptibility to psychopathological integration.
+> The reduced affinity of migrants towards their original values increases their susceptibility to psychopathic integration.
 
 >  <sub> as sociopaths, Psychopathegrated population, have learned their behavior and are created by life experiences. They are capable of feeling emotions but usually don’t control them. Psychopaths, on the other hand, are born and suffer from a genetic effect (50,51) </sub>
 
-The UK’s Indian, Pakistani, and Asian population surprised London by voting pro-Brexit.
+The Indian, Pakistani, and Asian population in the UK surprised London by voting in favor of Brexit, indicating stronger euroscepticism within this community than previously anticipated. (197) 
 
-> euroscepticism within the British South Asian population was stronger than previously anticipated.(197) 
+> Iranian migrants have organized protests outside Iran, calling for stricter sanctions against their home country. (221)
 
-> Iranian migrants organizing protests outside Iran to call for stricter sanctions against Iran. (221)
+## Is it accurate to label residents of Germany a "society"?
 
-## Calling residents of Germany, Netherlands, etc **"a Society"**, bullshit?
-
-> <sub> SOCIETY: people in general thought of as living together in organized communities with **shared** laws, traditions, and **values** (83) Cooperation is vital for human survival as it enables us to thrive in large groups. By living collectively, we can effectively collaborate and distribute tasks based on individual strengths, resulting in improved efficiency and productivity. </sub>
+> <sub> **Society** refers to people living together in organized communities with shared laws, traditions, and **values**. Cooperation is vital for human survival as it allows us to thrive in large groups, collaborate effectively, and distribute tasks based on individual strengths, leading to improved efficiency and productivity.(83) </sub>
 
 > *Modern Society:*
 
-> <sub> consider “LGBTQIA2S+” a non-negotiable value, but Accept to throw away  the “one love” band for participating in a Football match. (106) </sub>
+> <sub> considers LGBTQIA2S+ rights non-negotiable while allowing the abandonment of the "one love" band during a football match. (106) </sub>
 
-> <sub> establish heaviest sanctions against countries for abusing human rights, while maintaining strong ties with biggest Violators of Human rights in the World. (107,108,153) </sub>
+> <sub> impose heavy sanctions against human rights violators while maintaining strong ties with the world's biggest violators of human rights. (107,108,153) </sub>
 
-> <sub> claim to Respect World Peace, while Start war for bring democracy in other countries.  
+> <sub> While claiming to respect world peace, sometimes engage in wars to bring democracy to other nations. </sub>
 
 ## Sacrify Yourself for Psychopath Leaders, bullshit?
 
