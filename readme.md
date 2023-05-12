@@ -122,25 +122,19 @@ Why does consumption culture and social media lead to a nuclear disaster?
 
 #### May economic sanctions, brain drain, youth migration, and inequalities drive a country to resort to violent measures?
 
-> <sub> If everything becomes flat, how can the world and the environment be exploited on a large scale? Could Iran enriching uranium to build several nuclear weapons or North Korea's 100-kiloton atomic bomb potentially end sanctions and lead to equality?(30,209 )</sub>
+> <sub> If everything becomes flat, how can the world and the environment be exploited on a large scale? Could Iran enriched uranium to build several nuclear weapons or North Korea's 100-kiloton atomic bomb potentially end sanctions and lead to equality?(30,209 )</sub>
 
 ## How to grant people the freedom and equality to utilize an atom bomb?
 
-> <sub> Polls show that about 80% of Iranians who desire an atomic bomb support its possession for defensive purposes. Over the years, Iranians have consistently shown strong backing for their country's nuclear program. In 2006, support reached 85%, and in 2010, it was 71%. Even amid sanctions, a 2013 Gallup poll found that 84% of Iranians expressed a desire for nuclear weapons. A 2013 Zogby poll similarly indicated majority opposition (84.5%) to ending uranium enrichment and ballistic missile testing (83.4%). Responsibility for sanctions varied among respondents, with 46% holding the U.S. responsible, 13% attributing it to the Iranian government, and 12% to the UN and EU, while 16% were uncertain. (155, 156, 157, 158, 159, 160, 161,163, 165). </sub>
+> <sub> Over the years, Iranians have consistently shown strong backing for their country's nuclear program. In 2006, support reached 85%, and in 2010, it was 71%. Even amid sanctions, a 2013 Gallup poll found that 84% of Iranians expressed a desire for nuclear weapons. A 2013 Zogby poll similarly indicated majority opposition (84.5%) to ending uranium enrichment and ballistic missile testing (83.4%). Responsibility for sanctions varied among respondents, with 46% holding the U.S. responsible, 13% attributing it to the Iranian government, and 12% to the UN and EU, while 16% were uncertain. (155, 156, 157, 158, 159, 160, 161,163, 165). </sub>
 
 #### Why would leaders in psychopathic regimes never utilize an atomic bomb, but marginalized groups outside of psychopathic power might?
 
-> Experts warn that advancements like 3D printing make it easier for non-hierarchical groups to secretly produce weapons of mass destruction. Meanwhile, current people in power would never use it. Contrary to misconceptions, psychopaths are fully aware of the consequences of their actions; they are not insane. In 2013, Iran's religious leader Khamenei issued an irrevocable Fatwa prohibiting the development and deployment of nuclear weapons under Islamic law. Since then, Mahmoud Ahmadinejad, a strong supporter of Iran's nuclear program, has been disqualified from all Iranian elections. (154, 162, 163, 164, 178, 195,216).
+> Experts warn that advancements like 3D printing make it easier for non-hierarchical groups to secretly produce weapons of mass destruction. Meanwhile, current people in power would less likely use it. Contrary to misconceptions, psychopaths are fully aware of the consequences of their actions; they are not insane. In 2013, Iran's religious Supreme leader issued an irrevocable Fatwa prohibiting the development and deployment of nuclear weapons under Islamic law. Since then, Mahmoud Ahmadinejad, a strong supporter of Iran's nuclear program, has been disqualified from all Iranian elections. (154, 162, 163, 164, 178, 195,216).
 
-#### Are violent tactics the only effective means to effectively tackle inequality?
+## Improve democracy instead of violent tactics could avoid atomic war?
 
-> Global inequality has persisted since 1960 (138).
-
-> Could the idea of granting voting power to all and removing psychopathic structures be an alternative solution?
-
-## Can a nuclear war be avoided by "improving" democracy?
-
-- <sub> Democracy has been considered the best political system since 508 BCE. However, despite its numerous advantages, democracy also has disadvantages: a polarizing debate culture, the development of psychopaths, corruption, misuse of equality, lack of protection for the common man, divide and rule methods, unfair business practices, addiction to power, and media misuse (63, 65). </sub>
+- <sub> Democracy has been considered the best political system since 508 BCE. However, despite its numerous advantages, democracy also has disadvantages: a polarizing debate culture, the development of psychopaths, corruption, misuse of equality, lack of protection for the common man, divide and rule methods, unfair business practices, addiction to power, media misuse and a rising  inequality since 1960 (138).(63, 65). </sub>
 - <sub> Social hierarchies exist in democracies, and research has shown that power can affect brain dynamics, with individuals of higher status exhibiting decreased accuracy in empathizing with individuals of lower status. Scientists have used a clever paradigm to study the correlation between brain regions associated with empathy and one's power status (220). </sub>
 - <sub> Psychopathy is a serious personality disorder characterized by antisocial behavior, untruthfulness, irresponsibility, and lack of remorse or empathy (172). It is necessary to diagnose psychopathic personalities and prevent them from gaining power (79). Since psychopaths have no limitations on what they will do to reach the top, hierarchies tend to become top-heavy with psychopaths, turning democracy into a pathocracy (64, 68, 79, 80). </sub>
 - <sub> Current political and economic systems provide an ideal environment for psychopaths to thrive. Approximately 1.2% of U.S. adult men and 0.3% to 0.7% of U.S. adult women are considered to have clinically significant levels of psychopathic traits (175). Furthermore, studies show that 15% of prisoners, 21% of CEOs, and many U.S. presidents exhibit psychopathic traits (44, 45, 46, 47). Aristotle warned us more than two millennia ago that democracies are the best environment for psychopaths to develop (49). In the past fifty years, psychopaths have gained almost absolute control of all branches of government (173) </sub>
@@ -156,7 +150,7 @@ Why does consumption culture and social media lead to a nuclear disaster?
 > <sub> As the saying goes, "He who sups with the devil should have a long spoon" (69, 70). <sub>
 
 #### Could the solution to the 2,500-year-old problem of psychopathy in democracy be found in a simple voting app?
-
+  
 <sub> New smartphones offer advanced verification methods like fingerprint and face scans for tasks like online banking, enabling secure transactions of large sums of money. (72) </sub>
 
 > Do smartphones have the potential to address significant issues or are they primarily designed for social media?
