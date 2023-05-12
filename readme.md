@@ -163,21 +163,20 @@ Why does consumption culture and social media lead to a nuclear disaster?
 
 > Current democracies can gradually incorporate an anti-psychopathy app without requiring a revolutionary change. A beta or pilot project can be tested in a village with 100 residents.
 
-#### What are the advantages of personally holding money in your wallet instead of allowing psychopaths to control it?
+#### Why is it better to hold your own money instead of letting psychopaths control it?
   
 > <sub> An interactive voting app can include a dedicated comments section that presents both the advantages and disadvantages, allowing users to vote for their preferred arguments. </sub>
--------------
+  
+ 
 *Examples*
 > <sub> 1. Should monthly payment for ARD and ZDF be mandatory? </sub>
--------------
+----------------
 > <sub> 2. Should the police prioritize protecting vulnerable populations like women and the elderly over protecting capital, such as taking action against impoverished tenants, debtors of Amazon, supermarket looters, and climate activists? </sub>
--------------
-> <sub> 3. Should we build a power plant in our village? </sub>
-
-> <sub> After a 50%+ YES decision, which company should be chosen to build it? </sub>
-
-> <sub> Should the money be paid gradually from each person's account or sent to a psychopathic system to pay the company? </sub>
--------------
+----------------
+> - <sub> 3. Should we build a power plant in our village? </sub>
+> - <sub> After a 50%+ YES decision, which company should be chosen to build it? </sub>
+> - <sub> Should the money be paid gradually from each person's account or sent to a psychopathic system to pay the company? </sub>
+-----------------
 
 > <sub> 4. Should sanctions be imposed on Russia, Saudi Arabia, the USA, or China for human rights violations? </sub>
 -------------
