@@ -413,26 +413,26 @@ The Indian, Pakistani, and Asian population in the UK surprised London by voting
 
 > <sub> While claiming to respect world peace, sometimes engage in wars to bring democracy to other nations. </sub>
 
-## Sacrify Yourself for Psychopath Leaders, bullshit?
+## Sacrificing yourself for psychopathic leaders—utter bullshit?
 
-#### In modern societies, are people likely to resist and fight in the event of a War attack?
+#### In modern societies, are people likely to resist and fight in the event of a war attack?
 
-> <sub> 1. Approximately 30,000 fighters from at least 85 countries joined the Islamic State of Iraq and Syria (ISIS), which had very clear defined religious values. Around 6.6 million Syrians and 1.5 million Iraqis, as well as many from Lebanon, Jordan, etc., fled the area, with approximately 90% being young Muslim men. According to the Qur’an and hadith, fleeing from Jihad (war) is a greater sin and is considered the twenty-seventh sin. Additionally, the prophet of Islam said: “I disown every Muslim who settles among the mushrikeen” (Christians, Jews). (85,86,87,88,89,90,91) </sub>
+> <sub> 1. Approximately 30,000 fighters from at least 85 countries joined the Islamic State of Iraq and Syria (ISIS), which had clearly defined religious values. Around 6.6 million Syrians and 1.5 million Iraqis, as well as many from Lebanon, Jordan, and other countries, fled the area, with approximately 90% being young Muslim men. According to the Qur’an and hadith, fleeing from jihad (war) is considered a greater sin and is ranked as the twenty-seventh sin. Additionally, the prophet of Islam said: “I disown every Muslim who settles among the mushrikeen” (Christians, Jews). (85, 86, 87, 88, 89, 90, 91) </sub>
 
-#### Can mass of people, without any shared values be considered **a Society**?
+#### Can a mass of people without any shared values be considered a **society**?
 
-> <sub> 2. Over a million young Afghans have fled Afghanistan after the fall of the Afghan republic. Despite spending $145 billion on security forces and civilian government institutions over 20 years, the US and West were unable to prevent the fall of the Afghan republic as soon as US troops left. President Ashraf Ghani fled the capital city by helicopter to neighboring Uzbekistan just days after swearing never to leave and saying that he would die before abandoning his people (93,95) </sub>
+> <sub> 2. Over a million young Afghans have fled Afghanistan after the fall of the Afghan republic. Despite spending $145 billion on security forces and civilian government institutions over 20 years, the US and the West were unable to prevent the fall of the Afghan republic as soon as US troops left. President Ashraf Ghani fled the capital city by helicopter to neighboring Uzbekistan just days after swearing never to leave and saying that he would die before abandoning his people (93, 95) </sub>
 
-**Is it accurate that the Taliban society assaulted a large group of people who did not share any values?**
+**Is it accurate to say that the Taliban society assaulted a large group of people who did not share any values?**
 
-> <sub> 3. Ukraine became an independent state after the collapse of the Soviet Union in 1991. (96) In 2012 Ernst & Young put Ukraine among the three most-corrupt nations. In 2015 The Guardian called Ukraine "the most corrupt nation in Europe “. (97) United States diplomats described Ukraine as a kleptocracy according to WikiLeaks cables (98) Prominent Ukrainian economist Oleh Havrylyshyn research estimated the level of the corruption in Ukraine as comparable to countries of Sub-Saharan Africa with Uganda as the closest counterpart. (99) Ukraine's population spends most of its income on cosmetic products (100) The beauty industry is booming and is one of the fastest growing consumer markets, driven in particular by the cosmetics and skincare segments. largest industries and sectors in Ukraine in 2022 from the Datantify database: · 1. Bank · 2. Cafe · 3. Grocery … 10. Beauty 11. Clothing Stores (101) it is forbidden for men aged 18-60, Ukraine citizens, to leave the borders of Ukraine (102) Still, The UNHCR records 8,167,986 refugees from Ukraine across Europe as of 10 April 2023. This amounts to around 20% of the Ukrainian population (103) Corruption: Per R. Klitgaard Since a high degree of monopoly and low degree of transparency does not automatically lead to corruption, a fourth variable of "morality" or "integrity" has been introduced by others. The moral dimension has an intrinsic component and refers to a "mentality problem" (104) by Martial law Ukrainian Man are force to Participate war, while Russian Army is a Mix of contract und volunteers (105) </sub> 
+> <sub> 3. Ukraine became an independent state after the collapse of the Soviet Union in 1991 (96). In 2012, Ernst & Young ranked Ukraine among the three most corrupt nations. In 2015, The Guardian called Ukraine “the most corrupt nation in Europe” (97). United States diplomats described Ukraine as a kleptocracy according to WikiLeaks cables (98). Prominent Ukrainian economist Oleh Havrylyshyn's research estimated the level of corruption in Ukraine as comparable to countries in Sub-Saharan Africa, with Uganda being the closest counterpart (99). Ukraine’s population spends most of its income on cosmetic products (100). The beauty industry is booming and is one of the largest and fastest-growing consumer markets, driven particularly by the cosmetics and skincare segments. The largest industries and sectors in Ukraine in 2022, according to the Datantify database, were: 1. Banking, 2. Cafés, 3. Grocery stores, … 10. Beauty, 11. Clothing stores (101). It is forbidden for Ukrainian male citizens aged 18-60 to leave the borders of Ukraine (102). Nonetheless, the UNHCR records 8,167,986 refugees from Ukraine across Europe as of 10 April 2023, amounting to around 20% of the Ukrainian population (103). Corruption, as defined by R. Klitgaard, is influenced not only by a high degree of monopoly and low degree of transparency, but also by a fourth variable of "morality" or "integrity" introduced by others. The moral dimension has an intrinsic component and refers to a "mentality problem" (104). Under martial law, Ukrainian men are forced to participate in war, while the Russian Army consists of a mix of contracted personnel and volunteers (105). </sub> 
 
-**Despite martial law 8,2 milions have fled Ukraine, What would be the number of Ukrainians leaving the country if martial law was not in place?**
+**Despite martial law, 8.2 million people have fled Ukraine. What would be the number of Ukrainians leaving the country if martial law was not in place?**
 
 
-## Why ideological groups like IRGC quds, ISIS and Al-Qaida outperform modern armies?
+## Why do ideological groups like the IRGC Quds, ISIS, and Al-Qaida outperform modern armies?
 
-> Clear values and non/low hierarchical structures in Ideological Groups versus Hierarchic Pathocratic classical armies with double Morals.
+> Clear values and non/low hierarchical structures in ideological groups versus hierarchical pathocratic classical armies with double morals.
 
 ### having no defined values and act Moral, bullshit?
 
