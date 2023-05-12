@@ -14,7 +14,7 @@
 
 > <sub> **4. Quick production:** Slavery enables industries to achieve rapid production as slaves efficiently contribute to the manufacturing process. </sub>
 
-> <sub> **Economic stability:** By relying on enslaved labor in their firms, Britain harnessed the economic benefits of slavery, which served as a stabilizing force for the country's economy during the colonial era. </sub>
+> <sub> **5. Economic stability:** By relying on enslaved labor in their firms, Britain harnessed the economic benefits of slavery, which served as a stabilizing force for the country's economy during the colonial era. </sub>
 
 > <sub> **6.Transport system:** The transport industry developed rapidly across the Atlantic Ocean. This is because thousands of slaves would be transported each month. Inventors started making ships that would accommodate more people and goods. </sub>
 
