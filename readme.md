@@ -50,10 +50,6 @@ Activism on social media: Get maximum attention for your Instagram activism with
 
 > <sub> #activism (48%), #activist (8%), #blacklivesmatter (6%), #feminism (5%), #humanrights (5%), #equality (5%), #socialjustice (5%), #love (4%), #change (4%), and #nonprofit (4%) #climatechange, #vegan, #peace, #women, #freedom, #lgbt, #support, #pride, #mentalhealth, #community, #change, #lgbtq, #charity, #govegan, #awareness, #bodypositivity, #WomensMarch, #YouAintNoMuslimBruv, and #MeToo. </sub>
 
-<sub> Sell "Anti-inequality" content on economical corporate platforms such as Spotify, YouTube, Google, Instagram, Facebook, Amazon, Twitter, TikTok, and TV. Is this nonsense? 
-
-> <sub> Write a book on inequality, publish it on Amazon, obtain 5-star reviews (each ~4€ on Telegram: "Amazon review DE, Amazon Produkttester, Amazon De tester 2"), and make it a bestseller through the Matthew Effect. The Matthew Effect describes a social pattern where initial advantages lead to further advantages, creating a growing disparity between resource-rich and resource-poor individuals (141). </sub>
-  
 ## Can we justify freedom for drug dealers?
 
 > All societies prohibit drug dealers by law.
@@ -487,6 +483,10 @@ Is it morally acceptable to use barbaric torture methods with an 80% success rat
 #### Is it morally acceptable to use psychopathic platforms for good goals? 
 
 *In other words, does the end justify the means? (144)*
+
+**Sell "Anti-inequality" content on Psychopatical platforms** such as Spotify, YouTube, Instagram, Amazon, Twitter, TikTok, and TV, make Sence?
+
+> <sub> Write a book on inequality, publish it on Amazon, obtain 5-star reviews (each ~4€ on Telegram: "Amazon review DE, Amazon Produkttester, Amazon De tester 2"), and make it a bestseller through the Matthew Effect. The Matthew Effect describes a social pattern where initial advantages lead to further advantages, creating a growing disparity between resource-rich and resource-poor individuals (141). </sub>
  
 The app aims to resolve the following dilemmas as examples:
 
