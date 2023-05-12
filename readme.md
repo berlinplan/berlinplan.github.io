@@ -81,14 +81,14 @@ Activism on social media: Get maximum attention for your Instagram activism with
 
 > - <sub> 1. Mental health problems such as depression, anxiety, and addiction. </sub>
 > - <sub> 2. Cyberbullying and online harassment. </sub>
-- <sub> 3. Spread of false information and misinformation. </sub>
-- <sub> 4. Encouragement of negative behaviors such as trolling, hate speech, and extremism. </sub>
-- <sub> 5. Erosion of privacy and personal data security. </sub>
-- <sub> 6. Disruption of social interactions and relationships. </sub>
-- <sub> 7. Impact on productivity and time management. </sub>
-- <sub> 8. Polarization and division of opinions and ideologies. </sub>
-- <sub> 9. Influence on self-image and body image, especially among younger generations. </sub>
-- <sub> 10. Exposure to inappropriate content and dangerous online challenges.[207](https://www.helpguide.org/articles/mental-health/social-media-and-mental-health.htm#:~:text=Since%20it's%20a%20relatively%20new,harm%2C%20and%20even%20suicidal%20thoughts.) </sub>
+> - <sub> 3. Spread of false information and misinformation. </sub>
+> - <sub> 4. Encouragement of negative behaviors such as trolling, hate speech, and extremism. </sub>
+> - <sub> 5. Erosion of privacy and personal data security. </sub>
+> - <sub> 6. Disruption of social interactions and relationships. </sub>
+> - <sub> 7. Impact on productivity and time management. </sub>
+> - <sub> 8. Polarization and division of opinions and ideologies. </sub>
+> - <sub> 9. Influence on self-image and body image, especially among younger generations. </sub>
+> - <sub> 10. Exposure to inappropriate content and dangerous online challenges.[207](https://www.helpguide.org/articles/mental-health/social-media-and-mental-health.htm#:~:text=Since%20it's%20a%20relatively%20new,harm%2C%20and%20even%20suicidal%20thoughts.) </sub>
 
 #### Social media is not entirely harmful, individuals are responsible for managing their own usage, right?
 
