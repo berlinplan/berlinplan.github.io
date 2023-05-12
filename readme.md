@@ -69,8 +69,7 @@ fighting inequality while benefiting & generating inequality, bullshit?
 
 <sub> sell "Anti-inequality" content on Economical Corporations Platforms, Spotify , YouTube, Google, Instagram, Facebook, Amazon, Twitter, TikTok, and TV, Bullshit? 
 
-> <sub> write a book on inequality, publish it on Amazon, obtain 5-star reviews (each ~4€ in Telegram: "Amazon review DE,Amazon Produkttester, Amazon De tester 2") make it bestseller due to The Matthew Effect, which describes a social pattern characterized by initial advantages that lead to subsequent advantages, resulting in an increasing gap between those who possess resources and those who lack them. (141) </sub>
-
+> <sub> Write a book on inequality, publish it on Amazon, obtain 5-star reviews (each ~4€ on Telegram: "Amazon review DE, Amazon Produkttester, Amazon De tester 2"), and make it a bestseller through the Matthew Effect. The Matthew Effect describes a social pattern where initial advantages lead to further advantages, creating a growing disparity between resource-rich and resource-poor individuals. (141) </sub>
 ## Freedom for drug dealers, acceptable?
 
 > all societies prohibit drug dealers by law. 
