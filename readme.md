@@ -310,13 +310,9 @@ Would individuals still seek refuge if economic disparities between third-world 
 
 > **Combine:** implies some merging or mingling with corresponding loss of identity of each unit (168)
 
-> Many top students from economically disadvantaged countries end up in industrialized nations, where their hi-tech products are more likely to be utilized, particularly by the US Army. (179)
+> People from poor countries migrate to industrialized nations, where their high-tech products are more likely to be utilized, especially by the US Army, which often operates in migrants countries of origin. Despite migrants resisting the acceptance of values from psychopathic systems that have led to the erosion of their own populations, cultures, and values, they are already fully integrated into the heavy psychopathic system as they live and work in a system that perpetuates inequality (psychopathegration). (179,180,186)
 
-> The US Army operates extensively in the Middle East, including countries like Libya, Iraq, Iran, Afghanistan, Syria, Somalia, Pakistan, Sudan, as well as South America. (180)
-
-> Migrants often reject the traditions of residents within the psychopathic systems they migrate to, which has contributed to the erosion of their own populations, cultures, and values. However, when a migrant chooses to leave their country and endorse a more psychopathic system that perpetuates inequality, they become fully integrated into that Psychopathic system. (psychopathegration) (186)
-
-#### Why does the economy prefer a psychopathically integrated population over an organic population?
+#### Why does the economy favor psychopathically integrated populations over organic ones?
 
 > The reduced affinity of migrants towards their original values increases their susceptibility to psychopathic integration.
 
@@ -332,32 +328,30 @@ The Indian, Pakistani, and Asian population in the UK surprised London by voting
 
 > *Modern Society:*
 
-> <sub> considers LGBTQIA2S+ rights non-negotiable while allowing the abandonment of the "one love" band during a football match. (106) </sub>
-
-> <sub> impose heavy sanctions against human rights violators while maintaining strong ties with the world's biggest violators of human rights. (107,108,153) </sub>
-
-> <sub> While claiming to respect world peace, sometimes engage in wars to bring democracy to other nations. </sub>
+- <sub> considers LGBTQIA2S+ rights non-negotiable while allowing the abandonment of the "one love" band during a football match. (106) </sub>
+- <sub> impose heavy sanctions against human rights violators while maintaining strong ties with the world's biggest violators of human rights. (107,108,153) </sub>
+- <sub> While claiming to respect world peace, sometimes engage in wars to bring democracy to other nations. </sub>
 
 ## Sacrificing yourself for psychopathic leaders—utter bullshit?
 
-#### In modern societies, are people likely to resist and fight in the event of a war attack?
+#### Do people in modern societies tend to resist and fight during war attacks?
 
-> <sub> 1. Approximately 30,000 fighters from at least 85 countries joined the Islamic State of Iraq and Syria (ISIS), which had clearly defined religious values. Around 6.6 million Syrians and 1.5 million Iraqis, as well as many from Lebanon, Jordan, and other countries, fled the area, with approximately 90% being young Muslim men. According to the Qur’an and hadith, fleeing from jihad (war) is considered a greater sin and is ranked as the twenty-seventh sin. Additionally, the prophet of Islam said: “I disown every Muslim who settles among the mushrikeen” (Christians, Jews). (85, 86, 87, 88, 89, 90, 91) </sub>
+> <sub> 1. Around 30,000 fighters from 85 countries joined ISIS, an organization with strong religious values. Approximately 10 million Syrians, Iraqis, and individuals from neighboring countries, primarily young Muslim men, fled the area. Islamic teachings consider fleeing from jihad (war) as a significant sin, ranked as the twenty-seventh sin. The prophet of Islam also expressed disapproval of Muslims settling among Christians and Jews. (85, 86, 87, 88, 89, 90, 91) </sub>
 
 #### Can a mass of people without any shared values be considered a **society**?
 
-> <sub> 2. Over a million young Afghans have fled Afghanistan after the fall of the Afghan republic. Despite spending $145 billion on security forces and civilian government institutions over 20 years, the US and the West were unable to prevent the fall of the Afghan republic as soon as US troops left. President Ashraf Ghani fled the capital city by helicopter to neighboring Uzbekistan just days after swearing never to leave and saying that he would die before abandoning his people (93, 95) </sub>
+> <sub> 2. Over a million young Afghans have fled Afghanistan after the fall of the Afghan republic. Despite spending $145 billion on security forces and civilian government institutions over 20 years, the US and the West were unable to prevent the fall of the Afghan republic as soon as US troops left. President Ashraf Ghani, who had pledged to stay and protect his people, fled the capital city by helicopter to Uzbekistan, contradicting his previous promises. (93, 95) </sub>
 
-**Is it accurate to say that the Taliban society assaulted a large group of people who did not share any values?**
+**Can it be said that the Taliban society targets a group of people with no shared values?**
 
-> <sub> 3. Ukraine became an independent state after the collapse of the Soviet Union in 1991 (96). In 2012, Ernst & Young ranked Ukraine among the three most corrupt nations. In 2015, The Guardian called Ukraine “the most corrupt nation in Europe” (97). United States diplomats described Ukraine as a kleptocracy according to WikiLeaks cables (98). Prominent Ukrainian economist Oleh Havrylyshyn's research estimated the level of corruption in Ukraine as comparable to countries in Sub-Saharan Africa, with Uganda being the closest counterpart (99). Ukraine’s population spends most of its income on cosmetic products (100). The beauty industry is booming and is one of the largest and fastest-growing consumer markets, driven particularly by the cosmetics and skincare segments. The largest industries and sectors in Ukraine in 2022, according to the Datantify database, were: 1. Banking, 2. Cafés, 3. Grocery stores, … 10. Beauty, 11. Clothing stores (101). It is forbidden for Ukrainian male citizens aged 18-60 to leave the borders of Ukraine (102). Nonetheless, the UNHCR records 8,167,986 refugees from Ukraine across Europe as of 10 April 2023, amounting to around 20% of the Ukrainian population (103). Corruption, as defined by R. Klitgaard, is influenced not only by a high degree of monopoly and low degree of transparency, but also by a fourth variable of "morality" or "integrity" introduced by others. The moral dimension has an intrinsic component and refers to a "mentality problem" (104). Under martial law, Ukrainian men are forced to participate in war, while the Russian Army consists of a mix of contracted personnel and volunteers (105). </sub> 
+> <sub> 3. Ukraine has been ranked among the most corrupt nations, with The Guardian dubbing it "the most corrupt nation in Europe" (97). Ukraine's corruption level is comparable to countries in Sub-Saharan Africa, like Uganda (99). Besides monopoly and lack of transparency, a significant factor contributing to corruption in Ukraine is the moral collapse (104). Despite these challenges, the beauty industry in Ukraine is thriving, with Ukrainians dedicating a considerable portion of their income to cosmetic products (100). The major industries in Ukraine include banking, cafés, grocery stores, beauty, and clothing stores (101). The Russian Army comprises contracted personnel and volunteers, while Ukrainian male citizens aged 18-60 face restrictions on leaving the country (102). Nevertheless, there are over 8 million Ukrainian refugees in Europe, constituting approximately 20% of the population (103).(105). </sub> 
 
-**Despite martial law, 8.2 million people have fled Ukraine. What would be the number of Ukrainians leaving the country if martial law was not in place?**
+**Despite martial law, 8.2 million fled Ukraine. What would the numbers be without it?**
 
 
-## Why do ideological groups like the IRGC Quds, ISIS, and Al-Qaida outperform modern armies?
+## Why do ideological groups like IRGC Quds, ISIS, and Al-Qaida surpass modern armies?
 
-> Clear values and non/low hierarchical structures in ideological groups versus hierarchical pathocratic classical armies with double morals.
+> Strong values and flexible structures in ideological groups compared to hierarchical pathocratic armies with conflicting morals.
 
 ### Is it possible to have no defined values and act morally?
 
@@ -367,7 +361,7 @@ The Indian, Pakistani, and Asian population in the UK surprised London by voting
  
 #### How to prevent the moral collapse and edtablish a Society ?
 
-> In order to prevent moral collapse and establish a society, could a sector within a voting app, where each group defines its values, bring an end to institutionalized religion and eliminate religious leaders?
+> Can a voting app section, where groups define their values, prevent moral collapse, and eradicate institutionalized religion and religious leaders?
 
 > <sub> Individuals who share similar values, such as Buddhists, Hindus, Christians, Muslims, atheists, and those who adhere to Western values, can come together and form a group. This concept could pave the way for the creation of **intercontinental countries.** </sub>
 
