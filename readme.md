@@ -320,7 +320,6 @@ The Indian, Pakistani, and Asian population in the UK surprised London by voting
 
 **Despite martial law, 8.2 million fled Ukraine. What would the numbers be without it?**
 
-
 ## Why do ideological groups like IRGC Quds, ISIS, and Al-Qaida surpass modern armies?
 
 > Strong values and flexible structures in ideological groups compared to hierarchical pathocratic armies with conflicting morals.
@@ -331,7 +330,7 @@ The Indian, Pakistani, and Asian population in the UK surprised London by voting
 
 > Absence of clear values hinders moral acts, enabling corruption and eroding societal morality in psychopathic democracies.(122)
  
-#### How to prevent the moral collapse and edtablish a Society ?
+#### How to prevent the moral collapse and edtablish a Society?
 
 > Can a voting app section, where groups define their values, prevent moral collapse, and eradicate institutionalized religion and religious leaders?
 
@@ -349,14 +348,10 @@ The Indian, Pakistani, and Asian population in the UK surprised London by voting
 
 > In the absence of corrupt politicians, every individual holds power and can take action against a society that causes harm to others.
 
-> For example, if Society 6 adopts a psychopathic economy leading to inequality, an aging population, migration, a loss of workforce, family issues, increased intercontinental flights, and growing polarization, the Oversociety must decide how to address this behavior, as it harms everyone involved.
-------------
-
-> <sub> Society 1: 60% adheres to Islamic values, which include wearing hijab, abstaining from alcohol, avoiding premarital sex, and not engaging in open relationships. </sub>
-
-> <sub> Society 2: 70% adheres to xxx values, where drinking alcohol and engaging in premarital sex are permissible, but open relationships are not allowed. </sub>
-
-> <sub> Society 11: 75% adheres to Western values, including freedom of clothing, food choices, and actions. </sub>
+- <sub> For example, if Society 6 adopts a psychopathic economy leading to inequality, an aging population, migration, a loss of workforce, family issues, increased intercontinental flights, and growing polarization, the Oversociety must decide how to address this behavior, as it harms everyone involved.  </sub>
+- <sub> Society 1: 60% adheres to Islamic values, which include wearing hijab, abstaining from alcohol, avoiding premarital sex, and not engaging in open relationships. </sub>
+- <sub> Society 2: 70% adheres to xxx values, where drinking alcohol and engaging in premarital sex are permissible, but open relationships are not allowed. </sub>
+- <sub> Society 11: 75% adheres to Western values, including freedom of clothing, food choices, and actions. </sub>
  
 Societies merge when they share the same values.
 
@@ -412,44 +407,37 @@ Is it morally acceptable to use barbaric torture methods with an 80% success rat
  
 The app aims to resolve the following dilemmas as examples:
 
-> <sub> End: save 1 life </sub>
+- <sub> End: save 1 life </sub>
+- <sub> Mean: kill 1 </sub>
+- <sub> No: due to the app -> kill -> big damage </sub>
+
   
-> <sub> Mean: kill 1 </sub>
+- <sub> End: save 7 lives </sub>
+- <sub> Mean: kill 1 </sub>
+- <sub> No: due to the app -> kill -> big damage </sub>
+
   
-> <sub> No: due to the app -> kill -> big damage </sub>
---------------
-> <sub> End: save 7 lives </sub>
+- <sub> End: save all humankind </sub>
+- <sub> Mean: kill 1 </sub>
+- <sub> X: An emergency situation will trigger an app notification for all people on the planet to vote. </sub>
+
   
-> <sub> Mean: kill 1 </sub>
-  
-> <sub> No: due to the app -> kill -> big damage </sub>
---------------
-> <sub> End: save all humankind </sub>
-  
-> <sub> Mean: kill 1 </sub>
-  
-> <sub> X: An emergency situation will trigger an app notification for all people on the planet to vote. </sub>
---------------
-> <sub> End: rescue a dog trapped inside a car </sub>
-  
-> <sub> Mean: break others' property, enter a private room </sub>
-  
-> <sub> Yes: app -> Choosing not to save a life is a greater harm than entering a private room. </sub>
---------------
+- <sub> End: rescue a dog trapped inside a car </sub>
+- <sub> Mean: break others' property, enter a private room </sub>
+- <sub> Yes: app -> Choosing not to save a life is a greater harm than entering a private room. </sub>
+
+ 
 <sub> **Can lying in an election to achieve power for a good cause later be morally justified?** </sub>
 
-> <sub> End: save lives </sub>
-  
-> <sub> Mean: lie through the election </sub>
-  
-> <sub> No: app -> Systematic lying in elections causes greater societal and personal damage than the benefit of saving lives later. </sub>
---------------
-> <sub> End: save million lives </sub>
-  
-> <sub> Mean: kill thousands, Atom bomb Hiroshima? </sub>
-  
-> <sub> App: [?]  </sub>
---------------
+- <sub> End: save lives </sub>
+- <sub> Mean: lie through the election </sub>
+- <sub> No: app -> Systematic lying in elections causes greater societal and personal damage than the benefit of saving lives later. </sub>
+
+ 
+- <sub> End: save million lives </sub>
+- <sub> Mean: kill thousands, Atom bomb Hiroshima? </sub>
+- <sub> App: [?]  </sub>
+
 #### a skinny professional boxer approach a random passer-by on the street and, after obtaining his consent, beat him into a coma, moraly acceptable?
 
 #### What is wrong with debate culture?
