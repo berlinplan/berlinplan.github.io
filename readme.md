@@ -40,11 +40,9 @@ using social media to address social injustices while contributing to inequality
 
 ## Follow, subscribe, comment, and like my content, right? 
 
-> Pay for my Lamborghini because I want to take action against inequality.
+> Support my Tesla purchase and join me in the fight against inequality.
 
-> Support me to get advertisements, which promote a consumption culture, causing environmental damage and world inequality.
-
-Is fighting inequality while benefiting from and generating inequality just nonsense?
+How does supporting a social media activist in getting ads that promote consumption, leading to environmental damage and global inequality, contribute to fighting injustices?
 
 Activism on social media: Get maximum attention for your Instagram activism with these top hashtags: (78)
 
@@ -60,9 +58,9 @@ Activism on social media: Get maximum attention for your Instagram activism with
 
 > <sub> Pablo Escobar, a Colombian drug lord and leader of the Medellin Cartel, which controlled as much as 80% of international cocaine, helped the community by building schools and sports fields, donating vast sums to charity, and constructing housing (187) </sub>
 
-#### The right drug and dosage can cure certain illnesses, addiction is people's own fault, acceptable?
+#### Right drug and dosage can cure certain illnesses, addiction is people's own fault, acceptable?
 
->  they claim: not all drugs are harmful; for instance, opium has legitimate medical applications.[208](https://www.unodc.org/unodc/en/data-and-analysis/bulletin/bulletin_1953-01-01_3_page008.html)
+>  they claim: not all drugs are harmful; for instance, opium has legitimate medical applications. [208](https://www.unodc.org/unodc/en/data-and-analysis/bulletin/bulletin_1953-01-01_3_page008.html)
 
 #### Is social media harmful or beneficial to societies?
 
@@ -89,25 +87,21 @@ Activism on social media: Get maximum attention for your Instagram activism with
 
 > <sub> 3. OnlyFans has been associated with pornography addiction and has been cited as a factor in a significant proportion of divorces. Top earners like Iggy Azalea can make hundreds of thousands of dollars in a matter of hours, creating a massive income gap between them and the average worker (2)(5)(6)(7)(29). </sub>
 
-#### Is drug dealing an acceptable method for underprivileged social groups to achieve self-empowerment, emancipation, and financial independence?
+#### Does drug dealing offer self-empowerment, emancipation, and financial independence to underprivileged social groups?
 
 > <sub> "The cultural scientist and feminist, Madita Oeming, sees OnlyFans as a new opportunity for self-empowerment. Women and men on OnlyFans are independent of studios or producers and have full control over their content and prices. There is also emancipatory potential in profit. 'Making that amount of money on your own can also save you from financial dependency and toxic relationships'" (9). </sub>
 
-> <sub> Porn addiction, or problematic pornography use, affects approximately 3% to 6% of the adult population, with up to 65% of young adult men and 18% of young women reporting watching pornography at least once a week (35). Addicts are not solely to blame for their addiction; it is a problem for society as a whole, and we must address it as a shared responsibility (36). </sub>
+> <sub> Porn addiction affects a notable percentage of adults, particularly young men and women who regularly consume pornography (35). Taking collective responsibility is crucial in addressing this societal issue. (35, 36). </sub>
 
 ## How do your Instagram likes lead to an atomic war? 
 
 Why does consumption culture and social media lead to a nuclear disaster?
  
-#### 1. Why do approximately 40% of the new generation choose to pursue a career as influencers?
+#### 1. Why do 40% of the new generation prefer to be influencers over other professions?
 
-> <sub> Despite the high earning potential of platforms like OnlyFans, being an influencer, YouTuber, or gamer, why should a young person consider working as a firefighter or nursing assistant for a relatively low salary of around €1300? </sub>
+> <sub> Why should young individuals choose lower-paying jobs like firefighters and nursing assistants over the high-earning potential of being influencers, YouTubers, or gamers? Today's young generation overwhelmingly aspires to be social influencers, with 86% in the USA and 40% in the UK choosing this career path. Is this contributing to the shortage of nearly two million workers in Germany? (37,38,39) </sub>
 
-> <sub> While doctor, engineer, veterinarian and teacher were the most popular jobs for children in the past, today’s young generation aspires to be social influencers, with 86% of them choosing this career path(37)In the UK around 35% of children between 11-16 wants to be influencer and Youtuber (38) </sub>
-
-> <sub> Germany lacks almost two million workers (39) </sub>
-
-#### 2. How do millionaire social media influencers contribute to society?
+#### 2. How do millionaire social media influencers benefit society?
 
 > <sub> Cristiano Ronaldo (496m followers) Lionel Messi (373m followers) Kylie Jenner (372m followers) Selena Gomez (356m followers) Kim Kardashian (333m followers) Khloé Kardashian (279m followers) (40) or in Germany bibisbeautypalace, Julienco, Lisa und Lena mantler, Montana Black, Pia wurzbach, Pamela reif, dagibee,youneszarou </sub>
 
@@ -117,16 +111,13 @@ Why does consumption culture and social media lead to a nuclear disaster?
 
 > <sub> 3. Early sexual activity can lead to unstable relationships and marriages when children grow up, which may contribute to lower birth rates and an aging population (10, 11, 12, 13, 14). </sub>
 
-#### 3. Why does an aging population and labor shortage lead to exploitation? 
+#### 3. How does an aging population and labor shortage contribute to international inequality & exploitation?
 
-> <sub> An aging population can lead to economic collapse due to a lack of workers and skilled labor (15). Many migrants come from impoverished third-world countries (16), which can have consequences for their countries of origin such as economic disadvantages due to the loss of young workers, loss of highly qualified professionals (especially in healthcare), and social problems for children who have been left behind or have not grown up in large families (17). Remittances and money transfers may be blocked or subjected to UN sanctions (18), and poor countries often have negative trade balances with industrialized countries (19). A negative trade balance (more imports than exports) leads to unemployment and capital outflow (20). Exploitation is defined as inappropriate use, especially of manpower and resources, and in Marxist theories, it is more precisely defined as the appropriation of someone else's labor (21). </sub>
-
-#### 4. Does exploitation contribute to international inequality? 
-
-> <sub> Exploitation contributes to increased international inequality (22). Walter Scheidel, in his study tracing the global history of inequality from the Stone Age to today, shows that it never diminishes peacefully; violent shocks are needed to reduce inequality. For example, blanket bombing from the American air fleet and the use of atomic bombs led to a decline in social inequality (23).</sub>
+> <sub> An aging population's lack of workers and skilled labor in Industrial Countries can lead to economic collapse in third-world countries, from where migrants originate. This situation results in economic disadvantages, the loss of qualified professionals (especially in healthcare), and social problems for children who are left behind or do not grow up in large families. Remittances and money transfers may be blocked or face UN sanctions, while poor countries often experience negative trade balances with industrialized nations. Negative trade balances contribute to unemployment and capital outflow. Exploitation, as defined by Marxist theories, involves the inappropriate use of manpower and resources, specifically the appropriation of someone else's labor and contributes to increased international inequality (15,16,17,18,19,20,21, 22)  </sub>
 
 #### 5. Can international inequality only be reduced through violent shocks?
-
+  
+ Walter Scheidel, in his study tracing the global history of inequality from the Stone Age to today, shows that it never diminishes peacefully; violent shocks are needed to reduce inequality. For example, blanket bombing from the American air fleet and the use of atomic bombs led to a decline in social inequality (23).</sub>
 > <sub> French colonization in Haiti ended only after the Haitian slaves rebelled, resulting in the Haitian Massacre, which claimed the lives of 75,000 white French and 350,000 Haitians (24). </sub>
 
 > <sub> The end of slavery in the United States was due to slave uprisings and economic interests (25). </sub>
