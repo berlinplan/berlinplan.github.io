@@ -8,7 +8,7 @@
 
 > <sub> **1.Improve African lives:** Slave trade led to the growth of international trade between Africa, the USA, and Europe. So many goods were exchanged to Africa in exchange for the slaves. These products were then used in Africa to improve the lives of people. Also, more Europeans would visit the slave market and even exchange goods with Americans and Africans. </sub>
 
-> <sub> **2.Multi-Kulti:** When different countries interacted, they exchanged their culture. This helped in building long-term relationships and developing nations. Besides, the slave trade also led to intermarriage. People from different continents intermarried to produced mixed races. </sub>
+> <sub> **2.Multiculturism:** When different countries interacted, they exchanged their culture. This helped in building long-term relationships and developing nations. Besides, the slave trade also led to intermarriage. People from different continents intermarried to produced mixed races. </sub>
 
 > <sub> **3.Free trade:** Slavery contributes to free trade by providing European farms with cost-free labor, leading to increased profitability and economic growth.</sub> 
 
