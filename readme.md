@@ -16,11 +16,11 @@
 
 > <sub> **5. Economic stability:** By relying on enslaved labor in their firms, Britain harnessed the economic benefits of slavery, which served as a stabilizing force for the country's economy during the colonial era. </sub>
 
-> <sub> **6.Transport system:** The transport industry developed rapidly across the Atlantic Ocean. This is because thousands of slaves would be transported each month. Inventors started making ships that would accommodate more people and goods. </sub>
+> <sub> **6. Transport system:** The transport industry developed rapidly across the Atlantic Ocean. This is because thousands of slaves would be transported each month. Inventors started making ships that would accommodate more people and goods. </sub>
 
-> <sub> **7.Job security:** The master had to feed the slaves even when they got sick or became too old. This was the main reason why some people would join slavery voluntarily. Also, when there was no work available, the master had to feed his slaves for future jobs. </sub>
+> <sub> **7. Job security:** The master had to feed the slaves even when they got sick or became too old. This was the main reason why some people would join slavery voluntarily. Also, when there was no work available, the master had to feed his slaves for future jobs. </sub>
 
-> <sub> **8.Exploration:** Slave trade was one of the factors that contributed to exploration in Africa, Europe, and America. Traders would explore new places each time they visited a different market. </sub>
+> <sub> **8. Exploration:** Slave trade was one of the factors that contributed to exploration in Africa, Europe, and America. Traders would explore new places each time they visited a different market. </sub>
 
 > <sub> **9. Development:** Slave owners saved a lot of money as they did not have to hire employees. The slaves worked for free and only required food and medication. This helped the slave owners make more profits and maybe develop their areas. </sub>
 
