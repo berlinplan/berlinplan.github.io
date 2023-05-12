@@ -78,9 +78,9 @@ Activism on social media: Get maximum attention for your Instagram activism with
 
 #### Can social media be considered harmful to societies, or are the effects primarily beneficial?
 
->  #### *Social media Effects:* 
-- <sub> 1. Mental health problems such as depression, anxiety, and addiction. </sub>
-- <sub> 2. Cyberbullying and online harassment. </sub>
+
+> - <sub> 1. Mental health problems such as depression, anxiety, and addiction. </sub>
+> - <sub> 2. Cyberbullying and online harassment. </sub>
 - <sub> 3. Spread of false information and misinformation. </sub>
 - <sub> 4. Encouragement of negative behaviors such as trolling, hate speech, and extremism. </sub>
 - <sub> 5. Erosion of privacy and personal data security. </sub>
