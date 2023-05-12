@@ -565,34 +565,34 @@ The app aims to resolve the following dilemmas as examples:
 
 Train your brain in different topics, ask unprepared individuals on the street controversial questions, conduct cast interviews and debates, edit/cut videos as desired, aim for viral fame on platforms like YouTube, TikTok, and Instagram, polarize society, and make money with the intention of **reducing inequality?**
 
-#### Why Döner-Kebab-Sellers are Killers? 
+#### Why Döner Kebab Sellers are Terrorists? 
 
-Doner-killer: If a person's family in xxxistan is tragically lost due to a military force's mistaken actions, who can be held accountable? Should it be the bomb, the pilot, the airplane, the semiconductor manufacturer, the tool manufacturer for that semiconductor, or even the doner kebab-seller who supplied food to the tool company workers?
+Kebab terror: If a person's family in xxxistan tragically loses their lives due to mistaken actions by a military force, who can be held accountable? Should it be the bomb, the pilot, the airplane, the semiconductor manufacturer, the tool manufacturer for that semiconductor, or even the doner kebab seller who supplied food to the tool company workers?
 
-Youtube-killer: When a psychopathic system imposes sanctions on a country and companies like Google, including YouTube, comply, how accountable should a peace-loving YouTube video creator be for their contribution to global inequality?
-
+YouTube killer: When a psychopathic system imposes sanctions on a country and companies like Google, including YouTube, comply, how accountable should a peace-loving YouTube video creator be for their contribution to global inequality?
+  
 **Only with (Over)society's approval does high-tech become morally justifiable; otherwise, how does one differentiate between inequality-generating hi-tech and development founded on slavery?**
 
-### what is **Contradiction:**?
+### What is **contradiction:**?
 
 >  Although breaking someone else's window is not morally acceptable, when faced with a situation where a dog is trapped inside a car with closed windows, breaking the window becomes the morally right choice to save the dog's life, as it inflicts the least amount of damage necessary, unlike damaging the wheels, breaking the entire car, or setting it on fire.(198)
 
-#### Is it ethically acceptable to create a website that inditectly contributes to inequality, despite aiming to solve global inequality issues for personal benefit?
+#### Is it ethically acceptable to create a website that indirectly contributes to inequality, despite aiming to solve global inequality issues for personal benefit? 
 
 *Which behavior inflicts the least amount of necessary damage?*
 
-> creating controversial and polarizing content that goes viral on TV, YouTube, Instagram, and TikTok and enrich large corporations and increase the potential for personal wealth.
+> Creating controversial and polarizing content that goes viral on TV, YouTube, Instagram, and TikTok and enriches large corporations and increases the potential for personal wealth.
 
-> Publishing a book via Amazon or a publisher, and make them richer and increase the potential for personal wealth.
+> Publishing a book via Amazon or a publisher, and making them richer and increasing the potential for personal wealth.
 
-> contributing to inequality by Paying €2.78 per year for a domain to a Domain-seller Company.
+> Contributing to inequality by paying €2.78 per year for a domain to a domain seller company.
 
-The morally correct behavior is the one that inflicts the least necessary harm, unless (Over)Society determines otherwise.
+The morally correct behavior is the one that inflicts the least necessary harm unless (Over)Society determines otherwise.
 
 
 ## How to stop the Islamization of Europe?
 
-> Mohammed ranked as the most popular name for baby boys in Berlin in 2022(225).Sweden could have a Muslim population of 31% by 2050, while Germany's could be 20%, and in big cities such as Berlin, Düsseldorf, or Köln, this number could rise to 60%. It's possible that the concept of Islamic Sharia could gain traction in Berlin as a reflection of the growing Muslim population. This growth in Islam is not limited to Europe, as it is currently the fastest-growing religion in India, the USA, China, and Sub-Saharan countries. (127,128,129,130)
+> Mohammed ranked as the most popular name for baby boys in Berlin in 2022 (225). Sweden could have a Muslim population of 31% by 2050, while Germany's could be 20%, and in big cities such as Berlin, Düsseldorf, or Köln, this number could rise to 60%. It's possible that the concept of Islamic Sharia could gain traction in Berlin as a reflection of the growing Muslim population. This growth in Islam is not limited to Europe, as it is currently the fastest-growing religion in India, the USA, China, and Sub-Saharan countries (127, 128, 129, 130).
 
 #### How have big states attempted to curb the growth of Islam?
 
