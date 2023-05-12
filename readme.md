@@ -254,66 +254,66 @@ Why does consumption culture and social media lead to a nuclear disaster?
 > <sub> Should the money be paid gradually from each person's account or sent to a psychopathic system to pay the company? </sub>
 -------------
 
-> <sub> 4. Should we impose sanctions on Russia, Saudi Arabia, USA or China for human rights violations? </sub>
+> <sub> 4. Should sanctions be imposed on Russia, Saudi Arabia, the USA, or China for human rights violations? </sub>
 -------------
 
-> <sub> 5. Voting example in a village of 100 people. </sub> 
+> <sub> 5. Voting example in a village of 100 people: </sub> 
 
-> <sub> User 76: The village is too dry, do we need to plant trees?
+> <sub> User 76: The village is too dry. Do we need to plant trees? </sub> 
 
-> <sub> No  |  Yes (How many trees should be planted? by clicking “Yes”) </sub>
+> <sub> No | Yes (How many trees should be planted? Click "Yes") </sub>
 
-> <sub> on the right side comments "for" it. </sub>
+> <sub> On the right side, comments "for" it. </sub>
  
-> <sub> User 4. Nature is essential for human mental health and well-being. According to this study, children also benefit from contact with nature (20 Votes) </sub>
+> <sub> User 4: Nature is essential for human mental health and well-being. According to a study, children also benefit from contact with nature. (20 votes) </sub>
 
-> <sub> User 22: trees are good for birds (12 Votes) </sub>
+> <sub> User 22: Trees are good for birds. (12 votes) </sub>
 
-> <sub> on the left side comments "against" it. </sub>
+> <sub> On the left side, comments "against" it. </sub>
 
-> <sub> User 74: Planting a new tree costs 30€ and requires an investment in a water system and an external keeping company. The cost is 100€ per month, divided among 100 people. However, there are other ways to support the forest without additional costs(20 Votes) </sub>
+> <sub> User 74: Planting a new tree costs €30 and requires an investment in a water system and an external maintenance company. The cost is €100 per month, divided among 100 people. However, there are other ways to support the forest without additional costs. (20 votes) </sub>
 
-> <sub> User 12: Planting trees is expensive and we already have enough trees.(17 Votes) </sub>
+> <sub> User 12: Planting trees is expensive, and we already have enough trees. (17 votes) </sub>
 
 > <sub> Results: 80% of people want to plant trees. </sub>
 
-> <sub> Which company is best suited to plant trees? Please add your comment </sub>
+> <sub> Which company is best suited to plant trees? Please add your comment. </sub>
 
-> <sub> User 14: Company xxx charges only 20€ per tree for planting and has low costs. </sub>
+> <sub> User 14: Company XXX charges only €20 per tree for planting and has low costs. </sub>
 
-> <sub> User 20:Company yyy charges 30€ per tree but is environmentally friendly as they don’t use cars. </sub>
+> <sub> User 20: Company YYY charges €30 per tree but is environmentally friendly as they don't use cars. </sub>
 
-> <sub> Other Options: (cancel Vote) due to no company found. (extend time) to find more companies. </sub>
+> <sub> Other Options: (cancel vote) due to no company found. (extend time) to find more companies. </sub>
 
-> <sub> Result: Company xxx selected. </sub>
+> <sub> Result: Company XXX selected. </sub>
 
-> <sub> Order created Automatically and sent. </sub>
+> <sub> Order created automatically and sent. </sub>
 
-> <sub> week 1: Company xxx has completed 25% of the work and is requesting 25% of the payment. Pictures and videos are available. </sub>
+> <sub> Week 1: Company XXX has completed 25% of the work and is requesting 25% of the payment. Pictures and videos are available. </sub>
 
-> <sub> Your Part is 10€. accept?  / reject? </sub>
+> <sub> Your part is €10. Accept? / Reject? </sub>
 
-> <sub> After acceptance, 10€ will be automatically sent to Company xxx </sub>
+> <sub> After acceptance, €10 will be automatically sent to Company XXX. </sub>
 
-> <sub> week 2 : Company xxx has compeleted 100%. accept?  /  reject? </sub>
+> <sub> Week 2: Company XXX has completed 100%. Accept? / Reject?  </sub>
  
-> <sub> After acceptance, 10€ will be automatically sent to Company xxx </sub>
+> <sub> After acceptance, €10 will be automatically sent to Company XXX. </sub>
 -------------
 
 > <sub> 6. Who should be taxed more? </sub>
 
-> <sub> fireman, nursing assistant, teacher?
+> <sub> Fireman, nursing assistant, or teacher? </sub>
 
-> <sub> youtuber, instagramer, tik toker, porn performer? </sub>
+> <sub> YouTuber, Instagrammer, TikToker, or porn performer? </sub>
 
 
 #### Is there a way to have a non-psychopathic economy without turning to communism?
 
-> <sub> Can equal treatment of employees in a company affect quality, work ethic, effectiveness, and non-wasteful use of resources? </sub>
+> <sub> Can equal treatment of employees in a company affect quality, work ethic, effectiveness, and efficient use of resources? </sub>
 
 > <sub> Although communism has never worked, the most social system in the world (Germany) has the highest industry quality and production. </sub>
 
-> <sub> Can a person own empires like Microsoft, Tesla, and Amazon if millionaires are correctly taxed for all damages caused by them (environmental, inequality damages, poor countries by brain drain, forced migrations, travel, and consumerism supported by advertisement)? </sub>
+> <sub> If millionaires were taxed appropriately for all the damages they caused (environmental, inequality, brain drain, forced migrations, travel, and consumerism supported by advertisement), would someone still be able to own empires like Microsoft, Tesla, and Amazon? </sub>
 
 #### Why an Economic sector in the voting app is necessary?
 
