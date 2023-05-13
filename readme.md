@@ -384,17 +384,12 @@ Societies merge when they share the same values.
 Kebab terror: If a person's family in xxxistan tragically loses their lives due to mistaken actions by a military force, who can be held accountable? Should it be the bomb, the pilot, the airplane, the semiconductor manufacturer, the tool manufacturer for that semiconductor, or even the doner kebab seller who supplied food to the tool company workers?
   
   
- ## Can a basic voting app revolutionize ethics?
-
-> Can ethical dilemmas be resolved within society or an Oversociety?
-
-
-**Why are current ethical rules insufficient?**
+## Are current ethical rules Sufficient?
 
 > While Kant’s Golden Rule forbids torture, consequentialism considers it ethical if the result is favorable. Psychopaths often justify their actions by claiming that the outcome will be good. Religious and political psychopaths seek moral justification from leaders or judges.
 
- 
-The app aims to resolve the following dilemmas as examples:
+
+> Can (Over)society in basic voting app resolve the following dilemmas?
 
  *Simple *
 - <sub> End: save 1 life </sub>
@@ -412,6 +407,13 @@ The app aims to resolve the following dilemmas as examples:
 - <sub> X: An emergency situation will trigger an app notification for all people on the planet to vote. </sub>
 
   
+  *transgenders in women's sports competitions Dilemma* (193)
+ <sub> End: Hapiness in Soceity </sub>
+- <sub> Mean: get  triumph of winning opponents often from poor Countries regardless of doping  or early training as a child  </sub>
+- <sub> APP: NO : Current Sports Competitions: Young athletes face a greater risk of overuse injuries due to sports specialization. Commercialization has stripped away the joy, turning athletes into marketing products. Match-fixing and doping cast doubt on sports results. Profitability rests with top-level tournaments, favored by viewers. In light of these issues, the quest for fairness in sports competitions may seem meaningless.(194) </sub>
+  - <sub> Yes: Any Kind of Hipiness to get Joy is Morally fine </sub>
+  
+ 
   *Torture Dilemma*
 - <sub> End: defuse a hidden bomb in a shopping center to save your family and 1000 others </sub>
 - <sub> Mean: use barbaric torture methods with an 80% success rate to extract information from a terrorist in 10hours </sub>
@@ -581,11 +583,7 @@ Dating apps are increasingly popular, attracting millions of users. They enable 
 
 The popularity of various platforms promoting psychopathic behaviors such as beauty operations, dating apps, pickup and alpha masculinity coaches, hook up and ghost culture, style coaches, and online dating profile designers is increasing. (58, 57, 60)
 
-#### Is it morally justifiable to allow transgender individuals in women's sports competitions? (193)
 
-#### Seeking fairness in sports competitions, bullshit?
-
-<sub> Athletes from wealthy Countries triumph over their less fortunate opponents from poor Countries, regardless of doping or early training. Young athletes face a greater risk of overuse injuries due to sports specialization. Commercialization has stripped away the joy, turning athletes into marketing products. Match-fixing and doping cast doubt on sports results. Profitability rests with top-level tournaments, favored by viewers. In light of these issues, the quest for fairness in sports competitions may seem meaningless.(194) </sub>
 
 #### How can individuals spend their free time without psychopathic entertainment?
 
