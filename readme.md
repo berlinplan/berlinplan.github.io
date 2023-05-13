@@ -433,30 +433,29 @@ Why does psychopathical systems, consumption culture and social media lead to a 
   |  <sub> User 76: The village is too dry. Do we need to plant trees? </sub>  |
   
   | No | Yes |
-| --- | --- |
-| : <sub> User 74: Planting a new tree costs €30 and requires an investment in a water system and an external maintenance company. The cost is €100 per month, divided among 100 people. However, there are other ways to support the forest without additional costs. (20 votes) </sub> : | : <sub> User 4: Nature is essential for human mental health and well-being. According to a study, children also benefit from contact with nature. (20 votes) </sub> : |
-| git diff | Show file differences that haven't been staged |
+| :---: | :---: |
+| <sub> User 74: Planting a new tree costs €30 and requires an investment in a water system and an external maintenance company. The cost is €100 per month, divided among 100 people. However, there are other ways to support the forest without additional costs. (20 votes) </sub> | <sub> User 4: Nature is essential for human mental health and well-being. According to a study, children also benefit from contact with nature. (20 votes) </sub> |
   
-| git diff | Show file differences that haven't been staged |
+| User 12: Planting trees is expensive, and we already have enough trees. (17 votes) </sub> | - <sub> User 22: Trees are good for birds. (12 votes) </sub> |
   
+| No:20% | Yes:80% |
+  
+ 
   | git diff | Show file differences that haven't been staged |
   
  | git diff | Show file differences that haven't been staged |
 
   | No | Yes | 
-|            |           |
   
-  
+|   <sub> Which company is best suited to plant trees? Please add your comment. </sub>     |
+  | :---: |
 
-
-- <sub> On the right side, comments "for" it. </sub>
-- <sub> User 4: Nature is essential for human mental health and well-being. According to a study, children also benefit from contact with nature. (20 votes) </sub>
-- <sub> User 22: Trees are good for birds. (12 votes) </sub>
-- <sub> On the left side, comments "against" it. </sub>
 - 
-- <sub> User 12: Planting trees is expensive, and we already have enough trees. (17 votes) </sub>
-- <sub> Results: 80% of people want to plant trees. </sub>
-- <sub> Which company is best suited to plant trees? Please add your comment. </sub>
+  
+    | No | Yes |
+| :---: | :---: |
+ |            |           | 
+  
 - <sub> User 14: Company XXX charges only €20 per tree for planting and has low costs. </sub>
 - <sub> User 20: Company YYY charges €30 per tree but is environmentally friendly as they don't use cars. </sub>
 - <sub> Other Options: (cancel vote) due to no company found. (extend time) to find more companies. </sub>
