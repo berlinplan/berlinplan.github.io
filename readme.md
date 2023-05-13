@@ -430,6 +430,24 @@ Why does psychopathical systems, consumption culture and social media lead to a 
 - <sub> 4. Should sanctions be imposed on Russia, Saudi Arabia, the USA, or China for human rights violations? </sub>
   
  - <sub> 5. Voting example in a village of 100 people: </sub> 
+  
+  
+  <style type="text/css">
+.tg  {border-collapse:collapse;border-spacing:0;}
+.tg td{border-color:black;border-style:solid;border-width:1px;font-family:Arial, sans-serif;font-size:14px;
+  overflow:hidden;padding:10px 5px;word-break:normal;}
+.tg th{border-color:black;border-style:solid;border-width:1px;font-family:Arial, sans-serif;font-size:14px;
+  font-weight:normal;overflow:hidden;padding:10px 5px;word-break:normal;}
+.tg .tg-0lax{text-align:left;vertical-align:top}
+</style>
+<table class="tg">
+<thead>
+  <tr>
+    <td class="tg-0lax"></td>
+  </tr>
+</thead>
+</table>
+  
   |  <sub> User 76: The village is too dry. Do we need to plant trees? </sub>  |
   
   | No | Yes |
