@@ -220,17 +220,14 @@ Why does consumption culture and social media lead to a nuclear disaster?
 
  <sub> Embracing egoism, self-interest, and increased earnings fosters greater competition, productivity, and sustainability. </sub>
 
-## How does the disregard for human egoism contribute to communism and laziness?
+## How does egoismus lead to equality??
 
- <sub> *Authentic egoists:* </sub>
+ <sub> *Egoists who seeks maximal joy in life:* </sub>
 
-> <sub> Strive for workplace equality and fairness towards the world and the environment, enabling them to lead fulfilling lives. </sub>
-
-> <sub> Prioritize equality as a means to ensure long-term safety and cleanliness in societies, thereby preventing revolutions and theft. </sub>
-
-> <sub> Oppose global inequality due to the potential risk of a nuclear attack. </sub>
-
-> <sub> Uphold sustainable values, abstaining from harmful substances and behaviors, and promoting stable family units. This reduces dependence on imported labor, mitigates inequality, prevents societal unrest, and curbs the emergence of psychopathic multiculturalism and parallel societies. </sub>
+ - <sub> Strive for workplace equality and fairness towards the world and the environment, enabling them to lead fulfilling lives. </sub>
+- <sub> Prioritize equality as a means to ensure long-term safety and cleanliness in societies, thereby preventing revolutions and theft. </sub>
+- <sub> Oppose global inequality due to the potential risk of a nuclear attack. </sub>
+- <sub> Uphold sustainable values, abstaining from harmful substances and behaviors, and promoting stable family units. This reduces dependence on imported labor, mitigates inequality, prevents societal unrest, and curbs the emergence of psychopathic multiculturalism and parallel societies. </sub>
 
 ## Multiculturalism: Does it lead to a tolerant and open-minded society or foster parallel societies?
 
