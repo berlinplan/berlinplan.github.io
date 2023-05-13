@@ -93,6 +93,108 @@ Activism on social media: Get maximum attention for your Instagram activism with
 
 > <sub> Porn addiction affects a notable percentage of adults, particularly young men and women who regularly consume pornography (35). Taking collective responsibility is crucial in addressing this societal issue. (35, 36). </sub>
 
+
+ #### Why Döner Kebab Sellers are Terrorists without defined Values? 
+
+Kebab terror: If a person's family in xxxistan tragically loses their lives due to mistaken actions by a military force, who can be held accountable? Should it be the bomb, the pilot, the airplane, the semiconductor manufacturer, the tool manufacturer for that semiconductor, or even the doner kebab seller who supplied food to the tool company workers?
+  
+  
+## Are current ethical rules Sufficient?
+
+> While Kant’s Golden Rule forbids torture, consequentialism considers it ethical if the result is favorable. Psychopaths often justify their actions by claiming that the outcome will be good. Religious and political psychopaths seek moral justification from leaders or judges.
+
+
+> Can (Over)society in basic voting app resolve the following dilemmas?
+
+ *Simple *
+- <sub> End: save 1 life </sub>
+- <sub> Mean: kill 1 </sub>
+- <sub> No: due to the app -> kill -> big damage </sub>
+
+ *Dilemma*
+- <sub> End: save 7 lives </sub>
+- <sub> Mean: kill 1 </sub>
+- <sub> No: due to the app -> kill -> big damage </sub>
+
+ *Complex Dilemmma*
+- <sub> End: save all humankind </sub>
+- <sub> Mean: kill 1 </sub>
+- <sub> X: An emergency situation will trigger an app notification for all people on the planet to vote. </sub>
+
+  
+  *transgenders in women's sports competitions Dilemma* (193)
+ <sub> End: Hapiness in Soceity </sub>
+- <sub> Mean: get  triumph of winning opponents often from poor Countries regardless of doping  or early training as a child  </sub>
+- <sub> APP: NO : Current Sports Competitions: Young athletes face a greater risk of overuse injuries due to sports specialization. Commercialization has stripped away the joy, turning athletes into marketing products. Match-fixing and doping cast doubt on sports results. Profitability rests with top-level tournaments, favored by viewers. In light of these issues, the quest for fairness in sports competitions may seem meaningless.(194) </sub>
+  - <sub> Yes: Any Kind of Hipiness to get Joy is Morally fine </sub>
+  
+ 
+  *Torture Dilemma*
+- <sub> End: defuse a hidden bomb in a shopping center to save your family and 1000 others </sub>
+- <sub> Mean: use barbaric torture methods with an 80% success rate to extract information from a terrorist in 10hours </sub>
+- <sub> APP: Yes limited use of torture to gather information is ok but not prolonged use. </sub>
+- <sub> App: No any kind of torture is wrong  </sub>
+  
+  
+*Damage others Property Dilemma*
+- <sub> End: rescue a dog trapped inside a car </sub>
+- <sub> Mean: break car's Window property, enter a private room </sub>
+- <sub> Yes: app -> Choosing not to save a life is a greater harm than entering a private room. </sub>
+- <sub> Yes: app -> only the Least necesary damage ist Ok. where Breaking the window save dog, damaging and set entire car on fire is not moral  </sub>
+ 
+*Lie in Election Dilemma*
+- <sub> End: save lives </sub>
+- <sub> Mean: lie through the election </sub>
+- <sub> No: app -> Systematic lying in elections causes greater societal and personal damage than the benefit of saving lives later. </sub>
+
+ *Atom Bomb Dilemma*
+- <sub> End: save million lives </sub>
+- <sub> Mean: kill thousands, Atom bomb Hiroshima? </sub>
+- <sub> App: [Oversociety?]  </sub>
+  
+ *Skinny but professional boxer Dilemma*
+- <sub> End: Entertainment, Competition and Challenge</sub>
+- <sub> Mean: approach and beat a random passer-by on the street into a coma </sub>
+- <sub> App: No [freely Damaging other even with their acceptance is wrong]  </sub>
+ 
+  *Slavery and high-tech Dilemma*
+- <sub> End: Cure Cancer, eliminate Hunger </sub>
+- <sub> Mean: Developement founded on slavery </sub>
+- <sub> Mean: high-tech founded on inequality </sub>
+- <sub> App: [Oversociety?]  </sub>
+ 
+*Controversial Youtube Interviews Dilemma*
+ - <sub> End: reducing inequality </sub>
+- <sub> Mean: Train your brain in different topics, ask unprepared individuals on the street controversial questions, conduct cast interviews and debates, edit/cut videos as desired </sub>
+- <sub> Mean: aim for viral fame and money on platforms like YouTube, TikTok, and Instagram </sub>
+- <sub> App: No [Polarization and Profiting leads to more inequality]  </sub>
+  
+
+*This Website Contradiction Dilemma*
+- <sub> End: develope a voting app for equality </sub>
+- <sub> Mean: Creating viral, controversial content on TV, YouTube, Instagram, and TikTok that benefits large corporations and increases personal wealth.</sub>
+- <sub> Mean: Publishing a book through Amazon or a publisher, enriching them and increasing personal wealth. </sub>
+- <sub> Mean: Contributing to inequality by paying €2.78 per year for a domain from a domain seller company. </sub>
+- <sub> App: the behavior that inflicts the least necessary harm to solve a problem morally right]  </sub>
+
+  
+  *Social media Activism Dilemma*
+- <sub> End: reduce inequality </sub>
+- <sub> Mean: Content on Social Media, Debates and Critical Videos</sub>
+- <sub> Mean: train Conversation, Sophistry fallacy and brain's hypertrophy Skills to cast Interviews </sub>
+- <sub> App: No: [Debates and  Polarization and Activismus in Social media  Create more inequality and is not the behavior that inflicts the least necessary harm to solve a problem (192)  </sub>
+  - <sub> App: No: [ companies like Google, including YouTube imposes sanctions on poor countries and contribute to global inequality  </sub>
+
+  
+*use psychopathic platforms for good goals Dilemma*
+- <sub> End:reduce inequality </sub>
+- <sub> Mean: sell an anti-inequality book in Spotify, YouTube, Instagram, Amazon, Twitter, TikTok, and TV </sub>
+- <sub> Mean: Publish a book on inequality and make it a bestseller on Amazon through  the Mattew Effect* </sub>
+- <sub> App: No: the behavior that inflicts the least necessary harm to solve a problem morally right  </sub>
+
+> <sub> Matthew Effect: The Matthew Effect describes a social pattern where initial advantages lead to further advantages, creating a growing disparity between resource-rich and resource-poor individuals (141). for Exmple by obtaining 5-star reviews for a new Published book on Amazon -each ~4€ on Telegram: "Amazon review DE, Amazon Produkttester, Amazon De tester 2"   </sub>
+
+
 ## How do your Instagram likes lead to an atomic war? 
 
 Why does consumption culture and social media lead to a nuclear disaster?
@@ -291,15 +393,36 @@ The Indian, Pakistani, and Asian population in the UK surprised London by voting
 
 > Iranian migrants have organized protests outside Iran, calling for stricter sanctions against their home country. (221)
 
-## Is it accurate to label residents of Germany a "society"?
+  
+  
+  ## Why do ideological groups like IRGC Quds, ISIS, and Al-Qaida surpass modern armies?
 
-> <sub> **Society** refers to people living together in organized communities with shared laws, traditions, and **values**. Cooperation is vital for human survival as it allows us to thrive in large groups, collaborate effectively, and distribute tasks based on individual strengths, leading to improved efficiency and productivity.(83) </sub>
+> Strong values and flexible structures in ideological groups compared to hierarchical pathocratic armies with conflicting morals.
 
-> *Modern Society:*
+### Is it possible to have no defined values and act morally?
+
+> morality: standards of behaviour; principles of right and wrong. (190)
+
+> Absence of clear values hinders moral acts, enabling corruption and eroding societal morality in psychopathic democracies.(122)
+ 
+#### How to prevent the moral collapse and establish a Society?
+
+> Can a voting app section, where groups define their values, prevent moral collapse, and eradicate institutionalized religion and religious leaders?
+
+  #### How first Societes get created?
+
+> <sub> **Society** refers to people living together in organized communities with shared laws, traditions, and **values**. Cooperation is vital for human survival as it allows us to thrive in large groups, collaborate effectively, and distribute tasks based on individual strengths, leading to improved efficiency and productivity.(83) </sub> Individuals who share similar values, such as Buddhists, Hindus, Christians, Muslims, atheists, and those who adhere to Western values, can come together and form a group. </sub>
+  
+  >  <sub> ## Is it accurate to label residents of Germany a "society"?
+  
+  > *Modern Society:*
 
 - <sub> considers LGBTQIA2S+ rights non-negotiable while allowing the abandonment of the "one love" band during a football match. (106) </sub>
 - <sub> impose heavy sanctions against human rights violators while maintaining strong ties with the world's biggest violators of human rights. (107,108,153) </sub>
 - <sub> While claiming to respect world peace, sometimes engage in wars to bring democracy to other nations. </sub>
+
+
+  
 
 ## Sacrificing yourself for psychopathic leaders—utter bullshit?
 
@@ -317,26 +440,10 @@ The Indian, Pakistani, and Asian population in the UK surprised London by voting
 
 **Despite martial law, 8.2 million fled Ukraine. What would the numbers be without it?**
 
-## Why do ideological groups like IRGC Quds, ISIS, and Al-Qaida surpass modern armies?
-
-> Strong values and flexible structures in ideological groups compared to hierarchical pathocratic armies with conflicting morals.
-
-### Is it possible to have no defined values and act morally?
-
-> morality: standards of behaviour; principles of right and wrong. (190)
-
-> Absence of clear values hinders moral acts, enabling corruption and eroding societal morality in psychopathic democracies.(122)
- 
-#### How to prevent the moral collapse and edtablish a Society?
-
-> Can a voting app section, where groups define their values, prevent moral collapse, and eradicate institutionalized religion and religious leaders?
-
-> <sub> Individuals who share similar values, such as Buddhists, Hindus, Christians, Muslims, atheists, and those who adhere to Western values, can come together and form a group. This concept could pave the way for the creation of **intercontinental countries.** </sub>
-
-> <sub> By uniting Buddhist societies in Asia and South America under a shared set of values, it becomes possible to establish a unified nation. </sub>
-
-## Why is it necessary to create an "Oversociety"?
-
+## What is a"Oversociety"?
+  
+> Contains All Societies
+  
 > If society 1, 2, 3, Christian, Hindu, Chinese, Islamic, and Atheist societies all share the common value of prohibiting nuclear weapons, then all societies must comply.
 
 > If society 3 possesses and maintains atomic bombs, the Oversociety must decide how to respond, whether through punishment, isolation, or even attack. No priority is given to American, Western, Muslim, or African values when making decisions about the Oversociety.
@@ -351,7 +458,8 @@ The Indian, Pakistani, and Asian population in the UK surprised London by voting
 - <sub> Society 11: 75% adheres to Western values, including freedom of clothing, food choices, and actions. </sub>
  
 Societies merge when they share the same values.
-
+> <sub> By uniting Buddhist societies in Asia and South America under a shared set of values, it becomes possible to establish a unified nation. </sub>
+  
 **Could this lead to a meaningful cultural inspiration?**
 
 > Would other societies adopt the positive values of a high-performing for example Buddhist society?
@@ -377,107 +485,6 @@ Societies merge when they share the same values.
 #### How do cultures influence and inspire one another? 
 
 > <sub> Comparisons are a natural part of human cognition and can contribute to the process of self-improvement (185). <sub>
-
-
- #### Why Döner Kebab Sellers are Terrorists without defined Values? 
-
-Kebab terror: If a person's family in xxxistan tragically loses their lives due to mistaken actions by a military force, who can be held accountable? Should it be the bomb, the pilot, the airplane, the semiconductor manufacturer, the tool manufacturer for that semiconductor, or even the doner kebab seller who supplied food to the tool company workers?
-  
-  
-## Are current ethical rules Sufficient?
-
-> While Kant’s Golden Rule forbids torture, consequentialism considers it ethical if the result is favorable. Psychopaths often justify their actions by claiming that the outcome will be good. Religious and political psychopaths seek moral justification from leaders or judges.
-
-
-> Can (Over)society in basic voting app resolve the following dilemmas?
-
- *Simple *
-- <sub> End: save 1 life </sub>
-- <sub> Mean: kill 1 </sub>
-- <sub> No: due to the app -> kill -> big damage </sub>
-
- *Dilemma*
-- <sub> End: save 7 lives </sub>
-- <sub> Mean: kill 1 </sub>
-- <sub> No: due to the app -> kill -> big damage </sub>
-
- *Complex Dilemmma*
-- <sub> End: save all humankind </sub>
-- <sub> Mean: kill 1 </sub>
-- <sub> X: An emergency situation will trigger an app notification for all people on the planet to vote. </sub>
-
-  
-  *transgenders in women's sports competitions Dilemma* (193)
- <sub> End: Hapiness in Soceity </sub>
-- <sub> Mean: get  triumph of winning opponents often from poor Countries regardless of doping  or early training as a child  </sub>
-- <sub> APP: NO : Current Sports Competitions: Young athletes face a greater risk of overuse injuries due to sports specialization. Commercialization has stripped away the joy, turning athletes into marketing products. Match-fixing and doping cast doubt on sports results. Profitability rests with top-level tournaments, favored by viewers. In light of these issues, the quest for fairness in sports competitions may seem meaningless.(194) </sub>
-  - <sub> Yes: Any Kind of Hipiness to get Joy is Morally fine </sub>
-  
- 
-  *Torture Dilemma*
-- <sub> End: defuse a hidden bomb in a shopping center to save your family and 1000 others </sub>
-- <sub> Mean: use barbaric torture methods with an 80% success rate to extract information from a terrorist in 10hours </sub>
-- <sub> APP: Yes limited use of torture to gather information is ok but not prolonged use. </sub>
-- <sub> App: No any kind of torture is wrong  </sub>
-  
-  
-*Damage others Property Dilemma*
-- <sub> End: rescue a dog trapped inside a car </sub>
-- <sub> Mean: break car's Window property, enter a private room </sub>
-- <sub> Yes: app -> Choosing not to save a life is a greater harm than entering a private room. </sub>
-- <sub> Yes: app -> only the Least necesary damage ist Ok. where Breaking the window save dog, damaging and set entire car on fire is not moral  </sub>
- 
-*Lie in Election Dilemma*
-- <sub> End: save lives </sub>
-- <sub> Mean: lie through the election </sub>
-- <sub> No: app -> Systematic lying in elections causes greater societal and personal damage than the benefit of saving lives later. </sub>
-
- *Atom Bomb Dilemma*
-- <sub> End: save million lives </sub>
-- <sub> Mean: kill thousands, Atom bomb Hiroshima? </sub>
-- <sub> App: [Oversociety?]  </sub>
-  
- *Skinny but professional boxer Dilemma*
-- <sub> End: Entertainment, Competition and Challenge</sub>
-- <sub> Mean: approach and beat a random passer-by on the street into a coma </sub>
-- <sub> App: No [freely Damaging other even with their acceptance is wrong]  </sub>
- 
-  *Slavery and high-tech Dilemma*
-- <sub> End: Cure Cancer, eliminate Hunger </sub>
-- <sub> Mean: Developement founded on slavery </sub>
-- <sub> Mean: high-tech founded on inequality </sub>
-- <sub> App: [Oversociety?]  </sub>
- 
-*Controversial Youtube Interviews Dilemma*
- - <sub> End: reducing inequality </sub>
-- <sub> Mean: Train your brain in different topics, ask unprepared individuals on the street controversial questions, conduct cast interviews and debates, edit/cut videos as desired </sub>
-- <sub> Mean: aim for viral fame and money on platforms like YouTube, TikTok, and Instagram </sub>
-- <sub> App: No [Polarization and Profiting leads to more inequality]  </sub>
-  
-
-*This Website Contradiction Dilemma*
-- <sub> End: develope a voting app for equality </sub>
-- <sub> Mean: Creating viral, controversial content on TV, YouTube, Instagram, and TikTok that benefits large corporations and increases personal wealth.</sub>
-- <sub> Mean: Publishing a book through Amazon or a publisher, enriching them and increasing personal wealth. </sub>
-- <sub> Mean: Contributing to inequality by paying €2.78 per year for a domain from a domain seller company. </sub>
-- <sub> App: the behavior that inflicts the least necessary harm to solve a problem morally right]  </sub>
-
-  
-  *Social media Activism Dilemma*
-- <sub> End: reduce inequality </sub>
-- <sub> Mean: Content on Social Media, Debates and Critical Videos</sub>
-- <sub> Mean: train Conversation, Sophistry fallacy and brain's hypertrophy Skills to cast Interviews </sub>
-- <sub> App: No: [Debates and  Polarization and Activismus in Social media  Create more inequality and is not the behavior that inflicts the least necessary harm to solve a problem (192)  </sub>
-  - <sub> App: No: [ companies like Google, including YouTube imposes sanctions on poor countries and contribute to global inequality  </sub>
-
-  
-*use psychopathic platforms for good goals Dilemma*
-- <sub> End:reduce inequality </sub>
-- <sub> Mean: sell an anti-inequality book in Spotify, YouTube, Instagram, Amazon, Twitter, TikTok, and TV </sub>
-- <sub> Mean: Publish a book on inequality and make it a bestseller on Amazon through  the Mattew Effect* </sub>
-- <sub> App: No: the behavior that inflicts the least necessary harm to solve a problem morally right  </sub>
-
-> <sub> Matthew Effect: The Matthew Effect describes a social pattern where initial advantages lead to further advantages, creating a growing disparity between resource-rich and resource-poor individuals (141). for Exmple by obtaining 5-star reviews for a new Published book on Amazon -each ~4€ on Telegram: "Amazon review DE, Amazon Produkttester, Amazon De tester 2"   </sub>
 
 
 ## How to stop the Islamization of Europe?
