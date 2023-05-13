@@ -1,11 +1,5 @@
   # Berlinplan.com
 
-| Command | Description |
-| --- | --- |
-| git status | List all new or modified files |
-| git diff | Show file differences that haven't been staged |
-
-
 <sub> Kindly consider the following questions, with the grey texts as additional information. </sub>
 
 ### Smarter smartphones, the cure for cancer, and the elimination of hunger in Africa, if slavery still persisted?
@@ -436,10 +430,18 @@ Why does psychopathical systems, consumption culture and social media lead to a 
 - <sub> 4. Should sanctions be imposed on Russia, Saudi Arabia, the USA, or China for human rights violations? </sub>
   
  - <sub> 5. Voting example in a village of 100 people: </sub> 
+  |  <sub> User 76: The village is too dry. Do we need to plant trees? </sub>  |
   
-|  <sub> User 76: The village is too dry. Do we need to plant trees? </sub>  |
+  | No | Yes |
+| --- | --- |
+| :<sub> User 74: Planting a new tree costs €30 and requires an investment in a water system and an external maintenance company. The cost is €100 per month, divided among 100 people. However, there are other ways to support the forest without additional costs. (20 votes) </sub>: | :<sub> User 4: Nature is essential for human mental health and well-being. According to a study, children also benefit from contact with nature. (20 votes) </sub>: |
+| git diff | Show file differences that haven't been staged |
+  
+  
+
+
   | No | Yes | 
-|     :<sub> User 74: Planting a new tree costs €30 and requires an investment in a water system and an external maintenance company. The cost is €100 per month, divided among 100 people. However, there are other ways to support the forest without additional costs. (20 votes) </sub>:       |     :<sub> User 4: Nature is essential for human mental health and well-being. According to a study, children also benefit from contact with nature. (20 votes) </sub>:      |
+|            |           |
   
   
   ---: |
