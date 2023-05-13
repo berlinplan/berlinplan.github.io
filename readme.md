@@ -1,4 +1,4 @@
-  # Berlinplan.com
+# Berlinplan.com
 
 <sub> Kindly consider the following questions, with the grey texts as additional information. </sub>
 
@@ -431,71 +431,78 @@ Why does psychopathical systems, consumption culture and social media lead to a 
   
  - <sub> 5. Voting example in a village of 100 people: </sub> 
   
-  
-  <style type="text/css">
-.tg  {border-collapse:collapse;border-spacing:0;}
-.tg td{border-color:black;border-style:solid;border-width:1px;font-family:Arial, sans-serif;font-size:14px;
-  overflow:hidden;padding:10px 5px;word-break:normal;}
-.tg th{border-color:black;border-style:solid;border-width:1px;font-family:Arial, sans-serif;font-size:14px;
-  font-weight:normal;overflow:hidden;padding:10px 5px;word-break:normal;}
-.tg .tg-0lax{text-align:left;vertical-align:top}
-</style>
 <table class="tg">
 <thead>
   <tr>
-    <td class="tg-0lax"></td>
+    <th class="tg-c3ow" colspan="2">User 76: The village is too dry. Do we need to plant trees?</th>
   </tr>
 </thead>
+<tbody>
+  <tr>
+    <td class="tg-c3ow">Yes (80%)</td>
+    <td class="tg-c3ow">No(20%)</td>
+  </tr>
+  <tr>
+    <td class="tg-0pky">User 74: Planting a new tree costs €30 and requires an investment in a water system and an external maintenance company. The cost is €100 per month, divided among 100 people. However, there are other ways to support the forest without additional costs. (20 votes)</td>
+    <td class="tg-0pky">User 4: Nature is essential for human mental health and well-being. According to a study, children also benefit from contact with nature. (20 votes)</td>
+  </tr>
+  <tr>
+    <td class="tg-0pky">User 22: Trees are good for birds. (12 votes)</td>
+    <td class="tg-0pky">User 12: Planting trees is expensive, and we already have enough trees. (17 votes)</td>
+  </tr>
+  <tr>
+    <td class="tg-c3ow" colspan="2">Result: 80% for planting trees</td>
+  </tr>
+  <thead>
+  <tr>
+    <th class="tg-c3ow" colspan="2">Which company is best suited to plant trees?</th>
+  </tr>
+</thead>
+  <tr>
+    <td class="tg-c3ow" colspan="2">User 14: Company XXX charges only €20 per tree for planting and has low costs.</td>
+  </tr>
+  <tr>
+    <td class="tg-0pky" colspan="2">User 20: Company YYY charges €30 per tree but is environmentally friendly as they don't use cars.</td>
+  </tr>
+  <tr>
+    <td class="tg-0pky" colspan="2">Add Suggestion</td>
+  </tr>
+  <tr>
+    <td class="tg-0pky">Other Options: (cancel vote) due to no company found.</td>
+    <td class="tg-0pky">(extend time) to find more companies.</td>
+  </tr>
+  <tr>
+    <td class="tg-0pky" colspan="2">Result: Company XXX selected.</td>
+  </tr>
+  <tr>
+    <td class="tg-0pky" colspan="2">Order created automatically and sent.</td>
+  </tr>
+<thead>
+  <tr>
+    <th class="tg-c3ow" colspan="2">Week 1: Company XXX has completed 25% of the work and is requesting 25% of the payment. Pictures and videos are available. Your part is €10.</th>
+  </tr>
+</thead>
+  <tr>
+    <td class="tg-0pky" colspan="2">After acceptance, €10 will be automatically sent to Company XXX.</td>
+  </tr>
+  <tr>
+    <td class="tg-0pky">Accept?</td>
+    <td class="tg-0pky">Reject?</td>
+  </tr>
+  <thead>
+  <tr>
+    <th class="tg-c3ow" colspan="2">Week 2: Company XXX has completed 100%.</th>
+  </tr>
+</thead>
+  <tr>
+    <td class="tg-0lax">Accept?</td>
+    <td class="tg-0lax">Reject?</td>
+  </tr>
+  <tr>
+    <td class="tg-0lax" colspan="2">After acceptance, €10 will be automatically sent to Company XXX.</td>
+  </tr>
+</tbody>
 </table>
-  
-  
-  |             |          Grouping           ||
-First Header  | Second Header | Third Header |
- ------------ | :-----------: | -----------: |
-Content       |          *Long Cell*        ||
-Content       |   **Cell**    |         Cell |
-
-New section   |     More      |         Data |
-And more      | With an escaped '\|'         ||  
-[Prototype table]
-  
-  |  <sub> User 76: The village is too dry. Do we need to plant trees? </sub>  |
-  
-  | No | Yes |
-| :---: | :---: |
-| <sub> User 74: Planting a new tree costs €30 and requires an investment in a water system and an external maintenance company. The cost is €100 per month, divided among 100 people. However, there are other ways to support the forest without additional costs. (20 votes) </sub> | <sub> User 4: Nature is essential for human mental health and well-being. According to a study, children also benefit from contact with nature. (20 votes) </sub> |
-  
-| User 12: Planting trees is expensive, and we already have enough trees. (17 votes) </sub> | - <sub> User 22: Trees are good for birds. (12 votes) </sub> |
-  
-| No:20% | Yes:80% |
-  
- 
-  | git diff | Show file differences that haven't been staged |
-  
- | git diff | Show file differences that haven't been staged |
-
-  | No | Yes | 
-  
-|   <sub> Which company is best suited to plant trees? Please add your comment. </sub>     |
-  | :---: |
-|    User 14: Company XXX charges only €20 per tree for planting and has low costs. </sub>       |
- | No | Yes |
-| :---: | :---: |
-  
-    | No | Yes |
-| :---: | :---: |
- |            |           | 
-  
-- <sub> 
-- <sub> User 20: Company YYY charges €30 per tree but is environmentally friendly as they don't use cars. </sub>
-- <sub> Other Options: (cancel vote) due to no company found. (extend time) to find more companies. </sub>
-- <sub> Result: Company XXX selected. </sub>
-- <sub> Order created automatically and sent. </sub>
-- <sub> Week 1: Company XXX has completed 25% of the work and is requesting 25% of the payment. Pictures and videos are available. </sub>
-- <sub> Your part is €10. Accept? / Reject? </sub>
-- <sub> After acceptance, €10 will be automatically sent to Company XXX. </sub>
-- <sub> Week 2: Company XXX has completed 100%. Accept? / Reject?  </sub>
-- <sub> After acceptance, €10 will be automatically sent to Company XXX. </sub>
 
 - <sub> 6. Who should be taxed more? </sub>
 - <sub> Fireman, nursing assistant, or teacher? </sub>
