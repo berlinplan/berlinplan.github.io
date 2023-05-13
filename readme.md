@@ -378,7 +378,13 @@ Societies merge when they share the same values.
 
 > <sub> Comparisons are a natural part of human cognition and can contribute to the process of self-improvement (185). <sub>
 
-## Can a basic voting app revolutionize ethics?
+
+ #### Why Döner Kebab Sellers are Terrorists without defined Values? 
+
+Kebab terror: If a person's family in xxxistan tragically loses their lives due to mistaken actions by a military force, who can be held accountable? Should it be the bomb, the pilot, the airplane, the semiconductor manufacturer, the tool manufacturer for that semiconductor, or even the doner kebab seller who supplied food to the tool company workers?
+  
+  
+  ## Can a basic voting app revolutionize ethics?
 
 > Can ethical dilemmas be resolved within society or an Oversociety?
 
@@ -394,78 +400,82 @@ Is it morally acceptable to use barbaric torture methods with an 80% success rat
 
   It is morally wrong to torture if society refuses any kind of torture. It is morally fine to torture if society approves limited use of torture to gather information but not prolonged use.
 
-#### Is it morally acceptable to use psychopathic platforms for good goals? 
 
-*In other words, does the end justify the means? (144)*
-
-**Sell "Anti-inequality" content on Psychopatical platforms** such as Spotify, YouTube, Instagram, Amazon, Twitter, TikTok, and TV, make Sence?
-
-> <sub> Write a book on inequality, publish it on Amazon, obtain 5-star reviews (each ~4€ on Telegram: "Amazon review DE, Amazon Produkttester, Amazon De tester 2"), and make it a bestseller through the Matthew Effect. The Matthew Effect describes a social pattern where initial advantages lead to further advantages, creating a growing disparity between resource-rich and resource-poor individuals (141). </sub>
  
 The app aims to resolve the following dilemmas as examples:
 
+ *Simple *
 - <sub> End: save 1 life </sub>
 - <sub> Mean: kill 1 </sub>
 - <sub> No: due to the app -> kill -> big damage </sub>
 
-  
+ *Dilemma*
 - <sub> End: save 7 lives </sub>
 - <sub> Mean: kill 1 </sub>
 - <sub> No: due to the app -> kill -> big damage </sub>
 
-  
+ *Complex Dilemmma*
 - <sub> End: save all humankind </sub>
 - <sub> Mean: kill 1 </sub>
 - <sub> X: An emergency situation will trigger an app notification for all people on the planet to vote. </sub>
 
-  
+*Damage others Property Dilemma*
 - <sub> End: rescue a dog trapped inside a car </sub>
-- <sub> Mean: break others' property, enter a private room </sub>
+- <sub> Mean: break car's Window property, enter a private room </sub>
 - <sub> Yes: app -> Choosing not to save a life is a greater harm than entering a private room. </sub>
-
+- <sub> Yes: app -> only the Least necesary damage ist Ok. where Breaking the window save dog, damaging and set entire car on fire is not moral  </sub>
  
-<sub> **Can lying in an election to achieve power for a good cause later be morally justified?** </sub>
-
+*Lie in Election Dilemma*
 - <sub> End: save lives </sub>
 - <sub> Mean: lie through the election </sub>
 - <sub> No: app -> Systematic lying in elections causes greater societal and personal damage than the benefit of saving lives later. </sub>
 
- 
+ *Atom Bomb Dilemma*
 - <sub> End: save million lives </sub>
 - <sub> Mean: kill thousands, Atom bomb Hiroshima? </sub>
-- <sub> App: [?]  </sub>
-
-#### a skinny professional boxer approach a random passer-by on the street and, after obtaining his consent, beat him into a coma, moraly acceptable?
-
-#### What is wrong with debate culture?
-
-> Critiques of debate: Sophistry fallacy, polarization, conversation, and speech are trainable skills that involve the brain's hypertrophy and may lead to potential bias. (192)
-
-## Instead of writing a free book, why not go viral?
-
-Train your brain in different topics, ask unprepared individuals on the street controversial questions, conduct cast interviews and debates, edit/cut videos as desired, aim for viral fame on platforms like YouTube, TikTok, and Instagram, polarize society, and make money with the intention of **reducing inequality?**
-
-#### Why Döner Kebab Sellers are Terrorists? 
-
-Kebab terror: If a person's family in xxxistan tragically loses their lives due to mistaken actions by a military force, who can be held accountable? Should it be the bomb, the pilot, the airplane, the semiconductor manufacturer, the tool manufacturer for that semiconductor, or even the doner kebab seller who supplied food to the tool company workers?
-
-YouTube killer: When a psychopathic system imposes sanctions on a country and companies like Google, including YouTube, comply, how accountable should a peace-loving YouTube video creator be for their contribution to global inequality?
+- <sub> App: [Oversociety?]  </sub>
   
-**Only with (Over)society's approval does high-tech become morally justifiable; otherwise, how does one differentiate between inequality-generating hi-tech and development founded on slavery?**
-
-### What is **contradiction:**?
-
->  Breaking someone else's window is morally wrong, except in the case of a dog trapped inside a car with closed windows, where it becomes the least damaging choice to save its life compared to other options like damaging the wheels, the entire car, or setting it on fire.(198)
-
-#### Creating a website that fuels inequality while claiming to address global inequality for personal gain—ethical?
+ *Skinny but professional boxer Dilemma*
+- <sub> End: Entertainment, Competition and Challenge</sub>
+- <sub> Mean: approach and beat a random passer-by on the street into a coma </sub>
+- <sub> App: No [freely Damaging other even with their acceptance is wrong]  </sub>
  
-#### Is the behavior that inflicts the least necessary harm to solve a problem morally right*?
+  *Slavery and high-tech Dilemma*
+- <sub> End: Cure Cancer, eliminate Hunger </sub>
+- <sub> Mean: Developement founded on slavery </sub>
+- <sub> Mean: high-tech founded on inequality </sub>
+- <sub> App: [Oversociety?]  </sub>
+ 
+*Controversial Youtube Interviews Dilemma*
+ - <sub> End: reducing inequality </sub>
+- <sub> Mean: Train your brain in different topics, ask unprepared individuals on the street controversial questions, conduct cast interviews and debates, edit/cut videos as desired </sub>
+- <sub> Mean: aim for viral fame and money on platforms like YouTube, TikTok, and Instagram </sub>
+- <sub> App: No [Polarization and Profiting leads to more inequality]  </sub>
   
-1. Creating viral, controversial content on TV, YouTube, Instagram, and TikTok that benefits large corporations and increases personal wealth.
-2. Publishing a book through Amazon or a publisher, enriching them and increasing personal wealth.
-3. Contributing to inequality by paying €2.78 per year for a domain from a domain seller company.
-> <sub> unless (Over)Society determines otherwise.* </sub>
+
+*This Website Contradiction Dilemma*
+- <sub> End: develope a voting app for equality </sub>
+- <sub> Mean: Creating viral, controversial content on TV, YouTube, Instagram, and TikTok that benefits large corporations and increases personal wealth.</sub>
+- <sub> Mean: Publishing a book through Amazon or a publisher, enriching them and increasing personal wealth. </sub>
+- <sub> Mean: Contributing to inequality by paying €2.78 per year for a domain from a domain seller company. </sub>
+- <sub> App: the behavior that inflicts the least necessary harm to solve a problem morally right]  </sub>
+
   
+  *Social media Activism Dilemma*
+- <sub> End: reduce inequality </sub>
+- <sub> Mean: Content on Social Media, Debates and Critical Videos</sub>
+- <sub> Mean: train Conversation, Sophistry fallacy and brain's hypertrophy Skills to cast Interviews </sub>
+- <sub> App: No: [Debates and  Polarization and Activismus in Social media  Create more inequality and is not the behavior that inflicts the least necessary harm to solve a problem (192)  </sub>
+  - <sub> App: No: [ companies like Google, including YouTube imposes sanctions on poor countries and contribute to global inequality  </sub>
+
+  
+*use psychopathic platforms for good goals Dilemma*
+- <sub> End:reduce inequality </sub>
+- <sub> Mean: sell an anti-inequality book in Spotify, YouTube, Instagram, Amazon, Twitter, TikTok, and TV </sub>
+- <sub> Mean: Publish a book on inequality and make it a bestseller on Amazon through  the Mattew Effect* </sub>
+- <sub> App: No: [the behavior that inflicts the least necessary harm to solve a problem morally right  </sub>
+  > Matthew Effect: The Matthew Effect describes a social pattern where initial advantages lead to further advantages, creating a growing disparity between resource-rich and resource-poor individuals (141). for Exmple obtain 5-star reviews for a new Published book on Amazon (each ~4€ on Telegram: "Amazon review DE, Amazon Produkttester, Amazon De tester 2")
+
 
 ## How to stop the Islamization of Europe?
 
