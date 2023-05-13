@@ -1,5 +1,11 @@
   # Berlinplan.com
 
+| Command | Description |
+| --- | --- |
+| git status | List all new or modified files |
+| git diff | Show file differences that haven't been staged |
+
+
 <sub> Kindly consider the following questions, with the grey texts as additional information. </sub>
 
 ### Smarter smartphones, the cure for cancer, and the elimination of hunger in Africa, if slavery still persisted?
