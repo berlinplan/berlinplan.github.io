@@ -94,24 +94,23 @@ Activism on social media: Get maximum attention for your Instagram activism with
 > <sub> Porn addiction affects a notable percentage of adults, particularly young men and women who regularly consume pornography (35). Taking collective responsibility is crucial in addressing this societal issue. (35, 36). </sub>
 
 
-### Is it possible to have no defined values and act morally?
+ ### Why Döner Kebab Sellers are Terrorists? 
+
+Kebab terror: If a person's family in xxxistan tragically loses their lives due to mistaken actions by a military force, who can be held accountable? Should it be the bomb, the pilot, the airplane, the semiconductor manufacturer, the tool manufacturer for that semiconductor, or even the doner kebab seller who supplied food to the tool company workers?
+
+#### Is it possible to act morally without having defined Values?
 
 > morality: standards of behaviour; principles of right and wrong. (190)
 
 > Absence of clear values hinders moral acts, enabling corruption and eroding societal morality in psychopathic democracies.(122)
  
-
- #### Why Döner Kebab Sellers are Terrorists without defined Values? 
-
-Kebab terror: If a person's family in xxxistan tragically loses their lives due to mistaken actions by a military force, who can be held accountable? Should it be the bomb, the pilot, the airplane, the semiconductor manufacturer, the tool manufacturer for that semiconductor, or even the doner kebab seller who supplied food to the tool company workers?
   
-  
-## Are current ethical rules Sufficient?
+#### Are current rules Sufficient to decide the morality of an Act?
 
 > While Kant’s Golden Rule forbids torture, consequentialism considers it ethical if the result is favorable. Psychopaths often justify their actions by claiming that the outcome will be good. Religious and political psychopaths seek moral justification from leaders or judges.
 
 
-> Can (Over)society in basic voting app resolve the following dilemmas?
+> Can (Over)society in a basic voting app resolve the following dilemmas?
 
  *Simple *
 - <sub> End: save 1 life </sub>
@@ -179,7 +178,6 @@ Kebab terror: If a person's family in xxxistan tragically loses their lives due 
 - <sub> Mean: Train your brain in different topics, ask unprepared individuals on the street controversial questions, conduct cast interviews and debates, edit/cut videos as desired </sub>
 - <sub> Mean: aim for viral fame and money on platforms like YouTube, TikTok, and Instagram </sub>
 - <sub> App: No [Polarization and Profiting leads to more inequality]  </sub>
-  
 
 *This Website Contradiction Dilemma*
 - <sub> End: develope a voting app for equality </sub>
@@ -188,7 +186,6 @@ Kebab terror: If a person's family in xxxistan tragically loses their lives due 
 - <sub> Mean: Contributing to inequality by paying €2.78 per year for a domain from a domain seller company. </sub>
 - <sub> App: the behavior that inflicts the least necessary harm to solve a problem morally right]  </sub>
 
-  
   *Social media Activism Dilemma*
 - <sub> End: reduce inequality </sub>
 - <sub> Mean: Content on Social Media, Debates and Critical Videos</sub>
@@ -196,7 +193,6 @@ Kebab terror: If a person's family in xxxistan tragically loses their lives due 
 - <sub> App: No: [Debates and  Polarization and Activismus in Social media  Create more inequality and is not the behavior that inflicts the least necessary harm to solve a problem (192)  </sub>
   - <sub> App: No: [ companies like Google, including YouTube imposes sanctions on poor countries and contribute to global inequality  </sub>
 
-  
 *use psychopathic platforms for good goals Dilemma*
 - <sub> End:reduce inequality </sub>
 - <sub> Mean: sell an anti-inequality book in Spotify, YouTube, Instagram, Amazon, Twitter, TikTok, and TV </sub>
@@ -210,25 +206,23 @@ Kebab terror: If a person's family in xxxistan tragically loses their lives due 
 
 > Strong values and flexible structures in ideological groups compared to hierarchical pathocratic armies with conflicting morals.
 
-#### How to prevent the moral collapse and establish a Society?
 
-> Can a voting app section, where groups define their values, prevent moral collapse, and eradicate institutionalized religion and religious leaders?
+#### Can a voting app section, where groups define their values, prevent moral collapse, and eradicate institutionalized religion and religious leaders?
 
   #### How first Societes get created?
 
-> <sub> **Society** refers to people living together in organized communities with shared laws, traditions, and **values**. Cooperation is vital for human survival as it allows us to thrive in large groups, collaborate effectively, and distribute tasks based on individual strengths, leading to improved efficiency and productivity.(83) </sub> Individuals who share similar values, such as Buddhists, Hindus, Christians, Muslims, atheists, and those who adhere to Western values, can come together and form a group. </sub>
+> <sub> **Society** refers to people living together in organized communities with shared laws, traditions, and **values**. Cooperation is vital for human survival as it allows us to thrive in large groups, collaborate effectively, and distribute tasks based on individual strengths, leading to improved efficiency and productivity.(83) Individuals who share similar values, such as Buddhists, Hindus, Christians, Muslims, atheists, and those who adhere to Western values, can come together and form a group. </sub>
   
- ## Is it accurate to label residents of Germany a "society"?
+ ## Is it accurate to label Current residents of Germany a "society"?
   
-  > *Modern Society:*
+  > *Modern Society Values:*
 
 - <sub> considers LGBTQIA2S+ rights non-negotiable while allowing the abandonment of the "one love" band during a football match. (106) </sub>
 - <sub> impose heavy sanctions against human rights violators while maintaining strong ties with the world's biggest violators of human rights. (107,108,153) </sub>
 - <sub> While claiming to respect world peace, sometimes engage in wars to bring democracy to other nations. </sub>
 
 
-
-## What is a"Oversociety"?
+## What is a "Oversociety"?
   
 > Contains All Societies
   
@@ -353,10 +347,21 @@ The Indian, Pakistani, and Asian population in the UK surprised London by voting
 
 **Despite martial law, 8.2 million fled Ukraine. What would the numbers be without it?**
   
- 
+  
+ ## Why does democracy end in an atomic bomb?
+
+- <sub> While democracy is considered the best political system, it has drawbacks: polarizing debates, corruption, lack of protection for the common man, divide-and-rule tactics, unfair business practices, power addiction, media misuse, and rising inequality. Power dynamics in social hierarchies affect empathy, with higher-status individuals showing decreased accuracy in empathizing with lower-status individuals. (138).(63, 220, 65). </sub>
+- <sub> Psychopathy is a severe personality disorder characterized by antisocial behavior, deceitfulness, irresponsibility, and a lack of empathy. Preventing psychopaths from gaining power is crucial to avoid turning democracy into a pathocracy, as they have no limits in reaching the top. (64, 68, 79, 80, 172). </sub>
+- <sub> Political and economic systems provide an ideal environment for psychopaths to thrive. Approximately 1% of the whole population, including 15% of prisoners, 21% of CEOs, and many US presidents, exhibit psychopathic traits. Aristotle warned about the susceptibility of democracies to foster psychopaths over two millennia ago. In the past fifty years, psychopaths have gained significant control over all branches of government. (44, 45, 46, 47,49,173,175) </sub>
+- <sub> Many successful psychopaths hold leadership positions in big companies and politics, allowing them to exploit democratic organizations. Late bill payments can result in severe financial consequences for individuals, including late fees, credit score damage, and even imprisonment. On the contrary, corporations that often find ways to avoid paying taxes have legal departments to handle lawsuits. (73, 74, 75, 76, 77, 177). </sub>
+- <sub> If someone is unable to pay their rent, how would the modern executive, legislative, and judiciary, which are responsible for creating billionaires and financed by taxpayers, address this situation? </sub>
+- <sub> The New York Times claimed that Donald Trump was already a millionaire at the young age of 8. Throughout human history, this has never been a common occurrence because having substantial wealth has always come with its own set of issues and uncertainties. (210) </sub>
+- <sub> Let's say someone inherits 3,000 apartments from their dad. Current Psychopathic System, help him to expand their apartment holdings to 6,000 units. Then, they pass it on to their child, who takes it further to 10,000 units. </sub> 
+- <sub> Preventing psychopaths from obtaining power is challenging since there is no reliable test to identify a psychopath (82) </sub>
+
 ## How do your Instagram likes lead to an atomic war? 
 
-Why does consumption culture and social media lead to a nuclear disaster?
+Why does psychopathical systems, consumption culture and social media lead to a nuclear disaster?
  
 #### 1. Why do 40% of the new generation prefer to be influencers over other professions?
 
@@ -366,11 +371,9 @@ Why does consumption culture and social media lead to a nuclear disaster?
 
 > <sub> Cristiano Ronaldo (496m followers) Lionel Messi (373m followers) Kylie Jenner (372m followers) Selena Gomez (356m followers) Kim Kardashian (333m followers) Khloé Kardashian (279m followers) (40) or in Germany bibisbeautypalace, Julienco, Lisa und Lena mantler, Montana Black, Pia wurzbach, Pamela reif, dagibee,youneszarou </sub>
 
-> <sub> 1. Instagram has faced accusations of sexualizing society. </sub>
-
-> <sub> 2. Instagram is used by children. </sub> 
-
-> <sub> 3. Early sexual activity can lead to unstable relationships and marriages when children grow up, which may contribute to lower birth rates and an aging population (10, 11, 12, 13, 14). </sub>
+- <sub> 1. Instagram has faced accusations of sexualizing society. </sub>
+- <sub> 2. Instagram is used by children. </sub> 
+- <sub> 3. Early sexual activity can lead to unstable relationships and marriages when children grow up, which may contribute to lower birth rates and an aging population (10, 11, 12, 13, 14). </sub>
 
 #### 3. How does an aging population and labor shortage contribute to international inequality & exploitation?
 
@@ -393,16 +396,6 @@ Why does consumption culture and social media lead to a nuclear disaster?
 
 > Experts warn that advancements like 3D printing make it easier for non-hierarchical groups to secretly produce weapons of mass destruction. Meanwhile, current people in power would less likely use it. Contrary to misconceptions, psychopaths are fully aware of the consequences of their actions; they are not insane. In 2013, Iran's religious Supreme leader issued an irrevocable Fatwa prohibiting the development and deployment of nuclear weapons under Islamic law. Since then, Mahmoud Ahmadinejad, a strong supporter of Iran's nuclear program, has been disqualified from all Iranian elections. (154, 162, 163, 164, 178, 195,216).
 
-## Why does democracy end in an atomic bomb?
-
-- <sub> While democracy is considered the best political system, it has drawbacks: polarizing debates, corruption, lack of protection for the common man, divide-and-rule tactics, unfair business practices, power addiction, media misuse, and rising inequality. Power dynamics in social hierarchies affect empathy, with higher-status individuals showing decreased accuracy in empathizing with lower-status individuals. (138).(63, 220, 65). </sub>
-- <sub> Psychopathy is a severe personality disorder characterized by antisocial behavior, deceitfulness, irresponsibility, and a lack of empathy. Preventing psychopaths from gaining power is crucial to avoid turning democracy into a pathocracy, as they have no limits in reaching the top. (64, 68, 79, 80, 172). </sub>
-- <sub> Political and economic systems provide an ideal environment for psychopaths to thrive. Approximately 1% of the whole population, including 15% of prisoners, 21% of CEOs, and many US presidents, exhibit psychopathic traits. Aristotle warned about the susceptibility of democracies to foster psychopaths over two millennia ago. In the past fifty years, psychopaths have gained significant control over all branches of government. (44, 45, 46, 47,49,173,175) </sub>
-- <sub> Many successful psychopaths hold leadership positions in big companies and politics, allowing them to exploit democratic organizations. Late bill payments can result in severe financial consequences for individuals, including late fees, credit score damage, and even imprisonment. On the contrary, corporations that often find ways to avoid paying taxes have legal departments to handle lawsuits. (73, 74, 75, 76, 77, 177). </sub>
-- <sub> If someone is unable to pay their rent, how would the modern executive, legislative, and judiciary, which are responsible for creating billionaires and financed by taxpayers, address this situation? </sub>
-- <sub> The New York Times claimed that Donald Trump was already a millionaire at the young age of 8. Throughout human history, this has never been a common occurrence because having substantial wealth has always come with its own set of issues and uncertainties. (210) </sub>
-- <sub> Let's say someone inherits 3,000 apartments from their dad. Current Psychopathic System, help him to expand their apartment holdings to 6,000 units. Then, they pass it on to their child, who takes it further to 10,000 units. </sub> 
-- <sub> Preventing psychopaths from obtaining power is challenging since there is no reliable test to identify a psychopath (82) </sub>
  
 #### Should non-hierarchical systems be adopted due to the challenge of identifying psychopaths?
 
