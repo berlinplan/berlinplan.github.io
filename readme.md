@@ -605,45 +605,36 @@ The popularity of various platforms promoting psychopathic behaviors such as bea
 
 Boris Palmer's proposal suggests that asylum seekers should be required to work, social benefits should be eliminated, and non-compliant individuals should be deported (196).
 
-Additional psychopathic solutions could involve building extensive walls beyond Germany/EU borders and preventing marginalized societies from producing atomic bombs by Sanctions.
-
-## Does it make sense to wait for psychopaths to create a simple voting app?
-
-#### Is it possible for a group of people to collectively brainstorm strategies for creating a public utility app?
-
-A group collaborating to devise strategies for developing an app that serves the public's needs *must:*
-
-- Be an inclusive association without hierarchical structures or attractive positions for psychopaths.
-- Establish a structure where sociopathic behavior, the longing for popularity, the pursuit of profit, claims of ownership, aspirations for celebrity status, public disclosure of identity, engagement in university lectures, or a social media presence have no place.
-- Have two primary objectives:
-- <sub> Devise strategies for establishing a non-psychopathic platform for conducting initial societal app voting. </sub>
-- <sub> Make decisions regarding the website's content, including questions and methods for engaging and mobilizing individuals.</sub>
+> Additional psychopathic solutions could involve building extensive walls beyond Germany/EU borders and preventing marginalized societies from producing atomic bombs by Sanctions.
 
 ## "Homo homini lupus" - A man is a wolf to another man, **but not always**?
 
-Due to high morality, concerns after the Fukushima accident, or increased awareness, Germany has decommissioned its nuclear power plants, despite other countries still investing in this technology.
-
-Over the past 2000 years, around 70 generations have lived, while approximately 33,000 future generations will be responsible for managing nuclear waste. Is it morally justifiable for one generation to harm 33,000 generations? 
+> In last 2000 years, 70 generations lived, but 33,000 future generations must manage nuclear waste. Is it moral to harm 33,000 generations for one?
+  
+Due to high morality, concerns after the Fukushima accident, or increased awareness, **Germany has decommissioned its nuclear power plants**, despite other countries still investing in this technology.
 
 The decision to shut down nuclear power plants in Germany has resulted in significant costs, power shortages, and economic losses for its people. (201,202, 203, 204,205,206)
   
-## You may send an Email if you want: 
 
-to participate in brainstorming strategies for developing a Voting app. 
+## Action, instead of wait for psychopaths to create a voting app for public utility?
+
+## You may send an Email if you think: 
   
-> Once we reach 150 volunteers, you will be provided with instructions for participation via WhatsApp, Telegram, email, or other suitable means. Your input is also welcome How to create the initial groups for the voting platform. Feel free to suggest any changes to this page's content.
+An ownerless, non-beneficial group free from hierarchies and sociopathic behavior can brainstorm developement strategies for an ownerless voting app.
+
+> At 150 volunteers, participation instructions will be emailed. Your input on choosing the initial group platform (e.g., WhatsApp, Telegram) is valued.
 
 Email: theberlinplan@gmail.com
 
 ## How should this content be distributed correctly?
 
-Posting this content on TV, social media, or other psychopathic platforms and profiting from it or gaining notoriety is morally wrong unless (Over)society determines otherwise. However, individuals are free to create websites, distribute the content, form groups, and potentially receive compensation for their efforts. These groups may also merge in the future.
+Posting this content on TV, social media, or other psychopathic platforms and profiting from it or gaining notoriety is morally wrong unless (Over)society determines otherwise. However, individuals are **free** to create websites, distribute the content, form groups, and potentially receive compensation for their efforts. These groups may also merge in the future.
  
 #### Alms of science is its distribution (200)
 
 > This content is free.
 
-## Did you get this Page on the street? 
+## Did you come across this page on the street?
 
 You might want to consider sending the person compensation for his effort.
 
