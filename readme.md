@@ -448,6 +448,17 @@ Why does psychopathical systems, consumption culture and social media lead to a 
 </thead>
 </table>
   
+  
+  |             |          Grouping           ||
+First Header  | Second Header | Third Header |
+ ------------ | :-----------: | -----------: |
+Content       |          *Long Cell*        ||
+Content       |   **Cell**    |         Cell |
+
+New section   |     More      |         Data |
+And more      | With an escaped '\|'         ||  
+[Prototype table]
+  
   |  <sub> User 76: The village is too dry. Do we need to plant trees? </sub>  |
   
   | No | Yes |
