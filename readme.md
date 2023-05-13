@@ -107,7 +107,7 @@ Kebab terror: If a person's family in xxxistan tragically loses their lives due 
   
 #### Are current rules Sufficient to decide the morality of an Act?
 
-> While Kant’s Golden Rule forbids torture, consequentialism considers it ethical if the result is favorable. Psychopaths often justify their actions by claiming that the outcome will be good. Religious and political psychopaths seek moral justification from leaders or judges.
+> While some people rely on religious leaders for moral guidance, others follow Kant's Golden Rule or consequentialist principles, which judge an act's ethics based on favorable outcomes. However, religious and political psychopaths often justify their actions by claiming positive outcomes, exposing the lack of a universal moral definition.
 
 #### Can a simple voting app ,where People define their values, eradicate institutionalized religion and religious leaders?
 
