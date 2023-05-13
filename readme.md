@@ -94,6 +94,14 @@ Activism on social media: Get maximum attention for your Instagram activism with
 > <sub> Porn addiction affects a notable percentage of adults, particularly young men and women who regularly consume pornography (35). Taking collective responsibility is crucial in addressing this societal issue. (35, 36). </sub>
 
 
+
+### Is it possible to have no defined values and act morally?
+
+> morality: standards of behaviour; principles of right and wrong. (190)
+
+> Absence of clear values hinders moral acts, enabling corruption and eroding societal morality in psychopathic democracies.(122)
+ 
+
  #### Why Döner Kebab Sellers are Terrorists without defined Values? 
 
 Kebab terror: If a person's family in xxxistan tragically loses their lives due to mistaken actions by a military force, who can be held accountable? Should it be the bomb, the pilot, the airplane, the semiconductor manufacturer, the tool manufacturer for that semiconductor, or even the doner kebab seller who supplied food to the tool company workers?
@@ -120,7 +128,6 @@ Kebab terror: If a person's family in xxxistan tragically loses their lives due 
 - <sub> End: save all humankind </sub>
 - <sub> Mean: kill 1 </sub>
 - <sub> X: An emergency situation will trigger an app notification for all people on the planet to vote. </sub>
-
   
   *transgenders in women's sports competitions Dilemma* (193)
  <sub> End: Hapiness in Soceity </sub>
@@ -128,7 +135,6 @@ Kebab terror: If a person's family in xxxistan tragically loses their lives due 
 - <sub> APP: NO : Current Sports Competitions: Young athletes face a greater risk of overuse injuries due to sports specialization. Commercialization has stripped away the joy, turning athletes into marketing products. Match-fixing and doping cast doubt on sports results. Profitability rests with top-level tournaments, favored by viewers. In light of these issues, the quest for fairness in sports competitions may seem meaningless.(194) </sub>
   - <sub> Yes: Any Kind of Hipiness to get Joy is Morally fine </sub>
   
- 
   *Torture Dilemma*
 - <sub> End: defuse a hidden bomb in a shopping center to save your family and 1000 others </sub>
 - <sub> Mean: use barbaric torture methods with an 80% success rate to extract information from a terrorist in 10hours </sub>
@@ -195,6 +201,154 @@ Kebab terror: If a person's family in xxxistan tragically loses their lives due 
 > <sub> Matthew Effect: The Matthew Effect describes a social pattern where initial advantages lead to further advantages, creating a growing disparity between resource-rich and resource-poor individuals (141). for Exmple by obtaining 5-star reviews for a new Published book on Amazon -each ~4€ on Telegram: "Amazon review DE, Amazon Produkttester, Amazon De tester 2"   </sub>
 
 
+ ## Why do ideological groups like IRGC Quds, ISIS, and Al-Qaida surpass modern armies?
+
+> Strong values and flexible structures in ideological groups compared to hierarchical pathocratic armies with conflicting morals.
+
+#### How to prevent the moral collapse and establish a Society?
+
+> Can a voting app section, where groups define their values, prevent moral collapse, and eradicate institutionalized religion and religious leaders?
+
+  #### How first Societes get created?
+
+> <sub> **Society** refers to people living together in organized communities with shared laws, traditions, and **values**. Cooperation is vital for human survival as it allows us to thrive in large groups, collaborate effectively, and distribute tasks based on individual strengths, leading to improved efficiency and productivity.(83) </sub> Individuals who share similar values, such as Buddhists, Hindus, Christians, Muslims, atheists, and those who adhere to Western values, can come together and form a group. </sub>
+  
+ ## Is it accurate to label residents of Germany a "society"?
+  
+  > *Modern Society:*
+
+- <sub> considers LGBTQIA2S+ rights non-negotiable while allowing the abandonment of the "one love" band during a football match. (106) </sub>
+- <sub> impose heavy sanctions against human rights violators while maintaining strong ties with the world's biggest violators of human rights. (107,108,153) </sub>
+- <sub> While claiming to respect world peace, sometimes engage in wars to bring democracy to other nations. </sub>
+
+
+
+## What is a"Oversociety"?
+  
+> Contains All Societies
+  
+> If society 1, 2, 3, Christian, Hindu, Chinese, Islamic, and Atheist societies all share the common value of prohibiting nuclear weapons, then all societies must comply.
+
+> If society 3 possesses and maintains atomic bombs, the Oversociety must decide how to respond, whether through punishment, isolation, or even attack. No priority is given to American, Western, Muslim, or African values when making decisions about the Oversociety.
+
+#### Can international inequality be solved within the Oversociety? 
+
+> In the absence of corrupt politicians, every individual holds power and can take action against a society that causes harm to others.
+
+- <sub> For example, if Society 6 adopts a psychopathic economy leading to inequality, an aging population, migration, a loss of workforce, family issues, increased intercontinental flights, and growing polarization, the Oversociety must decide how to address this behavior, as it harms everyone involved.  </sub>
+- <sub> Society 1: 60% adheres to Islamic values, which include wearing hijab, abstaining from alcohol, avoiding premarital sex, and not engaging in open relationships. </sub>
+- <sub> Society 2: 70% adheres to xxx values, where drinking alcohol and engaging in premarital sex are permissible, but open relationships are not allowed. </sub>
+- <sub> Society 11: 75% adheres to Western values, including freedom of clothing, food choices, and actions. </sub>
+ 
+Societies merge when they share the same values.
+> <sub> By uniting Buddhist societies in Asia and South America under a shared set of values, it becomes possible to establish a unified nation. </sub>
+  
+**Could this lead to a meaningful cultural inspiration?**
+
+> Would other societies adopt the positive values of a high-performing for example Buddhist society?
+
+> Could Muslims be inspired by Christians who have healthier babies due to avoiding cousin marriages?
+
+> Can Christians be inspired by Muslims to reduce alcohol consumption and have more stable relationships?
+
+#### How did cultural inspiration occur in the past?
+
+> <sub> Cultural influences between Asia and the West have been diverse, including the introduction of mathematical zero and the binary code (226). </sub>
+
+> <sub> Western influences on Eastern culture have been significant, particularly in the modern era, impacting aspects such as food, fashion, lifestyle, and governance (227). </sub>
+
+> <sub> During Atatürk's rule, Westernizing reforms were implemented across political, legal, religious, cultural, social, and economic policies (182). </sub>
+
+> <sub> In 1698, Tsar Peter I of Russia introduced a beard tax as part of an effort to align Russian society with Western European models (181). </sub>
+
+> <sub> One of the Westernizing actions taken by Iranian Reza Shah was the enforcement of Western suits and hats for men (183).  </sub>
+
+> <sub> Japan underwent early Westernization and modernization (184).) </sub>
+
+#### How do cultures influence and inspire one another? 
+
+> <sub> Comparisons are a natural part of human cognition and can contribute to the process of self-improvement (185). <sub>
+
+
+## Multiculturalism: Does it lead to a tolerant and open-minded society or foster parallel societies?
+
+> Multiculturalism is often viewed as a means to promote cultural exchange, tolerance, openness, and new ideas. However, studies indicate that it can also lead to social tensions, culture clashes, polarization, marginalization, and language problems.(110)
+
+> A bounded confidence model describes consensus-like opinion dynamics, where agents interact only when their opinions are sufficiently similar. (111)
+
+> Free circulation of information, social media, and debates can contribute to group polarization. (112)(113) 
+
+> People with similar viewpoints tend to follow, share, and comment on each other's posts. Discussions on racial attitudes with individuals who hold similar attitudes can significantly increase the gap between high- and low-prejudice groups. This interaction among extremists can further exacerbate the gap and contribute to the formation of parallel societies. (114,115,116)
+
+#### Why does cultural dialogue often result in tribalism?
+
+> The exchange of ideas and debates can lead to increased polarization.
+
+> The decrease in the percentage of people who befriend or marry individuals with different political viewpoints reflects how social media has contributed to polarization.
+
+> Devout religious belief or observance does not necessarily predict extremism. However, studies indicate that support for terrorism in majority Muslim countries is related to mosque attendance rather than individual prayer frequency or adherence to food prohibitions. Similar patterns can be observed among right-wing Jewish extremists in Israel.
+
+> Nationalism and tolerance for autocratic leaders are rising globally, possibly as reactions to globalization. Research suggests that the well-being of everyone is negatively impacted when the rich do not interact with the poor or when the poor have limited contact with the middle class. (211,212,213)
+
+#### Can multiculturalism contribute to international inequality?
+
+> <sub> Multiculturalism is essential for the survival of psychopathic economies and has huge economic benefits. </sub>
+
+<sub> Germany is the biggest **Winner.** According to Brücker in 2013, without immigration, the labor force potential in Germany would fall by around 40% by 2050. (117) <sub>
+
+#### Do the countries of origin of migrants also benefit?
+
+> Immigration can lead to a decrease in average IQ in the countries of origin. Studies have shown that Scotland, for instance, has the lowest average IQ in the UK and performs less favorably compared to most European countries.(119)
+
+> Over 80% of intelligent students from third-world countries migrate to industrialized nations, as highlighted by research.(121)
+
+> A survey conducted by a Job Vision center found that 77% of working individuals from third-world countries are willing to migrate.(120)
+
+> International organizations estimate that each young migrant in their early working age costs their country of origin $120,000.(118)
+
+#### Is multiculturalism a consequence of a psychopathic economy?
+  
+Would individuals still seek refuge if economic disparities between third-world and industrial nations were eliminated?
+
+> Despite its potential for polarization and inequality, psychopathic economies often benefit from multiculturalism.
+
+## Has the integration of migrants failed?
+
+> Sweden: “Integration of migrants has failed” (166)
+
+> **Integration:** the act of combining into an integral whole (167)
+
+> **Combine:** implies some merging or mingling with corresponding loss of identity of each unit (168)
+
+> People from poor countries migrate to industrialized nations, where their high-tech products are more likely to be utilized, especially by the US Army, which often operates in migrants countries of origin. Despite migrants resisting the acceptance of values from psychopathic systems that have led to the erosion of their own populations, cultures, and values, they are already fully integrated into the heavy psychopathic system as they live and work in a system that perpetuates inequality (psychopathegration). (179,180,186)
+
+#### Why does the economy favor psychopathically integrated populations over organic ones?
+
+> The reduced affinity of migrants towards their original values increases their susceptibility to psychopathic integration.
+
+>  <sub> as sociopaths, Psychopathegrated population, have learned their behavior and are created by life experiences. They are capable of feeling emotions but usually don’t control them. Psychopaths, on the other hand, are born and suffer from a genetic effect (50,51) </sub>
+
+The Indian, Pakistani, and Asian population in the UK surprised London by voting in favor of Brexit, indicating stronger euroscepticism within this community than previously anticipated. (197) 
+
+> Iranian migrants have organized protests outside Iran, calling for stricter sanctions against their home country. (221)
+
+## Sacrificing yourself for psychopathic leaders—utter bullshit?
+
+#### Do people in modern societies tend to resist and fight during war attacks?
+
+> <sub> 1. Around 30,000 fighters from 85 countries joined ISIS, an organization with strong religious values. Approximately 10 million Syrians, Iraqis, and individuals from neighboring countries, primarily young Muslim men, fled the area. Islamic teachings consider fleeing from jihad (war) as a significant sin, ranked as the twenty-seventh sin. The prophet of Islam also expressed disapproval of Muslims settling among Christians and Jews. (85, 86, 87, 88, 89, 90, 91) </sub>
+
+#### Can a mass of people without any shared values be considered a **society**?
+
+> <sub> 2. Over a million young Afghans have fled Afghanistan after the fall of the Afghan republic. Despite spending $145 billion on security forces and civilian government institutions over 20 years, the US and the West were unable to prevent the fall of the Afghan republic as soon as US troops left. President Ashraf Ghani, who had pledged to stay and protect his people, fled the capital city by helicopter to Uzbekistan, contradicting his previous promises. (93, 95) </sub>
+
+**Can it be said that the Taliban society targets a group of people with no shared values?**
+
+> <sub> 3. Ukraine has been ranked among the most corrupt nations, with The Guardian dubbing it "the most corrupt nation in Europe" (97). Ukraine's corruption level is comparable to countries in Sub-Saharan Africa, like Uganda (99). Besides monopoly and lack of transparency, a significant factor contributing to corruption in Ukraine is the moral collapse (104). Despite these challenges, the beauty industry in Ukraine is thriving, with Ukrainians dedicating a considerable portion of their income to cosmetic products (100). The major industries in Ukraine include banking, cafés, grocery stores, beauty, and clothing stores (101). The Russian Army comprises contracted personnel and volunteers, while Ukrainian male citizens aged 18-60 face restrictions on leaving the country (102). Nevertheless, there are over 8 million Ukrainian refugees in Europe, constituting approximately 20% of the population (103).(105). </sub> 
+
+**Despite martial law, 8.2 million fled Ukraine. What would the numbers be without it?**
+  
+ 
 ## How do your Instagram likes lead to an atomic war? 
 
 Why does consumption culture and social media lead to a nuclear disaster?
@@ -331,162 +485,7 @@ Why does consumption culture and social media lead to a nuclear disaster?
 - <sub> Oppose global inequality due to the potential risk of a nuclear attack. </sub>
 - <sub> Uphold sustainable values, abstaining from harmful substances and behaviors, and promoting stable family units. This reduces dependence on imported labor, mitigates inequality, prevents societal unrest, and curbs the emergence of psychopathic multiculturalism and parallel societies. </sub>
 
-## Multiculturalism: Does it lead to a tolerant and open-minded society or foster parallel societies?
-
-> Multiculturalism is often viewed as a means to promote cultural exchange, tolerance, openness, and new ideas. However, studies indicate that it can also lead to social tensions, culture clashes, polarization, marginalization, and language problems.(110)
-
-> A bounded confidence model describes consensus-like opinion dynamics, where agents interact only when their opinions are sufficiently similar. (111)
-
-> Free circulation of information, social media, and debates can contribute to group polarization. (112)(113) 
-
-> People with similar viewpoints tend to follow, share, and comment on each other's posts. Discussions on racial attitudes with individuals who hold similar attitudes can significantly increase the gap between high- and low-prejudice groups. This interaction among extremists can further exacerbate the gap and contribute to the formation of parallel societies. (114,115,116)
-
-#### Why does cultural dialogue often result in tribalism?
-
-> The exchange of ideas and debates can lead to increased polarization.
-
-> The decrease in the percentage of people who befriend or marry individuals with different political viewpoints reflects how social media has contributed to polarization.
-
-> Devout religious belief or observance does not necessarily predict extremism. However, studies indicate that support for terrorism in majority Muslim countries is related to mosque attendance rather than individual prayer frequency or adherence to food prohibitions. Similar patterns can be observed among right-wing Jewish extremists in Israel.
-
-> Nationalism and tolerance for autocratic leaders are rising globally, possibly as reactions to globalization. Research suggests that the well-being of everyone is negatively impacted when the rich do not interact with the poor or when the poor have limited contact with the middle class. (211,212,213)
-
-#### Can multiculturalism contribute to international inequality?
-
-> <sub> Multiculturalism is essential for the survival of psychopathic economies and has huge economic benefits. </sub>
-
-<sub> Germany is the biggest **Winner.** According to Brücker in 2013, without immigration, the labor force potential in Germany would fall by around 40% by 2050. (117) <sub>
-
-#### Do the countries of origin of migrants also benefit?
-
-> Immigration can lead to a decrease in average IQ in the countries of origin. Studies have shown that Scotland, for instance, has the lowest average IQ in the UK and performs less favorably compared to most European countries.(119)
-
-> Over 80% of intelligent students from third-world countries migrate to industrialized nations, as highlighted by research.(121)
-
-> A survey conducted by a Job Vision center found that 77% of working individuals from third-world countries are willing to migrate.(120)
-
-> International organizations estimate that each young migrant in their early working age costs their country of origin $120,000.(118)
-
-#### Is multiculturalism a consequence of a psychopathic economy?
-  
-Would individuals still seek refuge if economic disparities between third-world and industrial nations were eliminated?
-
-> Despite its potential for polarization and inequality, psychopathic economies often benefit from multiculturalism.
-
-## Has the integration of migrants failed?
-
-> Sweden: “Integration of migrants has failed” (166)
-
-> **Integration:** the act of combining into an integral whole (167)
-
-> **Combine:** implies some merging or mingling with corresponding loss of identity of each unit (168)
-
-> People from poor countries migrate to industrialized nations, where their high-tech products are more likely to be utilized, especially by the US Army, which often operates in migrants countries of origin. Despite migrants resisting the acceptance of values from psychopathic systems that have led to the erosion of their own populations, cultures, and values, they are already fully integrated into the heavy psychopathic system as they live and work in a system that perpetuates inequality (psychopathegration). (179,180,186)
-
-#### Why does the economy favor psychopathically integrated populations over organic ones?
-
-> The reduced affinity of migrants towards their original values increases their susceptibility to psychopathic integration.
-
->  <sub> as sociopaths, Psychopathegrated population, have learned their behavior and are created by life experiences. They are capable of feeling emotions but usually don’t control them. Psychopaths, on the other hand, are born and suffer from a genetic effect (50,51) </sub>
-
-The Indian, Pakistani, and Asian population in the UK surprised London by voting in favor of Brexit, indicating stronger euroscepticism within this community than previously anticipated. (197) 
-
-> Iranian migrants have organized protests outside Iran, calling for stricter sanctions against their home country. (221)
-
-  
-  
-  ## Why do ideological groups like IRGC Quds, ISIS, and Al-Qaida surpass modern armies?
-
-> Strong values and flexible structures in ideological groups compared to hierarchical pathocratic armies with conflicting morals.
-
-### Is it possible to have no defined values and act morally?
-
-> morality: standards of behaviour; principles of right and wrong. (190)
-
-> Absence of clear values hinders moral acts, enabling corruption and eroding societal morality in psychopathic democracies.(122)
- 
-#### How to prevent the moral collapse and establish a Society?
-
-> Can a voting app section, where groups define their values, prevent moral collapse, and eradicate institutionalized religion and religious leaders?
-
-  #### How first Societes get created?
-
-> <sub> **Society** refers to people living together in organized communities with shared laws, traditions, and **values**. Cooperation is vital for human survival as it allows us to thrive in large groups, collaborate effectively, and distribute tasks based on individual strengths, leading to improved efficiency and productivity.(83) </sub> Individuals who share similar values, such as Buddhists, Hindus, Christians, Muslims, atheists, and those who adhere to Western values, can come together and form a group. </sub>
-  
-  >  <sub> ## Is it accurate to label residents of Germany a "society"?
-  
-  > *Modern Society:*
-
-- <sub> considers LGBTQIA2S+ rights non-negotiable while allowing the abandonment of the "one love" band during a football match. (106) </sub>
-- <sub> impose heavy sanctions against human rights violators while maintaining strong ties with the world's biggest violators of human rights. (107,108,153) </sub>
-- <sub> While claiming to respect world peace, sometimes engage in wars to bring democracy to other nations. </sub>
-
-
-  
-
-## Sacrificing yourself for psychopathic leaders—utter bullshit?
-
-#### Do people in modern societies tend to resist and fight during war attacks?
-
-> <sub> 1. Around 30,000 fighters from 85 countries joined ISIS, an organization with strong religious values. Approximately 10 million Syrians, Iraqis, and individuals from neighboring countries, primarily young Muslim men, fled the area. Islamic teachings consider fleeing from jihad (war) as a significant sin, ranked as the twenty-seventh sin. The prophet of Islam also expressed disapproval of Muslims settling among Christians and Jews. (85, 86, 87, 88, 89, 90, 91) </sub>
-
-#### Can a mass of people without any shared values be considered a **society**?
-
-> <sub> 2. Over a million young Afghans have fled Afghanistan after the fall of the Afghan republic. Despite spending $145 billion on security forces and civilian government institutions over 20 years, the US and the West were unable to prevent the fall of the Afghan republic as soon as US troops left. President Ashraf Ghani, who had pledged to stay and protect his people, fled the capital city by helicopter to Uzbekistan, contradicting his previous promises. (93, 95) </sub>
-
-**Can it be said that the Taliban society targets a group of people with no shared values?**
-
-> <sub> 3. Ukraine has been ranked among the most corrupt nations, with The Guardian dubbing it "the most corrupt nation in Europe" (97). Ukraine's corruption level is comparable to countries in Sub-Saharan Africa, like Uganda (99). Besides monopoly and lack of transparency, a significant factor contributing to corruption in Ukraine is the moral collapse (104). Despite these challenges, the beauty industry in Ukraine is thriving, with Ukrainians dedicating a considerable portion of their income to cosmetic products (100). The major industries in Ukraine include banking, cafés, grocery stores, beauty, and clothing stores (101). The Russian Army comprises contracted personnel and volunteers, while Ukrainian male citizens aged 18-60 face restrictions on leaving the country (102). Nevertheless, there are over 8 million Ukrainian refugees in Europe, constituting approximately 20% of the population (103).(105). </sub> 
-
-**Despite martial law, 8.2 million fled Ukraine. What would the numbers be without it?**
-
-## What is a"Oversociety"?
-  
-> Contains All Societies
-  
-> If society 1, 2, 3, Christian, Hindu, Chinese, Islamic, and Atheist societies all share the common value of prohibiting nuclear weapons, then all societies must comply.
-
-> If society 3 possesses and maintains atomic bombs, the Oversociety must decide how to respond, whether through punishment, isolation, or even attack. No priority is given to American, Western, Muslim, or African values when making decisions about the Oversociety.
-
-#### Can international inequality be solved within the Oversociety? 
-
-> In the absence of corrupt politicians, every individual holds power and can take action against a society that causes harm to others.
-
-- <sub> For example, if Society 6 adopts a psychopathic economy leading to inequality, an aging population, migration, a loss of workforce, family issues, increased intercontinental flights, and growing polarization, the Oversociety must decide how to address this behavior, as it harms everyone involved.  </sub>
-- <sub> Society 1: 60% adheres to Islamic values, which include wearing hijab, abstaining from alcohol, avoiding premarital sex, and not engaging in open relationships. </sub>
-- <sub> Society 2: 70% adheres to xxx values, where drinking alcohol and engaging in premarital sex are permissible, but open relationships are not allowed. </sub>
-- <sub> Society 11: 75% adheres to Western values, including freedom of clothing, food choices, and actions. </sub>
- 
-Societies merge when they share the same values.
-> <sub> By uniting Buddhist societies in Asia and South America under a shared set of values, it becomes possible to establish a unified nation. </sub>
-  
-**Could this lead to a meaningful cultural inspiration?**
-
-> Would other societies adopt the positive values of a high-performing for example Buddhist society?
-
-> Could Muslims be inspired by Christians who have healthier babies due to avoiding cousin marriages?
-
-> Can Christians be inspired by Muslims to reduce alcohol consumption and have more stable relationships?
-
-#### How did cultural inspiration occur in the past?
-
-> <sub> Cultural influences between Asia and the West have been diverse, including the introduction of mathematical zero and the binary code (226). </sub>
-
-> <sub> Western influences on Eastern culture have been significant, particularly in the modern era, impacting aspects such as food, fashion, lifestyle, and governance (227). </sub>
-
-> <sub> During Atatürk's rule, Westernizing reforms were implemented across political, legal, religious, cultural, social, and economic policies (182). </sub>
-
-> <sub> In 1698, Tsar Peter I of Russia introduced a beard tax as part of an effort to align Russian society with Western European models (181). </sub>
-
-> <sub> One of the Westernizing actions taken by Iranian Reza Shah was the enforcement of Western suits and hats for men (183).  </sub>
-
-> <sub> Japan underwent early Westernization and modernization (184).) </sub>
-
-#### How do cultures influence and inspire one another? 
-
-> <sub> Comparisons are a natural part of human cognition and can contribute to the process of self-improvement (185). <sub>
-
-
+    
 ## How to stop the Islamization of Europe?
 
 > Mohammed ranked as the most popular name for baby boys in Berlin in 2022 (225). Sweden could have a Muslim population of 31% by 2050, while Germany's could be 20%, and in big cities such as Berlin, Düsseldorf, or Köln, this number could rise to 60%. It's possible that the concept of Islamic Sharia could gain traction in Berlin as a reflection of the growing Muslim population. This growth in Islam is not limited to Europe, as it is currently the fastest-growing religion in India, the USA, China, and Sub-Saharan countries (127, 128, 129, 130).
