@@ -459,9 +459,9 @@ YouTube killer: When a psychopathic system imposes sanctions on a country and co
 
 #### Creating a website that fuels inequality while claiming to address global inequality for personal gain—ethical?
  
-* Is the behavior that inflicts the least necessary harm to solve a problem morally right*?*
+#### Is the behavior that inflicts the least necessary harm to solve a problem morally right*?
   
-  1. Creating viral, controversial content on TV, YouTube, Instagram, and TikTok that benefits large corporations and increases personal wealth.
+1. Creating viral, controversial content on TV, YouTube, Instagram, and TikTok that benefits large corporations and increases personal wealth.
 2. Publishing a book through Amazon or a publisher, enriching them and increasing personal wealth.
 3. Contributing to inequality by paying €2.78 per year for a domain from a domain seller company.
 > <sub> unless (Over)Society determines otherwise.* </sub>
