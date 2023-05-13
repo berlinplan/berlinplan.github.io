@@ -94,7 +94,6 @@ Activism on social media: Get maximum attention for your Instagram activism with
 > <sub> Porn addiction affects a notable percentage of adults, particularly young men and women who regularly consume pornography (35). Taking collective responsibility is crucial in addressing this societal issue. (35, 36). </sub>
 
 
-
 ### Is it possible to have no defined values and act morally?
 
 > morality: standards of behaviour; principles of right and wrong. (190)
@@ -130,7 +129,7 @@ Kebab terror: If a person's family in xxxistan tragically loses their lives due 
 - <sub> X: An emergency situation will trigger an app notification for all people on the planet to vote. </sub>
   
   *transgenders in women's sports competitions Dilemma* (193)
- <sub> End: Hapiness in Soceity </sub>
+- <sub> End: Hapiness in Soceity </sub>
 - <sub> Mean: get  triumph of winning opponents often from poor Countries regardless of doping  or early training as a child  </sub>
 - <sub> APP: NO : Current Sports Competitions: Young athletes face a greater risk of overuse injuries due to sports specialization. Commercialization has stripped away the joy, turning athletes into marketing products. Match-fixing and doping cast doubt on sports results. Profitability rests with top-level tournaments, favored by viewers. In light of these issues, the quest for fairness in sports competitions may seem meaningless.(194) </sub>
   - <sub> Yes: Any Kind of Hipiness to get Joy is Morally fine </sub>
@@ -168,6 +167,12 @@ Kebab terror: If a person's family in xxxistan tragically loses their lives due 
 - <sub> Mean: Developement founded on slavery </sub>
 - <sub> Mean: high-tech founded on inequality </sub>
 - <sub> App: [Oversociety?]  </sub>
+
+  *Kebab Terrorist Dilemma*
+- <sub> End: bring Demokracy to other Countries </sub>
+- <sub> Mean: Start War an kill People </sub>
+- <sub> Mean: high-tech founded on inequality </sub>
+- <sub> App: No: Society 1 was not allowed to attack society 2 to bring democracy, the Action of Society 1 and all People inside it that support its military in anyway is immoral. even the Kebab seller to some tool manufactor </sub>
  
 *Controversial Youtube Interviews Dilemma*
  - <sub> End: reducing inequality </sub>
