@@ -616,19 +616,21 @@ Due to high morality, concerns after the Fukushima accident, or increased awaren
 The decision to shut down nuclear power plants in Germany has resulted in significant costs, power shortages, and economic losses for its people. (201,202, 203, 204,205,206)
   
 
-## Action, instead of wait for psychopaths to create a voting app for public utility?
+## Wait for psychopaths to develop a public utility app, or take action?
 
-## You may send an Email if you think: 
-  
 An ownerless, non-beneficial group free from hierarchies and sociopathic behavior can brainstorm developement strategies for an ownerless voting app.
+  
+## You may send an Email if you think so: 
+  
+Email: theberlinplan@gmail.com
 
 > At 150 volunteers, participation instructions will be emailed. Your input on choosing the initial group platform (e.g., WhatsApp, Telegram) is valued.
 
-Email: theberlinplan@gmail.com
+#### How should this content be distributed correctly?
 
-## How should this content be distributed correctly?
+> <sub> Posting this content on TV, social media, or other psychopathic platforms and profiting from it or gaining notoriety is morally wrong unless (Over)society determines otherwise. However, individuals are **free** to create websites, distribute the content, form groups, and potentially receive compensation for their efforts. These groups may also merge in the future.
 
-Posting this content on TV, social media, or other psychopathic platforms and profiting from it or gaining notoriety is morally wrong unless (Over)society determines otherwise. However, individuals are **free** to create websites, distribute the content, form groups, and potentially receive compensation for their efforts. These groups may also merge in the future.
+**Calculating Compensation:** With 8 hours of daily work, if 1 out of 48 approached individuals pays, with each interaction lasting 10 minutes, it would require €100 per book based on the minimum wage of €12.5 per hour. However, a more suitable price range for affordability is €10-€20. </sub>
  
 #### Alms of science is its distribution (200)
 
@@ -645,4 +647,4 @@ You might want to consider sending the person compensation for his effort.
 
 *alternative payment methods via email.* theberlinplan@gmail.com 
 
-**Calculating Compensation:** With 8 hours of daily work, if 1 out of 48 approached individuals pays, with each interaction lasting 10 minutes, it would require €100 per book based on the minimum wage of €12.5 per hour. However, a more suitable price range for affordability is €10-€20.
+
