@@ -455,20 +455,17 @@ YouTube killer: When a psychopathic system imposes sanctions on a country and co
 
 ### What is **contradiction:**?
 
->  Although breaking someone else's window is not morally acceptable, when faced with a situation where a dog is trapped inside a car with closed windows, breaking the window becomes the morally right choice to save the dog's life, as it inflicts the least amount of damage necessary, unlike damaging the wheels, breaking the entire car, or setting it on fire.(198)
+>  Breaking someone else's window is morally wrong, except in the case of a dog trapped inside a car with closed windows, where it becomes the least damaging choice to save its life compared to other options like damaging the wheels, the entire car, or setting it on fire.(198)
 
-#### Is it ethically acceptable to create a website that indirectly contributes to inequality, despite aiming to solve global inequality issues for personal benefit? 
-
-*Which behavior inflicts the least amount of necessary damage?*
-
-> Creating controversial and polarizing content that goes viral on TV, YouTube, Instagram, and TikTok and enriches large corporations and increases the potential for personal wealth.
-
-> Publishing a book via Amazon or a publisher, and making them richer and increasing the potential for personal wealth.
-
-> Contributing to inequality by paying €2.78 per year for a domain to a domain seller company.
-
-The morally correct behavior is the one that inflicts the least necessary harm unless (Over)Society determines otherwise.
-
+#### Creating a website that fuels inequality while claiming to address global inequality for personal gain—ethical?
+ 
+* Is the behavior that inflicts the least necessary harm to solve a problem morally right*?*
+  
+  1. Creating viral, controversial content on TV, YouTube, Instagram, and TikTok that benefits large corporations and increases personal wealth.
+2. Publishing a book through Amazon or a publisher, enriching them and increasing personal wealth.
+3. Contributing to inequality by paying €2.78 per year for a domain from a domain seller company.
+> <sub> unless (Over)Society determines otherwise.* </sub>
+  
 
 ## How to stop the Islamization of Europe?
 
