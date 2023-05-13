@@ -109,7 +109,7 @@ Kebab terror: If a person's family in xxxistan tragically loses their lives due 
 
 > While some people rely on religious leaders for moral guidance, others follow Kant's Golden Rule or consequentialist principles, which judge an act's ethics based on favorable outcomes. However, religious and political psychopaths often justify their actions by claiming positive outcomes, exposing the lack of a universal moral definition.
 
-#### Can a simple voting app ,where People define their values, eradicate institutionalized religion and religious leaders?
+#### Can voting app, with user-defined values, abolish institutionalized religion and religious leaders?
 
 *Simple*
 - <sub> End: save 1 life </sub>
