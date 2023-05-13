@@ -111,26 +111,29 @@ Kebab terror: If a person's family in xxxistan tragically loses their lives due 
 
 #### Can a simple voting app ,where People define their values, eradicate institutionalized religion and religious leaders?
 
- *Simple *
+*Simple*
 - <sub> End: save 1 life </sub>
 - <sub> Mean: kill 1 </sub>
 - <sub> App No: due to the app -> kill -> big damage </sub>
 
- *Dilemma*
+
+*Dilemma*
 - <sub> End: save 7 lives </sub>
 - <sub> Mean: kill 1 </sub>
 - <sub> No: due to the app -> kill -> big damage </sub>
 
- *Complex Dilemmma*
+
+*Complex Dilemmma*
 - <sub> End: save all humankind </sub>
 - <sub> Mean: kill 1 </sub>
 - <sub> X: An emergency situation will trigger an app notification for all people on the planet to vote. </sub>
   
-  *transgenders in women's sports competitions Dilemma* (193)
+  
+*transgenders in women's sports competitions Dilemma(193)*
 - <sub> End: Hapiness in Soceity </sub>
 - <sub> Mean: get  triumph of winning opponents often from poor Countries regardless of doping  or early training as a child  </sub>
-- <sub> APP: NO : Current Sports Competitions: Young athletes face a greater risk of overuse injuries due to sports specialization. Commercialization has stripped away the joy, turning athletes into marketing products. Match-fixing and doping cast doubt on sports results. Profitability rests with top-level tournaments, favored by viewers. In light of these issues, the quest for fairness in sports competitions may seem meaningless.(194) </sub>
-  - <sub> Yes: Any Kind of Hipiness to get Joy is Morally fine </sub>
+- <sub> Yes: Any Kind of Hipiness to get Joy is Morally fine </sub>
+  - <sub> APP: NO : Current Sports Competitions: Young athletes face a greater risk of overuse injuries due to sports specialization. Commercialization has stripped away the joy, turning athletes into marketing products. Match-fixing and doping cast doubt on sports results. Profitability rests with top-level tournaments, favored by viewers. In light of these issues, the quest for fairness in sports competitions may seem meaningless.(194) </sub>
   
   *Torture Dilemma*
 - <sub> End: defuse a hidden bomb in a shopping center to save your family and 1000 others </sub>
