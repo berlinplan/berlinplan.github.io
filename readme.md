@@ -384,22 +384,14 @@ Societies merge when they share the same values.
 Kebab terror: If a person's family in xxxistan tragically loses their lives due to mistaken actions by a military force, who can be held accountable? Should it be the bomb, the pilot, the airplane, the semiconductor manufacturer, the tool manufacturer for that semiconductor, or even the doner kebab seller who supplied food to the tool company workers?
   
   
-  ## Can a basic voting app revolutionize ethics?
+ ## Can a basic voting app revolutionize ethics?
 
 > Can ethical dilemmas be resolved within society or an Oversociety?
 
-### Is torture wrong?
-
-Is it morally acceptable to use barbaric torture methods with an 80% success rate to extract information from a terrorist who has planted a bomb in a shopping center that will explode in 10 hours, potentially killing your family and 1000 others?
 
 **Why are current ethical rules insufficient?**
 
 > While Kant’s Golden Rule forbids torture, consequentialism considers it ethical if the result is favorable. Psychopaths often justify their actions by claiming that the outcome will be good. Religious and political psychopaths seek moral justification from leaders or judges.
-
-#### How can an app solve the torture dilemma for the first time in human history?
-
-  It is morally wrong to torture if society refuses any kind of torture. It is morally fine to torture if society approves limited use of torture to gather information but not prolonged use.
-
 
  
 The app aims to resolve the following dilemmas as examples:
@@ -419,6 +411,14 @@ The app aims to resolve the following dilemmas as examples:
 - <sub> Mean: kill 1 </sub>
 - <sub> X: An emergency situation will trigger an app notification for all people on the planet to vote. </sub>
 
+  
+  *Torture Dilemma*
+- <sub> End: defuse a hidden bomb in a shopping center to save your family and 1000 others </sub>
+- <sub> Mean: use barbaric torture methods with an 80% success rate to extract information from a terrorist in 10hours </sub>
+- <sub> APP: Yes limited use of torture to gather information is ok but not prolonged use. </sub>
+- <sub> App: No any kind of torture is wrong  </sub>
+  
+  
 *Damage others Property Dilemma*
 - <sub> End: rescue a dog trapped inside a car </sub>
 - <sub> Mean: break car's Window property, enter a private room </sub>
@@ -473,8 +473,9 @@ The app aims to resolve the following dilemmas as examples:
 - <sub> End:reduce inequality </sub>
 - <sub> Mean: sell an anti-inequality book in Spotify, YouTube, Instagram, Amazon, Twitter, TikTok, and TV </sub>
 - <sub> Mean: Publish a book on inequality and make it a bestseller on Amazon through  the Mattew Effect* </sub>
-- <sub> App: No: [the behavior that inflicts the least necessary harm to solve a problem morally right  </sub>
-  > Matthew Effect: The Matthew Effect describes a social pattern where initial advantages lead to further advantages, creating a growing disparity between resource-rich and resource-poor individuals (141). for Exmple obtain 5-star reviews for a new Published book on Amazon (each ~4€ on Telegram: "Amazon review DE, Amazon Produkttester, Amazon De tester 2")
+- <sub> App: No: the behavior that inflicts the least necessary harm to solve a problem morally right  </sub>
+
+> <sub> Matthew Effect: The Matthew Effect describes a social pattern where initial advantages lead to further advantages, creating a growing disparity between resource-rich and resource-poor individuals (141). for Exmple by obtaining 5-star reviews for a new Published book on Amazon -each ~4€ on Telegram: "Amazon review DE, Amazon Produkttester, Amazon De tester 2"   </sub>
 
 
 ## How to stop the Islamization of Europe?
