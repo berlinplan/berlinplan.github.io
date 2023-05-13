@@ -429,8 +429,14 @@ Why does psychopathical systems, consumption culture and social media lead to a 
   
 - <sub> 4. Should sanctions be imposed on Russia, Saudi Arabia, the USA, or China for human rights violations? </sub>
   
-- <sub> 5. Voting example in a village of 100 people: </sub> 
-- <sub> User 76: The village is too dry. Do we need to plant trees? </sub> 
+ - <sub> 5. Voting example in a village of 100 people: </sub> 
+|  - <sub> User 76: The village is too dry. Do we need to plant trees? </sub>  |
+  | Left-aligned | Center-aligned | 
+|     :---:       |     :---:      |          ---: |
+| git status   | git status     | git status    |
+| git diff     | git diff       | git diff      |
+
+
 - <sub> No | Yes (How many trees should be planted? Click "Yes") </sub>
 - <sub> On the right side, comments "for" it. </sub>
 - <sub> User 4: Nature is essential for human mental health and well-being. According to a study, children also benefit from contact with nature. (20 votes) </sub>
