@@ -109,13 +109,12 @@ Kebab terror: If a person's family in xxxistan tragically loses their lives due 
 
 > While Kant’s Golden Rule forbids torture, consequentialism considers it ethical if the result is favorable. Psychopaths often justify their actions by claiming that the outcome will be good. Religious and political psychopaths seek moral justification from leaders or judges.
 
-
-> Can (Over)society in a basic voting app resolve the following dilemmas?
+#### Can a simple voting app ,where People define their values, eradicate institutionalized religion and religious leaders?
 
  *Simple *
 - <sub> End: save 1 life </sub>
 - <sub> Mean: kill 1 </sub>
-- <sub> No: due to the app -> kill -> big damage </sub>
+- <sub> App No: due to the app -> kill -> big damage </sub>
 
  *Dilemma*
 - <sub> End: save 7 lives </sub>
@@ -206,14 +205,9 @@ Kebab terror: If a person's family in xxxistan tragically loses their lives due 
 
 > Strong values and flexible structures in ideological groups compared to hierarchical pathocratic armies with conflicting morals.
 
-
-#### Can a voting app section, where groups define their values, prevent moral collapse, and eradicate institutionalized religion and religious leaders?
-
-  #### How first Societes get created?
-
-> <sub> **Society** refers to people living together in organized communities with shared laws, traditions, and **values**. Cooperation is vital for human survival as it allows us to thrive in large groups, collaborate effectively, and distribute tasks based on individual strengths, leading to improved efficiency and productivity.(83) Individuals who share similar values, such as Buddhists, Hindus, Christians, Muslims, atheists, and those who adhere to Western values, can come together and form a group. </sub>
+## residents of modern Societies like Germany are "society"?
   
- ## Is it accurate to label Current residents of Germany a "society"?
+  > <sub> **Society** refers to people living together in organized communities with shared laws, traditions, and **values**. Cooperation is vital for human survival as it allows us to thrive in large groups, collaborate effectively, and distribute tasks based on individual strengths, leading to improved efficiency and productivity.(83) </sub>
   
   > *Modern Society Values:*
 
@@ -222,6 +216,25 @@ Kebab terror: If a person's family in xxxistan tragically loses their lives due 
 - <sub> While claiming to respect world peace, sometimes engage in wars to bring democracy to other nations. </sub>
 
 
+## would people resist, fight and Sacrifize for a psychopathic system by a war attack?
+
+> <sub> 1. Around 30,000 fighters from 85 countries joined ISIS, an organization with strong religious values. Approximately 10 million Syrians, Iraqis, and individuals from neighboring countries, primarily young Muslim men, fled the area. Islamic teachings consider fleeing from jihad (war) as a significant sin, ranked as the twenty-seventh sin. The prophet of Islam also expressed disapproval of Muslims settling among Christians and Jews. (85, 86, 87, 88, 89, 90, 91) </sub>
+
+#### Can a mass of people without any shared values be considered a **society**?
+
+> <sub> 2. Over a million young Afghans have fled Afghanistan after the fall of the Afghan republic. Despite spending $145 billion on security forces and civilian government institutions over 20 years, the US and the West were unable to prevent the fall of the Afghan republic as soon as US troops left. President Ashraf Ghani, who had pledged to stay and protect his people, fled the capital city by helicopter to Uzbekistan, contradicting his previous promises. (93, 95) </sub>
+
+**Can it be said that the Taliban society targets a group of people with no shared values?**
+
+> <sub> 3. Ukraine has been ranked among the most corrupt nations, with The Guardian dubbing it "the most corrupt nation in Europe" (97). Ukraine's corruption level is comparable to countries in Sub-Saharan Africa, like Uganda (99). Besides monopoly and lack of transparency, a significant factor contributing to corruption in Ukraine is the moral collapse (104). Despite these challenges, the beauty industry in Ukraine is thriving, with Ukrainians dedicating a considerable portion of their income to cosmetic products (100). The major industries in Ukraine include banking, cafés, grocery stores, beauty, and clothing stores (101). The Russian Army comprises contracted personnel and volunteers, while Ukrainian male citizens aged 18-60 face restrictions on leaving the country (102). Nevertheless, there are over 8 million Ukrainian refugees in Europe, constituting approximately 20% of the population (103).(105). </sub> 
+
+**Despite martial law, 8.2 million fled Ukraine. What would the numbers be without it?**
+
+
+ #### How voting apps creates first Societes?
+
+ Individuals who share similar values, such as Buddhists, Hindus, Christians, Muslims, atheists, and those who adhere to Western values, can come together and form a group. </sub>
+  
 ## What is a "Oversociety"?
   
 > Contains All Societies
@@ -330,23 +343,7 @@ Would individuals still seek refuge if economic disparities between third-world 
 The Indian, Pakistani, and Asian population in the UK surprised London by voting in favor of Brexit, indicating stronger euroscepticism within this community than previously anticipated. (197) 
 
 > Iranian migrants have organized protests outside Iran, calling for stricter sanctions against their home country. (221)
-
-## Sacrificing yourself for psychopathic leaders—utter bullshit?
-
-#### Do people in modern societies tend to resist and fight during war attacks?
-
-> <sub> 1. Around 30,000 fighters from 85 countries joined ISIS, an organization with strong religious values. Approximately 10 million Syrians, Iraqis, and individuals from neighboring countries, primarily young Muslim men, fled the area. Islamic teachings consider fleeing from jihad (war) as a significant sin, ranked as the twenty-seventh sin. The prophet of Islam also expressed disapproval of Muslims settling among Christians and Jews. (85, 86, 87, 88, 89, 90, 91) </sub>
-
-#### Can a mass of people without any shared values be considered a **society**?
-
-> <sub> 2. Over a million young Afghans have fled Afghanistan after the fall of the Afghan republic. Despite spending $145 billion on security forces and civilian government institutions over 20 years, the US and the West were unable to prevent the fall of the Afghan republic as soon as US troops left. President Ashraf Ghani, who had pledged to stay and protect his people, fled the capital city by helicopter to Uzbekistan, contradicting his previous promises. (93, 95) </sub>
-
-**Can it be said that the Taliban society targets a group of people with no shared values?**
-
-> <sub> 3. Ukraine has been ranked among the most corrupt nations, with The Guardian dubbing it "the most corrupt nation in Europe" (97). Ukraine's corruption level is comparable to countries in Sub-Saharan Africa, like Uganda (99). Besides monopoly and lack of transparency, a significant factor contributing to corruption in Ukraine is the moral collapse (104). Despite these challenges, the beauty industry in Ukraine is thriving, with Ukrainians dedicating a considerable portion of their income to cosmetic products (100). The major industries in Ukraine include banking, cafés, grocery stores, beauty, and clothing stores (101). The Russian Army comprises contracted personnel and volunteers, while Ukrainian male citizens aged 18-60 face restrictions on leaving the country (102). Nevertheless, there are over 8 million Ukrainian refugees in Europe, constituting approximately 20% of the population (103).(105). </sub> 
-
-**Despite martial law, 8.2 million fled Ukraine. What would the numbers be without it?**
-  
+ 
   
  ## Why does democracy end in an atomic bomb?
 
