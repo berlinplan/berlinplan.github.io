@@ -31,11 +31,7 @@
 
 ##  #awareness #equality #woke #muslimlivesmatter, truth?
 
-> <sub> Luxury brands such as Louis Vuitton and Gucci leverage their influential social media accounts to endorse #equality and #blacklivesmatter in the fight against social injustices (218). </sub>
-
-> <sub> Consumers use luxury goods to signal their social status (222). </sub>
-
-using social media to address social injustices while contributing to inequality through production? (219)
+> <sub> Luxury brands like Louis Vuitton and Gucci support social justice movements on social media (#equality, #blacklivesmatter), but also sell luxury goods for status signaling. (218, 219, 222). </sub>
 
 > Hypocrisy: A hypocrite is essentially characterized by behavior that contradicts what one claims to believe or feel (217).
 
