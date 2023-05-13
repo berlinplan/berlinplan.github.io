@@ -1,4 +1,5 @@
 # Berlinplan.com
+# [Deutch](http://www.berlinplan.com/de/)  [Farsi](http://www.berlinplan.com/fa/)
 
 <sub> Kindly consider the following questions, with the grey texts as additional information. </sub>
 
