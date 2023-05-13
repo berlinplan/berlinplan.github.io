@@ -449,14 +449,15 @@ Why does psychopathical systems, consumption culture and social media lead to a 
   
 |   <sub> Which company is best suited to plant trees? Please add your comment. </sub>     |
   | :---: |
-
-- 
+|    User 14: Company XXX charges only €20 per tree for planting and has low costs. </sub>       |
+ | No | Yes |
+| :---: | :---: |
   
     | No | Yes |
 | :---: | :---: |
  |            |           | 
   
-- <sub> User 14: Company XXX charges only €20 per tree for planting and has low costs. </sub>
+- <sub> 
 - <sub> User 20: Company YYY charges €30 per tree but is environmentally friendly as they don't use cars. </sub>
 - <sub> Other Options: (cancel vote) due to no company found. (extend time) to find more companies. </sub>
 - <sub> Result: Company XXX selected. </sub>
