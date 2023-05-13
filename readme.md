@@ -27,7 +27,7 @@
 
 > E-cars require ten times more chips than petrol or diesel vehicles. The Chips Act, passed by Joe Biden, restricts US technology involvement in semiconductor production. As technology manufacturers prioritize profit, poorer countries rely on importing technology, perpetuating a cycle of wealth inequality that benefits the rich and leaves the poor behind. This contributes to the growing inequality (139, 140).
 
-> <sub> What would citizens of a poor country rather see on their damaged streets: high-tech drones, aircraft, satellite-run rockets, tanks, and military technology from psychopathic countries, or luxury self-driving e-cars? </sub>
+> <sub> What would citizens of a poor country be more likely to see on their damaged roads: high-tech drones, planes, satellite missiles, tanks and military technology from psychopathic countries, or self-driving luxury EVs? </sub>
 
 ##  #awareness #equality #woke #muslimlivesmatter, truth?
 
