@@ -135,12 +135,11 @@ Kebab terror: If a person's family in xxxistan tragically loses their lives due 
 - <sub> Yes: Any Kind of Hipiness to get Joy is Morally fine </sub>
   - <sub> APP: NO : Current Sports Competitions: Young athletes face a greater risk of overuse injuries due to sports specialization. Commercialization has stripped away the joy, turning athletes into marketing products. Match-fixing and doping cast doubt on sports results. Profitability rests with top-level tournaments, favored by viewers. In light of these issues, the quest for fairness in sports competitions may seem meaningless.(194) </sub>
   
-  *Torture Dilemma*
+*Torture Dilemma*
 - <sub> End: defuse a hidden bomb in a shopping center to save your family and 1000 others </sub>
 - <sub> Mean: use barbaric torture methods with an 80% success rate to extract information from a terrorist in 10hours </sub>
 - <sub> APP: Yes limited use of torture to gather information is ok but not prolonged use. </sub>
 - <sub> App: No any kind of torture is wrong  </sub>
-  
   
 *Damage others Property Dilemma*
 - <sub> End: rescue a dog trapped inside a car </sub>
@@ -153,23 +152,23 @@ Kebab terror: If a person's family in xxxistan tragically loses their lives due 
 - <sub> Mean: lie through the election </sub>
 - <sub> No: app -> Systematic lying in elections causes greater societal and personal damage than the benefit of saving lives later. </sub>
 
- *Atom Bomb Dilemma*
+*Atom Bomb Dilemma*
 - <sub> End: save million lives </sub>
 - <sub> Mean: kill thousands, Atom bomb Hiroshima? </sub>
 - <sub> App: [Oversociety?]  </sub>
   
- *Skinny but professional boxer Dilemma*
+*Skinny but professional boxer Dilemma*
 - <sub> End: Entertainment, Competition and Challenge</sub>
 - <sub> Mean: approach and beat a random passer-by on the street into a coma </sub>
 - <sub> App: No [freely Damaging other even with their acceptance is wrong]  </sub>
  
-  *Slavery and high-tech Dilemma*
+*Slavery and high-tech Dilemma*
 - <sub> End: Cure Cancer, eliminate Hunger </sub>
 - <sub> Mean: Developement founded on slavery </sub>
 - <sub> Mean: high-tech founded on inequality </sub>
 - <sub> App: [Oversociety?]  </sub>
 
-  *Kebab Terrorist Dilemma*
+*Kebab Terrorist Dilemma*
 - <sub> End: bring Demokracy to other Countries </sub>
 - <sub> Mean: Start War an kill People </sub>
 - <sub> Mean: high-tech founded on inequality </sub>
@@ -188,7 +187,7 @@ Kebab terror: If a person's family in xxxistan tragically loses their lives due 
 - <sub> Mean: Contributing to inequality by paying €2.78 per year for a domain from a domain seller company. </sub>
 - <sub> App: the behavior that inflicts the least necessary harm to solve a problem morally right]  </sub>
 
-  *Social media Activism Dilemma*
+*Social media Activism Dilemma*
 - <sub> End: reduce inequality </sub>
 - <sub> Mean: Content on Social Media, Debates and Critical Videos</sub>
 - <sub> Mean: train Conversation, Sophistry fallacy and brain's hypertrophy Skills to cast Interviews </sub>
@@ -204,7 +203,7 @@ Kebab terror: If a person's family in xxxistan tragically loses their lives due 
 > <sub> Matthew Effect: The Matthew Effect describes a social pattern where initial advantages lead to further advantages, creating a growing disparity between resource-rich and resource-poor individuals (141). for Exmple by obtaining 5-star reviews for a new Published book on Amazon -each ~4€ on Telegram: "Amazon review DE, Amazon Produkttester, Amazon De tester 2"   </sub>
 
 
- ## Why do ideological groups like IRGC Quds, ISIS, and Al-Qaida surpass modern armies?
+## Why do ideological groups like IRGC Quds, ISIS, and Al-Qaida surpass modern armies?
 
 > Strong values and flexible structures in ideological groups compared to hierarchical pathocratic armies with conflicting morals.
 
