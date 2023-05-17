@@ -27,15 +27,14 @@
 
 > E-cars require ten times more chips than petrol or diesel vehicles. The Chips Act, passed by Joe Biden, restricts US technology involvement in semiconductor production. As technology manufacturers prioritize profit, poorer countries rely on importing technology, perpetuating a cycle of wealth inequality that benefits the rich and leaves the poor behind. This contributes to the growing inequality (139, 140).
 
-> <sub> What would citizens of a poor country be more likely to see on their damaged roads: high-tech drones, planes, satellite missiles, tanks and military technology from psychopathic countries, or self-driving luxury EVs? </sub>
 
-##  #awareness #equality #woke #muslimlivesmatter, truth?
+##  #awareness #equality #woke #muslimlivesmatter, credible?
 
 > <sub> Luxury brands like Louis Vuitton and Gucci support social justice movements on social media (#equality, #blacklivesmatter), but also sell luxury goods for status signaling. (218, 219, 222). </sub>
 
 > Hypocrisy: A hypocrite is essentially characterized by behavior that contradicts what one claims to believe or feel (217).
 
-## Follow, subscribe, comment, and like my content, right? 
+## Follow, subscribe, comment, and like my content, to what? 
 
 > Support my Tesla purchase and join me in the fight against inequality.
 
@@ -47,7 +46,7 @@ Activism on social media: Get maximum attention for your Instagram activism with
 
 ## Can we justify freedom for drug dealers?
 
-> most societies prohibit drug dealers by law.
+> Laws exist in most societies to forbid drug dealers.
 
 > <sub> Drug abuse: Addiction, Mental Health Disorder, Violence, Societal collapse, high Costs to Social Health, Economy & Family (8). Drug users cannot be treated as criminals (169); they suffer from something beyond their control (170). There is a £10,000-a-week trade of drug dealers (171). </sub> 
 
@@ -59,22 +58,9 @@ Activism on social media: Get maximum attention for your Instagram activism with
 
 >  they claim: not all drugs are harmful; for instance, opium has legitimate medical applications. [208](https://www.unodc.org/unodc/en/data-and-analysis/bulletin/bulletin_1953-01-01_3_page008.html)
 
-#### Is social media harmful or beneficial to societies?
+#### Social media is not entirely harmful, individuals are responsible for managing their own usage, accetpable?
 
-> - <sub> 1. Mental health problems such as depression, anxiety, and addiction. </sub>
-> - <sub> 2. Cyberbullying and online harassment. </sub>
-> - <sub> 3. Spread of false information and misinformation. </sub>
-> - <sub> 4. Encouragement of negative behaviors such as trolling, hate speech, and extremism. </sub>
-> - <sub> 5. Erosion of privacy and personal data security. </sub>
-> - <sub> 6. Disruption of social interactions and relationships. </sub>
-> - <sub> 7. Impact on productivity and time management. </sub>
-> - <sub> 8. Polarization and division of opinions and ideologies. </sub>
-> - <sub> 9. Influence on self-image and body image, especially among younger generations. </sub>
-> - <sub> 10. Exposure to inappropriate content and dangerous online challenges.[207](https://www.helpguide.org/articles/mental-health/social-media-and-mental-health.htm#:~:text=Since%20it's%20a%20relatively%20new,harm%2C%20and%20even%20suicidal%20thoughts.) </sub>
-
-#### Social media is not entirely harmful, individuals are responsible for managing their own usage, right?
-
-> Is it a valid argument for pornography creators to claim that individuals are responsible for their own porn addiction and that consumers must be aware of what they are consuming?
+> - <sub> Is it a valid argument for Influencers or pornography creators to claim that individuals are responsible for their own addiction and that consumers must be aware of what they are consuming, considering studies that shows the effects of social media as: Mental health issues (depression, anxiety, addiction), Cyberbullying and online harassment, Spread of false information and misinformation, Encouragement of negative behaviors (trolling, hate speech, extremism), Erosion of privacy and data security, Disruption of social interactions, Impact on productivity and time management, Polarization and division of opinions, Influence on self-image and body image, Exposure to inappropriate content and  dangerous challenges.[207](https://www.helpguide.org/articles/mental-health/social-media-and-mental-health.htm#:~:text=Since%20it's%20a%20relatively%20new,harm%2C%20and%20even%20suicidal%20thoughts.) </sub>
 
 #### Is it fair for a social media star to earn 270 times more than a nursing assistant making ~ €1300 per month? (1)(4)(5)
 
@@ -163,6 +149,7 @@ Kebab terror: If a person's family in xxxistan tragically loses their lives due 
 - <sub> End: Cure Cancer, eliminate Hunger </sub>
 - <sub> Mean: Developement founded on slavery </sub>
 - <sub> Mean: high-tech founded on inequality </sub>
+- <sub> What would citizens of a poor country be more likely to see on their damaged roads: high-tech drones, airplanes, satellite missiles, tanks and military technology from psychopathic countries, or luxury self-driving electric vehicles? </sub>
 - <sub> App: [Oversociety?]  </sub>
 
 *Kebab Terrorist Dilemma*
