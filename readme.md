@@ -109,10 +109,10 @@ Kebab terror: If a person's family in xxxistan tragically loses their lives due 
   
   
 *transgenders in women's sports competitions Dilemma(193)*
-- <sub> End: Hapiness in Soceity </sub>
-- <sub> Mean: whether with doping or children training terror to win opponents from poor countries  </sub>
-- <sub> Yes: Any Kind of Hapiness to get Joy is Morally fine </sub>
-  - <sub> APP: NO : In today's sports competitions, young athletes face increased risks of overuse injuries from specialization, while commercialization turns athletes into marketing products. Match-fixing and doping raise doubts about the integrity of results, as profitability takes precedence over fairness in top-level tournaments.(194) </sub>
+- <sub> End: make a society proud </sub>
+- <sub> Mean: To beat opponents from poor countries competitively, be it with doping or with child training terror.  </sub>
+- <sub> Yes: App -> Any means to achieve societal pride is acceptable. </sub>
+ - <sub> APP: NO : In today's sports competitions, young athletes face increased risks of overuse injuries from specialization, while commercialization turns athletes into marketing products. Match-fixing and doping raise doubts about the integrity of results, as profitability takes precedence over fairness in top-level tournaments.(194) </sub>
   
 *Torture Dilemma*
 - <sub> End: Save your family and 1000 others by defusing a hidden bomb in a shopping center. </sub>
@@ -125,45 +125,42 @@ Kebab terror: If a person's family in xxxistan tragically loses their lives due 
 - <sub> Mean: Break car window, enter private room. </sub>
 - <sub> Yes: app -> Not saving a life is a greater harm than entering a private room. Only necessary damage is justified, like breaking the window to save the dog, but setting the entire car on fire is morally wrong.  </sub>
  
-*Lie in Election Dilemma*
+* Dishonesty in election dilemma*
 - <sub> End: save lives </sub>
 - <sub> Mean: lie in the election </sub>
 - <sub> No: app -> The harm caused by systematic lying in elections outweighs any potential benefit of saving lives later. </sub>
 
 *Atom Bomb Dilemma*
-- <sub> End: save million lives </sub>
-- <sub> Mean: kill thousands, Atom bomb Hiroshima? </sub>
-- <sub> App: [Oversociety?]  </sub>
+- <sub> End: prevent a possible war and save millions </sub>
+- <sub> Mean: kill thousands of civilians with an atomic bomb </sub>
+- <sub> App -> Oversociety: If majority deems it best, using nuclear bombs on civilians is morally justified. </sub>
   
-*Skinny but professional boxer Dilemma*
-- <sub> End: Entertainment, Competition and Challenge </sub>
+*Professional skinny boxer dilemma*
+- <sub> End: Entertainment </sub>
 - <sub> Mean: Approach and beat a random passer-by on the street into a coma after obtaining their consent. </sub>
 - <sub> App: No, Beating passer-by into coma, even with consent, is unjust  </sub>
  
 *Slavery and the high-tech dilemma*
 - <sub> End: Cure Cancer, eliminate Hunger </sub>
-- <sub> Mean: Developement founded on slavery </sub>
-- <sub> Mean: high-tech founded on inequality </sub>
-- <sub>  App: [Oversociety Yes/No ?] In impoverished regions of the Middle East, Africa, South America, and South Asia, what would people encounter more on their deteriorated roads: high-tech military equipment or luxury self-driving electric vehicles? </sub>
+- <sub> Mean: High-tech progress built on exploitation and inequality. </sub>
+- <sub>  App: Oversociety -> If the majority, including people in impoverished regions of the Middle East, Africa, South America, and South Asia, who lack proper infrastructure for luxurious self-driving electric vehicles, willingly accept being exploited for the benefit of a few, then it is considered morally acceptable to do so. </sub>
 
 *Kebab Terrorist Dilemma*
 - <sub> End: Spread democracy to other countries. </sub>
 - <sub> Mean: Initiate wars to change foreign governments.</sub>
-- <sub> Mean: high-tech founded on inequality </sub>
 - <sub> App: No: Attacking another country to spread democracy, despite oversocietal consensus against it, is immoral for both the attacker country and its supporters, including the kebab seller. </sub>
  
 *Controversial YouTube interviews dilemma*
- - <sub> End: reducing inequality </sub>
-- <sub> Mean: Train your brain in different topics, ask unprepared individuals on the street controversial questions, conduct cast interviews and debates, edit/cut videos as desired </sub>
-- <sub> Mean: aim for viral fame and money on platforms like YouTube, TikTok, and Instagram </sub>
-- <sub> App: No [Polarization and Profiting leads to more inequality]  </sub>
+ - <sub> End: Establishing justice </sub>
+- <sub> Mean: Master diverse subjects, challenge unprepared individuals on the street with provocative questions, conduct polarizing casting interviews and debates, and edit videos as desired for viral fame and money on platforms like YouTube, TikTok, and Instagram. </sub>
+- <sub> App: No-> Morally correct: prioritizing the least harmful behavior to solve a problem.  </sub>
 
 *This Content Contradiction dilemma*
 - <sub> End: develope a voting app for equality </sub>
 - <sub> Mean: Creating viral, controversial content on TV, YouTube, Instagram, and TikTok that benefits large corporations and increases personal wealth.</sub>
 - <sub> Mean: Publishing a book through Amazon or a publisher, enriching them and increasing personal wealth. </sub>
 - <sub> Mean: Supporting inequality through payments to big companies for paper, ink, or domain costs. </sub>
-- <sub> App: the behavior that inflicts the least necessary harm to solve a problem morally right]  </sub>
+- <sub> App: No-> Morally correct: prioritizing the least harmful behavior to solve a problem.  </sub>
 
 *Social media Activism Dilemma*
 - <sub> End: reduce inequality </sub>
