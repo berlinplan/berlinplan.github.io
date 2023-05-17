@@ -23,7 +23,7 @@
 
 > - are street blockades for Instagram videos and the fight for political power an effective approach? (223)Or would such measures polarize society in such a way that even possible effective solutions would no longer be heard?
 
-## Are e-cars environmentally friendly or bullshit?
+## How environmentally friendly are e-cars?
 
 > E-cars require ten times more chips than petrol or diesel vehicles. The Chips Act, passed by Joe Biden, restricts US technology involvement in semiconductor production. As technology manufacturers prioritize profit, poorer countries rely on importing technology, perpetuating a cycle of wealth inequality that benefits the rich and leaves the poor behind. This contributes to the growing inequality (139, 140).
 
