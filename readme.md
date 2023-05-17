@@ -21,7 +21,7 @@
 
 ##  Can street blockades and polarization effectively solve the environmental crisis?
 
-> - are street blockades for Instagram videos and the fight for political power an effective approach? (223)Or would such measures polarize society in such a way that even possible effective solutions would no longer be heard?
+> - Blocking streets to be seen on Instagram and Youtube, or to gain political power for one's own group, is an effective approach? Or would such measures polarize society in such a way that even possible effective solutions would no longer be heard? (223)
 
 ## How environmentally friendly are e-cars?
 
