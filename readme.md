@@ -619,7 +619,7 @@ The decision to shut down nuclear power plants in Germany has resulted in signif
 
 An ownerless, non-beneficial group free from hierarchies and sociopathic behavior can brainstorm developement strategies for an ownerless voting app.
   
-## You may send an Email if you think 
+## Send an Email if you think 
 
 Bill Gates, Google, or any government will not and should not create this platform; it's up to the people.
 
