@@ -21,7 +21,7 @@
 
 ##  Can street blockades and polarization effectively solve the environmental crisis?
 
-> As granting voting power to African Americans reduced inequality, would respecting human envy and granting voting power to marginalized groups such as children and third-world countries serve as a check on rapid development, leading to equality and environmental protection? Or would street blockades for Instagram videos and the fight for political power be a more effective approach? (223)
+> - are street blockades for Instagram videos and the fight for political power an effective approach? (223)Or would such measures polarize society in such a way that even possible effective solutions would no longer be heard?
 
 ## Are e-cars environmentally friendly or bullshit?
 
@@ -503,7 +503,11 @@ Why does psychopathical systems, consumption culture and social media lead to a 
 </tbody>
 </table>
 
-- <sub> 6. Who should be taxed more? </sub>
+Example 6:
+The system is not complete and needs development. it could still be worth it if you consider that in the current system, large projects such as airports, but also simple projects, are corrupted by millions of euros.
+Even in the democracies with little corruption, Germany, Netherlands, Norway and Sweden.
+
+- <sub> 5. Who should be taxed more? </sub>
 - <sub> Fireman, nursing assistant, or teacher? </sub>
 - <sub> YouTuber, Instagrammer, TikToker, or porn performer? </sub>
 
@@ -679,8 +683,10 @@ The decision to shut down nuclear power plants in Germany has resulted in signif
 
 An ownerless, non-beneficial group free from hierarchies and sociopathic behavior can brainstorm developement strategies for an ownerless voting app.
   
-## You may send an Email if you think so: 
-  
+## You may send an Email if you think 
+
+If you also think that Bill Gates or Google will not develop such a platform but we will then please send us an email
+
 Email: theberlinplan@gmail.com
 
 > At 150 volunteers, participation instructions will be emailed. Your input on choosing the initial group platform (e.g., WhatsApp, Telegram) is valued.
