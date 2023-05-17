@@ -47,7 +47,7 @@ Activism on social media: Get maximum attention for your Instagram activism with
 
 ## Can we justify freedom for drug dealers?
 
-> All societies prohibit drug dealers by law.
+> most societies prohibit drug dealers by law.
 
 > <sub> Drug abuse: Addiction, Mental Health Disorder, Violence, Societal collapse, high Costs to Social Health, Economy & Family (8). Drug users cannot be treated as criminals (169); they suffer from something beyond their control (170). There is a £10,000-a-week trade of drug dealers (171). </sub> 
 
