@@ -60,15 +60,11 @@ Activism on social media: Get maximum attention for your Instagram activism with
 
 #### Social media is not entirely harmful, individuals are responsible for managing their own usage, accetpable?
 
-> - <sub> Is it a valid argument for Influencers or pornography creators to claim that individuals are responsible for their own addiction and that consumers must be aware of what they are consuming, considering studies that shows the effects of social media as: Mental health issues (depression, anxiety, addiction), Cyberbullying and online harassment, Spread of false information and misinformation, Encouragement of negative behaviors (trolling, hate speech, extremism), Erosion of privacy and data security, Disruption of social interactions, Impact on productivity and time management, Polarization and division of opinions, Influence on self-image and body image, Exposure to inappropriate content and  dangerous challenges.[207](https://www.helpguide.org/articles/mental-health/social-media-and-mental-health.htm#:~:text=Since%20it's%20a%20relatively%20new,harm%2C%20and%20even%20suicidal%20thoughts.) </sub>
+> - <sub> Is it a valid argument for influencers or pornography creators to claim that individuals are responsible for their own addiction and should be aware of the content they consume, considering the documented effects of social media like mental health issues, cyberbullying, false information, negative behaviors, privacy concerns, disrupted social interactions, reduced productivity, polarization, influence on self-image, and exposure to inappropriate content?[207](https://www.helpguide.org/articles/mental-health/social-media-and-mental-health.htm#:~:text=Since%20it's%20a%20relatively%20new,harm%2C%20and%20even%20suicidal%20thoughts.) </sub>
 
 #### Is it fair for a social media star to earn 270 times more than a nursing assistant making ~ €1300 per month? (1)(4)(5)
 
-> <sub> 1. The content produced on platforms like OnlyFans is considered pornographic and is deemed harmful to society (28)(3). </sub>
-
-> <sub> 2. Nurses play a crucial role in helping individuals, families, and groups reach their physical, psychological, and social potential, while the activity on OnlyFans has been linked to poor mental and emotional health in numerous studies and is considered detrimental to society (4)(7). </sub>
-
-> <sub> 3. OnlyFans has been associated with pornography addiction and has been cited as a factor in a significant proportion of divorces. Top earners like Iggy Azalea can make hundreds of thousands of dollars in a matter of hours, creating a massive income gap between them and the average worker (2)(5)(6)(7)(29). </sub>
+> <sub> Despite the documented negative effects of activities on platforms like OnlyFans, including societal harm, poor mental health, and contributing to divorce rates, top earners on these platforms can make huge sums of money in a short time. This creates a significant income gap compared to average workers, including caregivers who support individuals, families, and groups in achieving their physical, psychological, and social potential (4)(28)(3)(2)(5)(6)(7)(29). </sub>
 
 #### Does drug dealing offer self-empowerment, emancipation, and financial independence to underprivileged social groups?
 
