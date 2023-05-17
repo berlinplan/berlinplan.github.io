@@ -157,18 +157,16 @@ Kebab terror: If a person's family in xxxistan tragically loses their lives due 
 
 *This Content Contradiction dilemma*
 - <sub> End: develope a voting app for equality </sub>
-- <sub> Mean: Creating viral, controversial content on TV, YouTube, Instagram, and TikTok that benefits large corporations and increases personal wealth.</sub>
-- <sub> Mean: Publishing a book through Amazon or a publisher, enriching them and increasing personal wealth. </sub>
-- <sub> Mean: Supporting inequality through payments to big companies for paper, ink, or domain costs. </sub>
-- <sub> App: No-> Morally correct: prioritizing the least harmful behavior to solve a problem.  </sub>
+- <sub> Mean: Print and distribute this content to people on the street or reach a wider audience by going viral with controversial YouTube videos or employing tactics to make it a bestseller as a book on platforms like Amazon. </sub>
+- <sub> App: As all methods are harmful, the least harmful behavior to achieve equality is morally correct. </sub>
 
 *Social media Activism Dilemma*
-- <sub> End: reduce inequality </sub>
+- <sub> End: Establishing justice </sub>
 - <sub> Mean: Creating content on social media, attaining online success by honing conversational skills, employing sophistry, and enhancing cognitive abilities. </sub>
 - <sub> App -> No: While there are less harmful ways to combat inequality, social media activism, debates, polarization, and backing corporations like Google and YouTube, which enforce sanctions on impoverished countries, are unjust.(192)  </sub>
 
 *Use psychopathic platforms for noble objectives dilemma*
-- <sub> End:Minimize inequality. </sub>
+- <sub> End: Minimize inequality. </sub>
 - <sub> Mean: Promote and make an equalizing book a bestseller on platforms like Spotify, YouTube, Instagram, Amazon, Twitter, TikTok, and TV, using marketing tricks like the Matthew Effect (141) </sub>
 - <sub> App: No-> Morally correct: prioritizing the least harmful behavior to solve a problem.  </sub>
 
