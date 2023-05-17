@@ -179,39 +179,31 @@ Kebab terror: If a person's family in xxxistan tragically loses their lives due 
 
 > Strong values and flexible structures in ideological groups compared to hierarchical pathocratic armies with conflicting morals.
 
-## Are residents of modern Societies like Germany a"Society"?
+## Are residents of modern Societies like Germany a "Society"?
   
   > <sub> **Society** refers to people living together in organized communities with shared laws, traditions, and **values**. Cooperation is vital for human survival as it allows us to thrive in large groups, collaborate effectively, and distribute tasks based on individual strengths, leading to improved efficiency and productivity.(83) </sub>
   
-  > *Modern Society Values:*
+  > In modern society, LGBTQIA2S+ rights are deemed non-negotiable, yet symbolic unity is disregarded as seen in the abandonment of the "one love" band. They impose heavy sanctions on human rights violators but maintain strong ties with the most prominent violators. Additionally, they engage in wars under the pretext of promoting democracy despite advocating for world peace. (106, 107,108,153) </sub>
 
-- <sub> considers LGBTQIA2S+ rights non-negotiable while allowing the abandonment of the "one love" band during a football match. (106) </sub>
-- <sub> impose heavy sanctions against human rights violators while maintaining strong ties with the world's biggest violators of human rights. (107,108,153) </sub>
-- <sub> While claiming to respect world peace, sometimes engage in wars to bring democracy to other nations. </sub>
-
-
-## would people resist, fight and Sacrifize for a psychopathic system by a war attack?
+## Would people defend and sacrifice for a psychopathic system through war?
 
 > <sub> 1. Around 30,000 fighters from 85 countries joined ISIS, an organization with strong religious values. Approximately 10 million Syrians, Iraqis, and individuals from neighboring countries, primarily young Muslim men, fled the area. Islamic teachings consider fleeing from jihad (war) as a significant sin, ranked as the twenty-seventh sin. The prophet of Islam also expressed disapproval of Muslims settling among Christians and Jews. (85, 86, 87, 88, 89, 90, 91) </sub>
 
-#### Can a mass of people without any shared values be considered a **society**?
+#### Is a society valid if its members lack shared values?
 
 > <sub> 2. Over a million young Afghans have fled Afghanistan after the fall of the Afghan republic. Despite spending $145 billion on security forces and civilian government institutions over 20 years, the US and the West were unable to prevent the fall of the Afghan republic as soon as US troops left. President Ashraf Ghani, who had pledged to stay and protect his people, fled the capital city by helicopter to Uzbekistan, contradicting his previous promises. (93, 95) </sub>
 
-**Can it be said that the Taliban society targets a group of people with no shared values?**
+### Despite martial law, 8.2 million fled Ukraine. What would the numbers be without it?
 
 > <sub> 3. Ukraine has been ranked among the most corrupt nations, with The Guardian dubbing it "the most corrupt nation in Europe" (97). Ukraine's corruption level is comparable to countries in Sub-Saharan Africa, like Uganda (99). Besides monopoly and lack of transparency, a significant factor contributing to corruption in Ukraine is the moral collapse (104). Despite these challenges, the beauty industry in Ukraine is thriving, with Ukrainians dedicating a considerable portion of their income to cosmetic products (100). The major industries in Ukraine include banking, cafés, grocery stores, beauty, and clothing stores (101). The Russian Army comprises contracted personnel and volunteers, while Ukrainian male citizens aged 18-60 face restrictions on leaving the country (102). Nevertheless, there are over 8 million Ukrainian refugees in Europe, constituting approximately 20% of the population (103).(105). </sub> 
 
-**Despite martial law, 8.2 million fled Ukraine. What would the numbers be without it?**
+ #### How does a voting app build the first human society?
 
-
- #### How voting apps creates first Societes?
-
- Individuals who share similar values, such as Buddhists, Hindus, Christians, Muslims, atheists, and those who adhere to Western values, can come together and form a group. </sub>
+<sub> Individuals who share similar values, such as Buddhists, Hindus, Christians, Muslims, atheists, and those who adhere to Western values, can come together and form a group. </sub>
   
 ## What is a "Oversociety"?
   
-> Contains All Societies
+> All societies are part of a larger oversociety.
   
 > If society 1, 2, 3, Christian, Hindu, Chinese, Islamic, and Atheist societies all share the common value of prohibiting nuclear weapons, then all societies must comply.
 
@@ -229,36 +221,18 @@ Kebab terror: If a person's family in xxxistan tragically loses their lives due 
 Societies merge when they share the same values.
 > <sub> By uniting Buddhist societies in Asia and South America under a shared set of values, it becomes possible to establish a unified nation. </sub>
   
-**Could this lead to a meaningful cultural inspiration?**
+## Cultural inspiration or Multiculturalism Scam?
 
-> Would other societies adopt the positive values of a high-performing for example Buddhist society?
-
-> Could Muslims be inspired by Christians who have healthier babies due to avoiding cousin marriages?
-
-> Can Christians be inspired by Muslims to reduce alcohol consumption and have more stable relationships?
+> Comparisons are inherent to human cognition and can aid in personal growth (185). When a society excels, its positive values can inspire and influence other societies.
 
 #### How did cultural inspiration occur in the past?
 
-> <sub> Cultural influences between Asia and the West have been diverse, including the introduction of mathematical zero and the binary code (226). </sub>
-
-> <sub> Western influences on Eastern culture have been significant, particularly in the modern era, impacting aspects such as food, fashion, lifestyle, and governance (227). </sub>
-
-> <sub> During Atatürk's rule, Westernizing reforms were implemented across political, legal, religious, cultural, social, and economic policies (182). </sub>
-
-> <sub> In 1698, Tsar Peter I of Russia introduced a beard tax as part of an effort to align Russian society with Western European models (181). </sub>
-
-> <sub> One of the Westernizing actions taken by Iranian Reza Shah was the enforcement of Western suits and hats for men (183).  </sub>
-
-> <sub> Japan underwent early Westernization and modernization (184).) </sub>
-
-#### How do cultures influence and inspire one another? 
-
-> <sub> Comparisons are a natural part of human cognition and can contribute to the process of self-improvement (185). <sub>
+> <sub> Cultural influences between Asia and the West have been diverse, with notable contributions like mathematical zero and the binary code (226). Western influences have had a significant impact on Eastern culture, shaping aspects such as food, fashion, lifestyle, and governance (227). Atatürk, Tsar Peter I, Iranian Reza Shah, and Japan have all experienced varying degrees of Westernization and modernization (182, 181, 183, 184). </sub>
 
 
-## Multiculturalism: Does it lead to a tolerant and open-minded society or foster parallel societies?
+## Multiculturalism: a tolerant and open-minded society or parallel paralyzed societies?
 
-> Multiculturalism is often viewed as a means to promote cultural exchange, tolerance, openness, and new ideas. However, studies indicate that it can also lead to social tensions, culture clashes, polarization, marginalization, and language problems.(110)
+> Multiculturalism is often viewed as a means to promote cultural exchange, tolerance, openness, and new ideas. However, studies indicate that it lead to social tensions, culture clashes, polarization, marginalization, and language problems.(110)
 
 > A bounded confidence model describes consensus-like opinion dynamics, where agents interact only when their opinions are sufficiently similar. (111)
 
