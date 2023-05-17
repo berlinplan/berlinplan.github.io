@@ -172,7 +172,7 @@ Kebab terror: If a person's family in xxxistan tragically loses their lives due 
 
 ## Why do ideological groups like IRGC Quds, ISIS, and Al-Qaida surpass modern armies?
 
-> Strong values and flexible structures in ideological groups compared to hierarchical pathocratic armies with conflicting morals.
+> Strong values and flexible structures define ideological groups, contrasting with the conflicting morals of hierarchical modern armies.
 
 ## Are residents of modern Societies like Germany a "Society"?
   
@@ -224,7 +224,6 @@ Societies merge when they share the same values.
 
 > <sub> Cultural influences between Asia and the West have been diverse, with notable contributions like mathematical zero and the binary code (226). Western influences have had a significant impact on Eastern culture, shaping aspects such as food, fashion, lifestyle, and governance (227). Atatürk, Tsar Peter I, Iranian Reza Shah, and Japan have all experienced varying degrees of Westernization and modernization (182, 181, 183, 184). </sub>
 
-
 ## Multiculturalism: a tolerant and open-minded society or parallel paralyzed societies?
 
 > Multiculturalism is often viewed as a means to promote cultural exchange, tolerance, openness, and new ideas. However, studies indicate that it lead to social tensions, culture clashes, polarization, marginalization, and language problems.(110)
@@ -275,20 +274,20 @@ Would individuals still seek refuge if economic disparities between third-world 
 
 > **Combine:** implies some merging or mingling with corresponding loss of identity of each unit (168)
 
-> People from poor countries migrate to industrialized nations, where their high-tech products are more likely to be utilized, especially by the US Army, which often operates in migrants countries of origin. Despite migrants resisting the acceptance of values from psychopathic systems that have led to the erosion of their own populations, cultures, and values, they are already fully integrated into the heavy psychopathic system as they live and work in a system that perpetuates inequality (psychopathegration). (179,180,186)
+> People from poor countries migrate to industrialized nations, where their high-tech products are more likely to be utilized, especially by the US Army, which often operates in migrants countries of origin. Despite migrants resisting the acceptance of values of **people** from psychopathic systems that have led to the erosion of their own populations, cultures, and values, they are already fully integrated into the psychopathic **system** as they live and work in a system that perpetuates inequality (psychopathegration). (179,180,186)
 
 #### Why does the economy favor psychopathically integrated populations over organic ones?
 
 > The reduced affinity of migrants towards their original values increases their susceptibility to psychopathic integration.
 
->  <sub> as sociopaths, Psychopathegrated population, have learned their behavior and are created by life experiences. They are capable of feeling emotions but usually don’t control them. Psychopaths, on the other hand, are born and suffer from a genetic effect (50,51) </sub>
+>  <sub> Psychopathically integrated population,as sociopaths have learned their behavior and are created by life experiences. They are capable of feeling emotions but usually don’t control them. Psychopaths, on the other hand, are born and suffer from a genetic effect (50,51) </sub>
 
 The Indian, Pakistani, and Asian population in the UK surprised London by voting in favor of Brexit, indicating stronger euroscepticism within this community than previously anticipated. (197) 
 
 > Iranian migrants have organized protests outside Iran, calling for stricter sanctions against their home country. (221)
  
   
- ## Why does democracy end in an atomic bomb?
+ ## Why does democracy always end in an atomic bomb?
 
 - <sub> While democracy is considered the best political system, it has drawbacks: polarizing debates, corruption, lack of protection for the common man, divide-and-rule tactics, unfair business practices, power addiction, media misuse, and rising inequality. Power dynamics in social hierarchies affect empathy, with higher-status individuals showing decreased accuracy in empathizing with lower-status individuals. (138).(63, 220, 65). </sub>
 - <sub> Psychopathy is a severe personality disorder characterized by antisocial behavior, deceitfulness, irresponsibility, and a lack of empathy. Preventing psychopaths from gaining power is crucial to avoid turning democracy into a pathocracy, as they have no limits in reaching the top. (64, 68, 79, 80, 172). </sub>
@@ -319,7 +318,7 @@ Why does psychopathical systems, consumption culture and social media lead to a 
 
 > <sub> An aging population's lack of workers and skilled labor in Industrial Countries can lead to economic collapse in third-world countries, from where migrants originate. This situation results in economic disadvantages, the loss of qualified professionals (especially in healthcare), and social problems for children who are left behind or do not grow up in large families. Remittances and money transfers may be blocked or face UN sanctions, while poor countries often experience negative trade balances with industrialized nations. Negative trade balances contribute to unemployment and capital outflow. Exploitation, as defined by Marxist theories, involves the inappropriate use of manpower and resources, specifically the appropriation of someone else's labor and contributes to increased international inequality (15,16,17,18,19,20,21, 22)  </sub>
 
-#### 4. Can violent shocks be the only solution to reducing international inequality?
+#### 4. Why violent shocks are the only solution to reduce international inequality?
   
 > <sub>  Studies on the global history of inequality suggests that peaceful means have never effectively diminished it. Examples include the use of violent tactics such as blanket bombing, atomic bombs, slave uprisings, and wars, which have led to declines in social inequality. French colonization in Haiti ended after the Haitian slaves rebelled, resulting in the Haitian Massacre. Similarly, the end of slavery in the United States was driven by slave uprisings and economic factors. World War II also contributed to a notable reduction in income and wealth inequality across many nations. (23,24,25 26). </sub>
 
@@ -328,7 +327,7 @@ Why does psychopathical systems, consumption culture and social media lead to a 
 
 > <sub> If everything becomes flat, how can the world and the environment be exploited on a large scale? Could Iran enriched uranium to build several nuclear weapons or North Korea's 100-kiloton atomic bomb potentially end sanctions and lead to equality?(30,209 )</sub>
 
-## How to grant people the freedom and equality to utilize an atom bomb?
+## Freedom to utilize an atom bomb, acceptable?
 
 > <sub> Over the years, Iranians have consistently shown strong backing for their country's nuclear program. In 2006, support reached 85%, and in 2010, it was 71%. Even amid sanctions, a 2013 Gallup poll found that 84% of Iranians expressed a desire for nuclear weapons. A 2013 Zogby poll similarly indicated majority opposition (84.5%) to ending uranium enrichment and ballistic missile testing (83.4%). Responsibility for sanctions varied among respondents, with 46% holding the U.S. responsible, 13% attributing it to the Iranian government, and 12% to the UN and EU, while 16% were uncertain. (155, 156, 157, 158, 159, 160, 161,163, 165). </sub>
 
@@ -337,24 +336,18 @@ Why does psychopathical systems, consumption culture and social media lead to a 
 > Experts warn that advancements like 3D printing make it easier for non-hierarchical groups to secretly produce weapons of mass destruction. Meanwhile, current people in power would less likely use it. Contrary to misconceptions, psychopaths are fully aware of the consequences of their actions; they are not insane. In 2013, Iran's religious Supreme leader issued an irrevocable Fatwa prohibiting the development and deployment of nuclear weapons under Islamic law. Since then, Mahmoud Ahmadinejad, a strong supporter of Iran's nuclear program, has been disqualified from all Iranian elections. (154, 162, 163, 164, 178, 195,216).
 
  
-#### Should non-hierarchical systems be adopted due to the challenge of identifying psychopaths?
-
-> <sub> As the saying goes, "He who sups with the devil should have a long spoon" (69, 70). <sub>
-
-#### Could the solution to the 2,500-year-old problem of psychopathy in democracy be found in a simple voting app?
+#### can a voting app solve the 2,500-year-old problem of psychopathy in democracy?
   
-<sub> New smartphones offer advanced verification methods like fingerprint and face scans for tasks like online banking, enabling secure transactions of large sums of money. (72) </sub>
-
-> Do smartphones have the potential to address significant issues or are they primarily designed for social media?
-  
+<sub> New smartphones offer advanced verification methods like fingerprint and face scans for tasks like online banking, enabling secure transactions of large sums of money.(72)due to the challenge of identifying psychopaths in a society, non-hierarchical systems could be adopted. As the saying goes, "He who sups with the devil should have a long spoon" (69, 70). </sub>
+ 
 #### Can an app replace politicians, parliamentarians, presidents, governors, and other coveted positions that attract psychopaths?
 
 > <sub> The President's responsibilities include treaty-making, bill vetoing and signing, representing the nation in foreign talks, enforcing laws, proposing new laws, leading a political party, hosting foreign guests, recognizing foreign countries, and granting pardons. Parliamentarians legislate and oversee the government's work. (66,67) </sub>
 
 #### Is a gradual reduction and replacement of the existing psychopathic structure feasible?
 
-> Eliminating hierarchies is crucial for reducing inequality.
-
+> Removing hierarchies is vital to reduce inequality. Can a smartphone app be the right platform to address important issues, or should smartphones mainly focus on social media?
+ 
 > Current democracies can gradually incorporate an anti-psychopathy app without requiring a revolutionary change. A beta or pilot project can be tested in a village with 100 residents.
 
 #### Why is it better to hold your own money instead of letting psychopaths control it?
@@ -371,8 +364,12 @@ Why does psychopathical systems, consumption culture and social media lead to a 
     - <sub> Should the money be paid gradually from each person's account or sent to a psychopathic system to pay the company? </sub>
   
 - <sub> 4. Should sanctions be imposed on Russia, Saudi Arabia, the USA, or China for human rights violations? </sub>
+ 
+ - <sub> 5. Who should be taxed more? </sub>
+- <sub> Fireman, nursing assistant, or teacher? </sub>
+- <sub> YouTuber, Instagrammer, TikToker, or porn performer? </sub>
   
- - <sub> 5. Voting example in a village of 100 people: </sub> 
+ - <sub> 6. Voting example in a village of 100 people: </sub> 
   
 <table class="tg">
 <thead>
@@ -447,13 +444,8 @@ Why does psychopathical systems, consumption culture and social media lead to a 
 </tbody>
 </table>
 
-Example 6:
-The system is not complete and needs development. it could still be worth it if you consider that in the current system, large projects such as airports, but also simple projects, are corrupted by millions of euros.
-Even in the democracies with little corruption, Germany, Netherlands, Norway and Sweden.
 
-- <sub> 5. Who should be taxed more? </sub>
-- <sub> Fireman, nursing assistant, or teacher? </sub>
-- <sub> YouTuber, Instagrammer, TikToker, or porn performer? </sub>
+> The system needs development but can be more effective than even low-corruption countries like Germany, Netherlands, Norway, and Sweden, where corruption can occur in major as well as minor projects such as airports.
 
 #### Is there a way to have a non-psychopathic economy without turning to communism?
 
@@ -485,7 +477,7 @@ Even in the democracies with little corruption, Germany, Netherlands, Norway and
 
 > Mohammed ranked as the most popular name for baby boys in Berlin in 2022 (225). Sweden could have a Muslim population of 31% by 2050, while Germany's could be 20%, and in big cities such as Berlin, Düsseldorf, or Köln, this number could rise to 60%. It's possible that the concept of Islamic Sharia could gain traction in Berlin as a reflection of the growing Muslim population. This growth in Islam is not limited to Europe, as it is currently the fastest-growing religion in India, the USA, China, and Sub-Saharan countries (127, 128, 129, 130).
 
-#### How have big states attempted to curb the growth of Islam?
+#### How have large states attempted to suppress the growth of Islam?
 
 - China: Hormone therapy of Muslims (Chinese Uyghur genocide) (131)
 - India: Anti-Muslim Laws. New Citizenship Law, Disturbed Area Act. Ghettoize Muslims. (132) (133)
@@ -629,27 +621,20 @@ An ownerless, non-beneficial group free from hierarchies and sociopathic behavio
   
 ## You may send an Email if you think 
 
-If you also think that Bill Gates or Google will not develop such a platform but we will then please send us an email
+Bill Gates, Google, or any government will not and should not create this platform; it's up to the people.
 
 Email: theberlinplan@gmail.com
 
 > At 150 volunteers, participation instructions will be emailed. Your input on choosing the initial group platform (e.g., WhatsApp, Telegram) is valued.
 
-#### How should this content be distributed correctly?
 
-> <sub> Posting this content on TV, social media, or other psychopathic platforms and profiting from it or gaining notoriety is morally wrong unless (Over)society determines otherwise. However, individuals are **free** to create websites, distribute the content, form groups, and potentially receive compensation for their efforts. These groups may also merge in the future.
-
-**Calculating Compensation:** With 8 hours of daily work, if 1 out of 48 approached individuals pays, with each interaction lasting 10 minutes, it would require €100 per book based on the minimum wage of €12.5 per hour. However, a more suitable price range for affordability is €10-€20. </sub>
+<sub> **Calculating Compensation:** With 8 hours of daily work, if 1 out of 48 approached individuals pays, with each interaction lasting 10 minutes, it would require €124 per copy based on the minimum wage of €12.5 per hour and printing costs. As this price is not affordable for most, any lower price would be acceptable. </sub>
  
 #### Alms of science is its distribution (200)
 
-> This content is free.
+## This content is free. If you wish to pay the paper, ink and time costs of the person who provided you with this copy
 
-## Did you come across this page on the street?
-
-You might want to consider sending the person compensation for his effort.
-
-#### Name: Berlin Plan
+#### Name: AJ Mehr
 #### IBAN: DE73500105175414887887
 
 #### Paypal: theberlinplan@gmail.com 
