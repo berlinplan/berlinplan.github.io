@@ -110,26 +110,25 @@ Kebab terror: If a person's family in xxxistan tragically loses their lives due 
   
 *transgenders in women's sports competitions Dilemma(193)*
 - <sub> End: Hapiness in Soceity </sub>
-- <sub> Mean: get  triumph of winning opponents often from poor Countries regardless of doping  or early training as a child  </sub>
-- <sub> Yes: Any Kind of Hipiness to get Joy is Morally fine </sub>
-  - <sub> APP: NO : Current Sports Competitions: Young athletes face a greater risk of overuse injuries due to sports specialization. Commercialization has stripped away the joy, turning athletes into marketing products. Match-fixing and doping cast doubt on sports results. Profitability rests with top-level tournaments, favored by viewers. In light of these issues, the quest for fairness in sports competitions may seem meaningless.(194) </sub>
+- <sub> Mean: whether with doping or children training terror to win opponents from poor countries  </sub>
+- <sub> Yes: Any Kind of Hapiness to get Joy is Morally fine </sub>
+  - <sub> APP: NO : In today's sports competitions, young athletes face increased risks of overuse injuries from specialization, while commercialization turns athletes into marketing products. Match-fixing and doping raise doubts about the integrity of results, as profitability takes precedence over fairness in top-level tournaments.(194) </sub>
   
 *Torture Dilemma*
-- <sub> End: defuse a hidden bomb in a shopping center to save your family and 1000 others </sub>
-- <sub> Mean: use barbaric torture methods with an 80% success rate to extract information from a terrorist in 10hours </sub>
-- <sub> APP: Yes limited use of torture to gather information is ok but not prolonged use. </sub>
-- <sub> App: No any kind of torture is wrong  </sub>
+- <sub> End: Save your family and 1000 others by defusing a hidden bomb in a shopping center. </sub>
+- <sub> Mean: Extract information from a terrorist in 10 hours using effective torture methods with an 80% success rate. </sub>
+- <sub> APP: Yes. Limited torture for information gathering is acceptable, but not prolonged. </sub>
+- <sub> App: No. Torture is always wrong. </sub>
   
 *Damage others Property Dilemma*
-- <sub> End: rescue a dog trapped inside a car </sub>
-- <sub> Mean: break car's Window property, enter a private room </sub>
-- <sub> Yes: app -> Choosing not to save a life is a greater harm than entering a private room. </sub>
-- <sub> Yes: app -> only the Least necesary damage ist Ok. where Breaking the window save dog, damaging and set entire car on fire is not moral  </sub>
+- <sub> End: Rescue trapped dog from car. </sub>
+- <sub> Mean: Break car window, enter private room. </sub>
+- <sub> Yes: app -> Not saving a life is a greater harm than entering a private room. Only necessary damage is justified, like breaking the window to save the dog, but setting the entire car on fire is morally wrong.  </sub>
  
 *Lie in Election Dilemma*
 - <sub> End: save lives </sub>
-- <sub> Mean: lie through the election </sub>
-- <sub> No: app -> Systematic lying in elections causes greater societal and personal damage than the benefit of saving lives later. </sub>
+- <sub> Mean: lie in the election </sub>
+- <sub> No: app -> The harm caused by systematic lying in elections outweighs any potential benefit of saving lives later. </sub>
 
 *Atom Bomb Dilemma*
 - <sub> End: save million lives </sub>
@@ -137,57 +136,50 @@ Kebab terror: If a person's family in xxxistan tragically loses their lives due 
 - <sub> App: [Oversociety?]  </sub>
   
 *Skinny but professional boxer Dilemma*
-- <sub> End: Entertainment, Competition and Challenge</sub>
-- <sub> Mean: approach and beat a random passer-by on the street into a coma </sub>
-- <sub> App: No [freely Damaging other even with their acceptance is wrong]  </sub>
+- <sub> End: Entertainment, Competition and Challenge </sub>
+- <sub> Mean: Approach and beat a random passer-by on the street into a coma after obtaining their consent. </sub>
+- <sub> App: No, Beating passer-by into coma, even with consent, is unjust  </sub>
  
-*Slavery and high-tech Dilemma*
+*Slavery and the high-tech dilemma*
 - <sub> End: Cure Cancer, eliminate Hunger </sub>
 - <sub> Mean: Developement founded on slavery </sub>
 - <sub> Mean: high-tech founded on inequality </sub>
-- <sub> What would citizens of a poor country be more likely to see on their damaged roads: high-tech drones, airplanes, satellite missiles, tanks and military technology from psychopathic countries, or luxury self-driving electric vehicles? </sub>
-- <sub> App: [Oversociety?]  </sub>
+- <sub>  App: [Oversociety Yes/No ?] In impoverished regions of the Middle East, Africa, South America, and South Asia, what would people encounter more on their deteriorated roads: high-tech military equipment or luxury self-driving electric vehicles? </sub>
 
 *Kebab Terrorist Dilemma*
-- <sub> End: bring Demokracy to other Countries </sub>
-- <sub> Mean: Start War an kill People </sub>
+- <sub> End: Spread democracy to other countries. </sub>
+- <sub> Mean: Initiate wars to change foreign governments.</sub>
 - <sub> Mean: high-tech founded on inequality </sub>
-- <sub> App: No: Society 1 was not allowed to attack society 2 to bring democracy, the Action of Society 1 and all People inside it that support its military in anyway is immoral. even the Kebab seller to some tool manufactor </sub>
+- <sub> App: No: Attacking another country to spread democracy, despite oversocietal consensus against it, is immoral for both the attacker country and its supporters, including the kebab seller. </sub>
  
-*Controversial Youtube Interviews Dilemma*
+*Controversial YouTube interviews dilemma*
  - <sub> End: reducing inequality </sub>
 - <sub> Mean: Train your brain in different topics, ask unprepared individuals on the street controversial questions, conduct cast interviews and debates, edit/cut videos as desired </sub>
 - <sub> Mean: aim for viral fame and money on platforms like YouTube, TikTok, and Instagram </sub>
 - <sub> App: No [Polarization and Profiting leads to more inequality]  </sub>
 
-*This Website Contradiction Dilemma*
+*This Content Contradiction dilemma*
 - <sub> End: develope a voting app for equality </sub>
 - <sub> Mean: Creating viral, controversial content on TV, YouTube, Instagram, and TikTok that benefits large corporations and increases personal wealth.</sub>
 - <sub> Mean: Publishing a book through Amazon or a publisher, enriching them and increasing personal wealth. </sub>
-- <sub> Mean: Contributing to inequality by paying €2.78 per year for a domain from a domain seller company. </sub>
+- <sub> Mean: Supporting inequality through payments to big companies for paper, ink, or domain costs. </sub>
 - <sub> App: the behavior that inflicts the least necessary harm to solve a problem morally right]  </sub>
 
 *Social media Activism Dilemma*
 - <sub> End: reduce inequality </sub>
-- <sub> Mean: Content on Social Media, Debates and Critical Videos</sub>
-- <sub> Mean: train Conversation, Sophistry fallacy and brain's hypertrophy Skills to cast Interviews </sub>
-- <sub> App: No: [Debates and  Polarization and Activismus in Social media  Create more inequality and is not the behavior that inflicts the least necessary harm to solve a problem (192)  </sub>
-  - <sub> App: No: [ companies like Google, including YouTube imposes sanctions on poor countries and contribute to global inequality  </sub>
+- <sub> Mean: Creating content on social media, attaining online success by honing conversational skills, employing sophistry, and enhancing cognitive abilities. </sub>
+- <sub> App -> No: While there are less harmful ways to combat inequality, social media activism, debates, polarization, and backing corporations like Google and YouTube, which enforce sanctions on impoverished countries, are unjust.(192)  </sub>
 
-*use psychopathic platforms for good goals Dilemma*
-- <sub> End:reduce inequality </sub>
-- <sub> Mean: sell an anti-inequality book in Spotify, YouTube, Instagram, Amazon, Twitter, TikTok, and TV </sub>
-- <sub> Mean: Publish a book on inequality and make it a bestseller on Amazon through  the Mattew Effect* </sub>
-- <sub> App: No: the behavior that inflicts the least necessary harm to solve a problem morally right  </sub>
-
-> <sub> Matthew Effect: The Matthew Effect describes a social pattern where initial advantages lead to further advantages, creating a growing disparity between resource-rich and resource-poor individuals (141). for Exmple by obtaining 5-star reviews for a new Published book on Amazon -each ~4€ on Telegram: "Amazon review DE, Amazon Produkttester, Amazon De tester 2"   </sub>
-
+*Use psychopathic platforms for noble objectives dilemma*
+- <sub> End:Minimize inequality. </sub>
+- <sub> Mean: Promote and make an equalizing book a bestseller on platforms like Spotify, YouTube, Instagram, Amazon, Twitter, TikTok, and TV, using marketing tricks like the Matthew Effect (141) </sub>
+- <sub> App: No-> Morally correct: prioritizing the least harmful behavior to solve a problem.  </sub>
 
 ## Why do ideological groups like IRGC Quds, ISIS, and Al-Qaida surpass modern armies?
 
 > Strong values and flexible structures in ideological groups compared to hierarchical pathocratic armies with conflicting morals.
 
-## residents of modern Societies like Germany are "society"?
+## Are residents of modern Societies like Germany a"Society"?
   
   > <sub> **Society** refers to people living together in organized communities with shared laws, traditions, and **values**. Cooperation is vital for human survival as it allows us to thrive in large groups, collaborate effectively, and distribute tasks based on individual strengths, leading to improved efficiency and productivity.(83) </sub>
   
