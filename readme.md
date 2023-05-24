@@ -374,7 +374,7 @@ Why does psychopathical systems, consumption culture and social media lead to a 
 <table class="tg">
 <thead>
   <tr>
-    <th class="tg-c3ow" colspan="2">User 76: The village is too dry. Do we need to plant trees?</th>
+    <th class="tg-c3ow" colspan="2">User 76: Is tree planting necessary to combat the village's dryness?</th>
   </tr>
 </thead>
 <tbody>
@@ -383,15 +383,15 @@ Why does psychopathical systems, consumption culture and social media lead to a 
     <td class="tg-c3ow">No(20%)</td>
   </tr>
   <tr>
-    <td class="tg-0pky">User 74: Planting a new tree costs €30 and requires an investment in a water system and an external maintenance company. The cost is €100 per month, divided among 100 people. However, there are other ways to support the forest without additional costs. (20 votes)</td>
-    <td class="tg-0pky">User 4: Nature is essential for human mental health and well-being. According to a study, children also benefit from contact with nature. (20 votes)</td>
+    <td class="tg-0pky">User 74: Tree planting: €30 cost, water system investment, €100/month (divided by 100 people). Explore free ways to support the forest. (20 votes)</td>
+    <td class="tg-0pky">User 4: Study confirms nature's role in mental health, benefits children. (20 votes)</td>
   </tr>
   <tr>
-    <td class="tg-0pky">User 22: Trees are good for birds. (12 votes)</td>
-    <td class="tg-0pky">User 12: Planting trees is expensive, and we already have enough trees. (17 votes)</td>
+    <td class="tg-0pky">User 22: Birds thrive in tree-rich environments. (12 votes)</td>
+    <td class="tg-0pky">User 12: Tree planting is costly, and our current tree count is sufficient. (17 votes)</td>
   </tr>
   <tr>
-    <td class="tg-c3ow" colspan="2">Result: 80% for planting trees</td>
+    <td class="tg-c3ow" colspan="2">Result: 80% voted for it</td>
   </tr>
   <thead>
   <tr>
@@ -399,17 +399,17 @@ Why does psychopathical systems, consumption culture and social media lead to a 
   </tr>
 </thead>
   <tr>
-    <td class="tg-c3ow" colspan="2">User 14: Company XXX charges only €20 per tree for planting and has low costs.</td>
+    <td class="tg-c3ow" colspan="2">User 14: Affordable tree planting by Company XXX at €20 per tree.</td>
   </tr>
   <tr>
-    <td class="tg-0pky" colspan="2">User 20: Company YYY charges €30 per tree but is environmentally friendly as they don't use cars.</td>
+    <td class="tg-0pky" colspan="2">User 20: Eco-conscious Company YYY charges €30 per tree, avoiding car transportation.</td>
   </tr>
   <tr>
-    <td class="tg-0pky" colspan="2">Add Suggestion</td>
+    <td class="tg-0pky" colspan="2">Offer your recommendations</td>
   </tr>
   <tr>
-    <td class="tg-0pky">Other Options: (cancel vote) due to no company found.</td>
-    <td class="tg-0pky">(extend time) to find more companies.</td>
+    <td class="tg-0pky">Cancel vote,unable to find a company.</td>
+    <td class="tg-0pky">Time extension to find more companies.</td>
   </tr>
   <tr>
     <td class="tg-0pky" colspan="2">Result: Company XXX selected.</td>
