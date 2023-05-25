@@ -1,4 +1,5 @@
-# [Deutsch](http://www.berlinplan.com/de/) [Farsi](http://www.berlinplan.com/fa/) [Source](http://www.berlinplan.com/fragen/)
+## [Deutsch](http://www.berlinplan.com/de/) [Farsi](http://www.berlinplan.com/fa/) [English](http://www.berlinplan.com/) 
+## [Source](http://www.berlinplan.com/fragen/)
 
 Please consider the following questions and note the gray text for additional information.
 1.	Better smartphones, a cure for cancer and the fight against hunger in Africa if slavery persisted?
