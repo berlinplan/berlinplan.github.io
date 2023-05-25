@@ -85,66 +85,358 @@ While some people rely on religious leaders for moral guidance, others follow Ka
 Judge action based on favorable outcomes. However, religious and political psychopaths often justify their actions with claims of positive outcomes, revealing the lack of a universal definition of morality.
  
 6.3	Can a custom values voting app do away with institutionalized religion?
-The dilemma:
-Kill one to save several others	End: save 7	• Moral: Due to the society decision in the app
-• Immoral: Society Decision: Killing causes more damage than not rescuing.
-	Medium: kill one	
 
-Kill one to save humanity	End: save humanity	• Moral: An emergency triggers an app notification so everyone on the planet can vote.
-• Immoral: Due to the society decision in the app.
-	Medium: kill one	
-
-Olympic sports competitions	End: Pride in victory	• Moral: All measures to gain social pride are acceptable.
-• Immoral: In today's sporting competitions, young athletes are at increased risk of overuse injuries due to specialization, while commercialization turns athletes into marketing products. Match-fixing and doping cast doubt on the integrity of the results, as profitability takes precedence over fairness in tournaments of the highest caliber. (194)
-	Medium: To beat opponents from poor countries competitively, be it with doping or with child training terror.	
-
-transgender in women let sports competitions	End: Gender Justice	• Moral: All measures to gain social pride are acceptable.
-• Immoral: since commercialized sports competitions are immoral.
-	Medium: Transgender in Women's Sports (193)	
-
-Torturing a bomber	End: defuse bomb, save your family and 1000 others.	• Moral: Limited torture to obtain information is acceptable, but no longer.
-• Immoral: Torture is always wrong.
-	Medium: Obtain information from a terrorist in 10 hours using effective torture methods, with an 80% success rate.	
-
-Breaking stranger's window to save the dog	End: Rescue the trapped dog from the car.	• Moral: Not saving a life is more damaging than entering a private space. Only necessary damage is justified, such as breaking the window to save the dog, but setting the whole car on fire is not correct.
-• Immoral: Damaging property of others is immoral.
-	Medium: Break car window, enter private room.	
-
-dishonesty in elections	End: save lives	• Moral: All measures to gain power to help others are acceptable.
-• Immoral: The harm caused by systematic lying in elections outweighs any potential benefit of saving lives later.
-	Medium: lies	
-
-Atomic Freedom	End: prevent a possible war and save millions	• Moral: If the majority of all people think it best, then using nuclear bombs against civilians is morally justified.
-• Immoral: The damage caused by nuclear war outweighs any potential benefit.
-	Medium: Kill thousands of civilians with a nuclear bomb	
-
-Professional skinny boxer	End: entertainment	• Morally: if the passer-by agreed to it voluntarily, then it's his own fault.
-• Immoral: Putting people in a coma, even with their consent, is immoral.
-	Medium: Approach a random passerby on the street and beat them into a coma after getting their consent to fight.	
-
-High tech through slavery	End: cure cancer, eliminate hunger	• Moral: When the majority, including people in impoverished regions of the Middle East, Africa, South America and South Asia who lack adequate infrastructure for luxury self-driving electric vehicles, willingly accept being exploited for the benefit of a few, then it becomes moral considered reasonable to do so.
-• Immoral: Due to the society decision in the app
-	Medium: High-tech advancement based on exploitation and inequality.	
-
-doner kebab terrorist	End: Spreading democracy to other countries.	• Moral: Due to the society decision in the app
-• Immoral: Attacking another country to spread democracy, despite excessive social unity, is immoral, both for the attacking country and for its supporters, including the kebab seller.
-	Medium: Start wars to change foreign governments.	
-
-YouTube Interviews	End: establish justice	• Moral: All measures to gain power to establish justice are acceptable.
-• Immoral: Prioritizing the least harmful behavior to solve a problem.
-	Medium: Tackle diverse subjects, challenge unprepared people on the street with provocative questions, conduct polarizing casting interviews and debates, and edit videos as desired to achieve viral fame and money on platforms like YouTube, TikTok, and Instagram.	
-
-contradiction	End: Development of a voting app for equality	• Moral: the least harmful behavior to achieve equality.
-• Immoral: Due to the society decision in the app
-	Medium: Print out this content and distribute it to people on the street, or reach a wider audience by going viral with controversial YouTube videos, or employing tactics to make it a bestseller as a book on platforms like Amazon.	
-
-Social Media Activism	End: establish justice	• Moral: Social media is the least harmful behavior to achieve equality.
-• Immoral: There are enough less harmful ways to fight inequality than social media activism, debate, polarization and supporting companies like Google and YouTube that impose sanctions on impoverished countries. (192)
-	Medium: Creating content on social media, achieving online success by honing conversational skills, applying sophistication and improving cognitive skills.	
-
-Aim higher through TikTok	End: minimize inequality.	• Moral: The least harmful behavior to achieve equality.
-• Immoral: There are enough less harmful ways to fight inequality
-	Medium: write a book about justice and promote it and make it a bestseller on platforms like Spotify, YouTube, Instagram, Amazon, Twitter, TikTok and TV, and even use marketing tricks like the Matthew Effect (141)	
+<p>The dilemma:</p>
+<table>
+<colgroup>
+<col style="width: 22%" />
+<col style="width: 18%" />
+<col style="width: 59%" />
+</colgroup>
+<thead>
+<tr class="header">
+<th rowspan="2">Kill one to save several others</th>
+<th>End: save 7</th>
+<th rowspan="2"><p>• Moral: Due to the society decision in the app</p>
+<p>• Immoral: Society Decision: Killing causes more damage than not
+rescuing.</p></th>
+</tr>
+<tr class="odd">
+<th>Medium: kill one</th>
+</tr>
+</thead>
+<tbody>
+</tbody>
+</table>
+<table>
+<colgroup>
+<col style="width: 17%" />
+<col style="width: 30%" />
+<col style="width: 51%" />
+</colgroup>
+<thead>
+<tr class="header">
+<th rowspan="2">Kill one to save humanity</th>
+<th>End: save humanity</th>
+<th rowspan="2"><p>• Moral: An emergency triggers an app notification so
+everyone on the planet can vote.</p>
+<p>• Immoral: Due to the society decision in the app.</p></th>
+</tr>
+<tr class="odd">
+<th>Medium: kill one</th>
+</tr>
+</thead>
+<tbody>
+</tbody>
+</table>
+<table>
+<colgroup>
+<col style="width: 11%" />
+<col style="width: 26%" />
+<col style="width: 61%" />
+</colgroup>
+<thead>
+<tr class="header">
+<th rowspan="2">Olympic sports competitions</th>
+<th>End: Pride in victory</th>
+<th rowspan="2"><p>• Moral: All measures to gain social pride are
+acceptable.</p>
+<p>• Immoral: In today's sporting competitions, young athletes are at
+increased risk of overuse injuries due to specialization, while
+commercialization turns athletes into marketing products. Match-fixing
+and doping cast doubt on the integrity of the results, as profitability
+takes precedence over fairness in tournaments of the highest caliber.
+(194)</p></th>
+</tr>
+<tr class="odd">
+<th>Medium: To beat opponents from poor countries competitively, be it
+with doping or with child training terror.</th>
+</tr>
+</thead>
+<tbody>
+</tbody>
+</table>
+<table>
+<colgroup>
+<col style="width: 24%" />
+<col style="width: 25%" />
+<col style="width: 50%" />
+</colgroup>
+<thead>
+<tr class="header">
+<th rowspan="2">transgender in women let sports competitions</th>
+<th>End: Gender Justice</th>
+<th rowspan="2"><p>• Moral: All measures to gain social pride are
+acceptable.</p>
+<p>• Immoral: since commercialized sports competitions are
+immoral.</p></th>
+</tr>
+<tr class="odd">
+<th>Medium: Transgender in Women's Sports (193)</th>
+</tr>
+</thead>
+<tbody>
+</tbody>
+</table>
+<table>
+<colgroup>
+<col style="width: 10%" />
+<col style="width: 52%" />
+<col style="width: 37%" />
+</colgroup>
+<thead>
+<tr class="header">
+<th rowspan="2">Torturing a bomber</th>
+<th>End: defuse bomb, save your family and 1000 others.</th>
+<th rowspan="2"><p>• Moral: Limited torture to obtain information is
+acceptable, but no longer.</p>
+<p>• Immoral: Torture is always wrong.</p></th>
+</tr>
+<tr class="odd">
+<th>Medium: Obtain information from a terrorist in 10 hours using
+effective torture methods, with an 80% success rate.</th>
+</tr>
+</thead>
+<tbody>
+</tbody>
+</table>
+<table>
+<colgroup>
+<col style="width: 19%" />
+<col style="width: 28%" />
+<col style="width: 52%" />
+</colgroup>
+<thead>
+<tr class="header">
+<th rowspan="2">Breaking stranger's window to save the dog</th>
+<th>End: Rescue the trapped dog from the car.</th>
+<th rowspan="2"><p>• Moral: Not saving a life is more damaging than
+entering a private space. Only necessary damage is justified, such as
+breaking the window to save the dog, but setting the whole car on fire
+is not correct.</p>
+<p>• Immoral: Damaging property of others is immoral.</p></th>
+</tr>
+<tr class="odd">
+<th>Medium: Break car window, enter private room.</th>
+</tr>
+</thead>
+<tbody>
+</tbody>
+</table>
+<table>
+<colgroup>
+<col style="width: 16%" />
+<col style="width: 12%" />
+<col style="width: 70%" />
+</colgroup>
+<thead>
+<tr class="header">
+<th rowspan="2">dishonesty in elections</th>
+<th>End: save lives</th>
+<th rowspan="2"><p>• Moral: All measures to gain power to help others
+are acceptable.</p>
+<p>• Immoral: The harm caused by systematic lying in elections outweighs
+any potential benefit of saving lives later.</p></th>
+</tr>
+<tr class="odd">
+<th>Medium: lies</th>
+</tr>
+</thead>
+<tbody>
+</tbody>
+</table>
+<table>
+<colgroup>
+<col style="width: 16%" />
+<col style="width: 28%" />
+<col style="width: 55%" />
+</colgroup>
+<thead>
+<tr class="header">
+<th rowspan="2">Atomic Freedom</th>
+<th>End: prevent a possible war and save millions</th>
+<th rowspan="2"><p>• Moral: If the majority of all people think it best,
+then using nuclear bombs against civilians is morally justified.</p>
+<p>• Immoral: The damage caused by nuclear war outweighs any potential
+benefit.</p></th>
+</tr>
+<tr class="odd">
+<th>Medium: Kill thousands of civilians with a nuclear bomb</th>
+</tr>
+</thead>
+<tbody>
+</tbody>
+</table>
+<table>
+<colgroup>
+<col style="width: 16%" />
+<col style="width: 44%" />
+<col style="width: 38%" />
+</colgroup>
+<thead>
+<tr class="header">
+<th rowspan="2">Professional skinny boxer</th>
+<th>End: entertainment</th>
+<th rowspan="2"><p>• Morally: if the passer-by agreed to it voluntarily,
+then it's his own fault.</p>
+<p>• Immoral: Putting people in a coma, even with their consent, is
+immoral.</p></th>
+</tr>
+<tr class="odd">
+<th>Medium: Approach a random passerby on the street and beat them into
+a coma after getting their consent to fight.</th>
+</tr>
+</thead>
+<tbody>
+</tbody>
+</table>
+<table>
+<colgroup>
+<col style="width: 10%" />
+<col style="width: 24%" />
+<col style="width: 65%" />
+</colgroup>
+<thead>
+<tr class="header">
+<th rowspan="2">High tech through slavery</th>
+<th>End: cure cancer, eliminate hunger</th>
+<th rowspan="2"><p>• Moral: When the majority, including people in
+impoverished regions of the Middle East, Africa, South America and South
+Asia who lack adequate infrastructure for luxury self-driving electric
+vehicles, willingly accept being exploited for the benefit of a few,
+then it becomes moral considered reasonable to do so.</p>
+<p>• Immoral: Due to the society decision in the app</p></th>
+</tr>
+<tr class="odd">
+<th>Medium: High-tech advancement based on exploitation and
+inequality.</th>
+</tr>
+</thead>
+<tbody>
+</tbody>
+</table>
+<table>
+<colgroup>
+<col style="width: 8%" />
+<col style="width: 29%" />
+<col style="width: 61%" />
+</colgroup>
+<thead>
+<tr class="header">
+<th rowspan="2">doner kebab terrorist</th>
+<th>End: Spreading democracy to other countries.</th>
+<th rowspan="2"><p>• Moral: Due to the society decision in the app</p>
+<p>• Immoral: Attacking another country to spread democracy, despite
+excessive social unity, is immoral, both for the attacking country and
+for its supporters, including the kebab seller.</p></th>
+</tr>
+<tr class="odd">
+<th>Medium: Start wars to change foreign governments.</th>
+</tr>
+</thead>
+<tbody>
+</tbody>
+</table>
+<table>
+<colgroup>
+<col style="width: 10%" />
+<col style="width: 51%" />
+<col style="width: 38%" />
+</colgroup>
+<thead>
+<tr class="header">
+<th rowspan="2">YouTube Interviews</th>
+<th>End: establish justice</th>
+<th rowspan="2"><p>• Moral: All measures to gain power to establish
+justice are acceptable.</p>
+<p>• Immoral: Prioritizing the least harmful behavior to solve a
+problem.</p></th>
+</tr>
+<tr class="odd">
+<th>Medium: Tackle diverse subjects, challenge unprepared people on the
+street with provocative questions, conduct polarizing casting interviews
+and debates, and edit videos as desired to achieve viral fame and money
+on platforms like YouTube, TikTok, and Instagram .</th>
+</tr>
+</thead>
+<tbody>
+</tbody>
+</table>
+<table>
+<colgroup>
+<col style="width: 7%" />
+<col style="width: 61%" />
+<col style="width: 31%" />
+</colgroup>
+<thead>
+<tr class="header">
+<th rowspan="2">contradiction</th>
+<th>End: Development of a voting app for equality</th>
+<th rowspan="2"><p>• Moral: the least harmful behavior to achieve
+equality.</p>
+<p>• Immoral: Due to the society decision in the app</p></th>
+</tr>
+<tr class="odd">
+<th>Medium: Print out this content and distribute it to people on the
+street, or reach a wider audience by going viral with controversial
+YouTube videos, or employing tactics to make it a bestseller as a book
+on platforms like Amazon.</th>
+</tr>
+</thead>
+<tbody>
+</tbody>
+</table>
+<table>
+<colgroup>
+<col style="width: 10%" />
+<col style="width: 31%" />
+<col style="width: 57%" />
+</colgroup>
+<thead>
+<tr class="header">
+<th rowspan="2">Social Media Activism</th>
+<th>End: establish justice</th>
+<th rowspan="2"><p>• Moral: Social media is the least harmful behavior
+to achieve equality.</p>
+<p>• Immoral: There are enough less harmful ways to fight inequality
+than social media activism, debate, polarization and supporting
+companies like Google and YouTube that impose sanctions on impoverished
+countries. (192)</p></th>
+</tr>
+<tr class="odd">
+<th>Medium: Creating content on social media, achieving online success
+by honing conversational skills, applying sophistication and improving
+cognitive skills.</th>
+</tr>
+</thead>
+<tbody>
+</tbody>
+</table>
+<table>
+<colgroup>
+<col style="width: 10%" />
+<col style="width: 51%" />
+<col style="width: 38%" />
+</colgroup>
+<thead>
+<tr class="header">
+<th rowspan="2">Aim higher through TikTok</th>
+<th>End: minimize inequality.</th>
+<th rowspan="2"><p>• Moral: The least harmful behavior to achieve
+equality.</p>
+<p>• Immoral: There are enough less harmful ways to fight
+inequality</p></th>
+</tr>
+<tr class="odd">
+<th>Medium: write a book about justice and promote it and make it a
+bestseller on platforms like Spotify, YouTube, Instagram, Amazon,
+Twitter, TikTok and TV, and even use marketing tricks like the Matthew
+Effect (141)</th>
+</tr>
+</thead>
+<tbody>
+</tbody>
+</table>
 
 7.	Why do ideological groups like IRGC Quds, ISIS and Al-Qaeda superior to modern armies?
 Determination and ideological motivation, strong values and flexible structures define such groups and contrast with the contradictory morals of hierarchical modern armies.
@@ -291,34 +583,97 @@ examples
  
 
 5. Election example in a village with 100 inhabitants:
-User 76: Is tree planting necessary to counteract the drought in the village?
-↓
-Yes (63%) 		No (37%)	 
-→User 4: Study confirms nature's role in mental health and benefits children. (20 votes)
-→User 74: tree planting: cost €30, investment in water system €100/month (shared by 100 people). Rather support the forest. (20 votes)
- 
-→User 22: Birds thrive in tree-rich environments. (12 votes)
-→User 12: Tree planting is expensive and our current number of trees is sufficient. (17 votes) 
-Result: 63% voted in favor
- 
-
-Which company?
-
-→ User 14: Affordable tree planting by Company XXX at €20 per tree.
-→User 20: Green Companies YYY charges €30 per tree, avoiding cars
-→ + Offer your recommendations
-→ Cancel voting, company could not be found.
-→ Time extension to find other companies
-
- 
-Result: Company XXX selected. Order created and shipped automatically.
- 
-Week 1: Company XXX has completed 25% of the work and is claiming 25% of the payment. Pictures and videos are available.
-•	Accept? / Reject?
-Week 2: Company XXX is 100% complete.
-•	Accept? / Reject?
-After each acceptance, €10 is automatically sent to Company XXX 
-The system needs further development, but can be more effective than even low-corruption countries such as Germany, the Netherlands, Norway and Sweden, where corruption can occur in both large and smaller projects such as airports.
+<p>User 76: Is tree planting necessary to counteract the drought in the
+village?</p>
+<table>
+<colgroup>
+<col style="width: 50%" />
+<col style="width: 50%" />
+</colgroup>
+<thead>
+<tr class="header">
+<th><strong>Yes (63%)</strong></th>
+<th><strong>No (37%)</strong></th>
+</tr>
+</thead>
+<tbody>
+<tr class="odd">
+<td>→User 4: Study confirms nature's role in mental health and benefits
+children. (20 votes)</td>
+<td>→User 74: tree planting: cost €30, investment in water system
+€100/month (shared by 100 people). Rather support the forest. (20
+votes)</td>
+</tr>
+<tr class="even">
+<td>→User 22: Birds thrive in tree-rich environments. (12 votes)</td>
+<td>→User 12: Tree planting is expensive and our current number of trees
+is sufficient. (17 votes)</td>
+</tr>
+</tbody>
+</table>
+<p>Result: 63% voted in favor</p>
+<table>
+<colgroup>
+<col style="width: 22%" />
+<col style="width: 77%" />
+</colgroup>
+<thead>
+<tr class="header">
+<th></th>
+<th>→ User 14: Affordable tree planting by Company XXX at €20 per
+tree.</th>
+</tr>
+</thead>
+<tbody>
+<tr class="odd">
+<td></td>
+<td>→User 20: Green Companies YYY charges €30 per tree, avoiding
+cars</td>
+</tr>
+<tr class="even">
+<td>Which company?</td>
+<td>→ + Offer your recommendations</td>
+</tr>
+<tr class="odd">
+<td></td>
+<td>→ Cancel voting, company could not be found.</td>
+</tr>
+<tr class="even">
+<td></td>
+<td>→ Time extension to find other companies</td>
+</tr>
+</tbody>
+</table>
+<p>Result: Company XXX selected. Order created and shipped
+automatically.</p>
+<table>
+<colgroup>
+<col style="width: 50%" />
+<col style="width: 50%" />
+</colgroup>
+<thead>
+<tr class="header">
+<th>Week 1: Company XXX has completed 25% of the work and is claiming
+25% of the payment. Pictures and videos are available.</th>
+<th>Week 2: Company XXX is 100% complete.</th>
+</tr>
+</thead>
+<tbody>
+<tr class="odd">
+<td><ul>
+<li><p>Accept? / Reject?</p></li>
+</ul></td>
+<td><ul>
+<li><p>Accept? / Reject?</p></li>
+</ul></td>
+</tr>
+</tbody>
+</table>
+<p>After each acceptance, €10 is automatically sent to Company XXX</p>
+<p>The system needs further development, but can be more effective than
+even low-corruption countries such as Germany, the Netherlands, Norway
+and Sweden, where corruption can occur in both large and smaller
+projects such as airports.</p>
  
 16.	Is there a way to have a non-psychopathic economy without turning to communism?
  
