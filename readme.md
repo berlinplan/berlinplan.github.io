@@ -613,38 +613,52 @@ Labor and skilled labor shortages in industrialized countries with an aging popu
 13.4	Why are violent convulsions the only solution to reduce international inequality?
 
 Studies of the global history of inequality suggest that peaceful means have never been effective in reducing it. Examples include the use of violent tactics such as carpet bombing, atomic bombs, slave rebellions and wars that have reduced social inequality. French colonization in Haiti ended after the Haitian slave rebellion, which led to the Haitian massacre. Likewise, the end of slavery in the United States was driven by slave rebellions and economic factors. The Second World War also contributed to a significant reduction in income and wealth inequality in many countries. (23,24,25 26).
+
 13.5	Can economic sanctions, brain drain, youth migration and inequality prompt a country to resort to violent measures?
+
 If everything becomes flat, how can the world and the environment be exploited on a large scale? Could Iran's uranium enrichment to build multiple nuclear weapons or North Korea's 100-kiloton nuclear bomb potentially lead to an end to sanctions and equality? (30,209)
  
 14.	Is the freedom to use a nuclear bomb acceptable?
+
 Over the years, the Iranians have always shown their strong support for their country's nuclear program. Support was 85% in 2006 and 71% in 2010. A 2013 Gallup poll found that despite sanctions, 84% of Iranians said they wanted nuclear weapons. A 2013 Zogby poll also found that a majority (84.5%) opposed ending uranium enrichment and ballistic missile testing (83.4%). Responsibility for the sanctions varied between respondents: 46% blamed the US, 13% blamed the Iranian government and 12% pointed it out to the UN and EU, while 16% were unsure. (155, 156, 157, 158, 159, 160, 161, 163, 165).
 
-
 14.1	Why would leaders in psychopathic regimes never use a nuclear bomb, but marginalized groups outside the psychopathic power might?
+
 Experts warn that advances like 3D printing are making it easier for small groups to covertly create weapons of mass destruction. Meanwhile, those in power now would be less likely to use it. Contrary to misconceptions, psychopaths are fully aware of the consequences of their actions; You are not crazy. In 2013, Iran's religious supreme leader issued an irrevocable fatwa outlawing the development and use of nuclear weapons under Islamic law. Since then, Mahmoud Ahmadinejad, a strong supporter of Iran's nuclear program, has been banned from all Iranian elections. (154, 162, 163, 164, 178, 195, 216).
  
 15.	Can an election app solve the 2,500-year-old problem of psychopathy in democracy?
+
 New smartphones offer advanced verification methods like fingerprint and face scanning for tasks like online banking, enabling secure transactions of large amounts of money. (72) Because of the challenge of identifying psychopaths in a society, non-hierarchical systems could be put in place. As the saying goes: "He who dines with the devil needs a long spoon" (69, 70).
  
 15.1	Can an app replace politicians, MPs, presidents, governors, and other coveted positions that attract psychopaths?
+
 Presidential responsibilities include drafting treaties, vetoing and signing bills, representing the nation in foreign negotiations, enforcing laws, proposing new laws, leading a political party, entertaining foreign guests, serving the Recognition of foreign countries and the granting of pardons. Parliamentarians make laws and oversee the work of the government. (66.67)
+
 15.2	Is a gradual reduction and replacement of the existing psychopathic structure possible?
+
 Breaking down hierarchies is key to reducing inequality. Can a smartphone app be the right platform to address important issues, or should smartphones primarily focus on social media?
+
 Current democracies can phase in an antipsychopathy app without requiring revolutionary change. A beta or pilot project can be tested in a village of 100 people.
  
 15.3	Why is it better to keep your own money than let psychopaths do it?
+
 An interactive voting app can include a dedicated comment section that presents both the pros and cons and allows users to vote for their preferred arguments.
 examples
  
 1. Should a monthly payment be mandatory for ARD and ZDF?
+
 2. Should taxpayers' money be prioritized for police protection of vulnerable groups such as women and the elderly, rather than protecting capital and tackling impoverished renters and arresting Amazon debtors?
+
 3. Should sanctions be imposed on Russia, Saudi Arabia, the US or China for human rights violations?
+
 4. Who should be taxed more?
+
 • Firefighter, nursing assistant or teacher?
+
 • YouTubers, Instagrammers, TikTokers or porn actors?
  
-
 5. Election example in a village with 100 inhabitants:
+
 <p>User 76: Is tree planting necessary to counteract the drought in the
 village?</p>
 <table>
@@ -740,40 +754,54 @@ projects such as airports.</p>
 16.	Is there a way to have a non-psychopathic economy without turning to communism?
  
 Can equal treatment of employees in a company affect quality, work ethics, effectiveness and efficient use of resources?
+
 Although communism never worked, the most social system in the world (Germany) has the highest quality of industry and production.
+
 If millionaires were taxed appropriately for all the harm they caused (environment, inequality, brain drain, forced migration, travel, and ad-supported consumption), would anyone still be able to own empires like Microsoft, Tesla, and Amazon?
  
 16.1	Why is it necessary to include an economic sector in the election app?
  
 Incentivizing individuals with a percentage of losses and wins rather than fixed salaries increases motivation. For example, each person receives a base amount of 2% (~€2000) per month, but can earn additional shares through exceptional performance, requests or online votes.
+
 Non-hierarchical corporations that are more sustainable to the world and the environment can be favored by society through lower taxes determined by voting.
+
 The acceptance of selfishness, self-interest and higher earnings promotes more competition, productivity and sustainability.
  
 16.2	How does selfishness lead to equality?
  
 Egoists who are looking for maximum joie de vivre:
  
-• 	to enable themselves to lead fulfilling lives, strive for equality in the workplace and fairness to the world and the environment.
-• 	prioritize equality as a means to ensure long-term security and cleanliness in societies, thus preventing revolution and theft.
+• 	strive for equality in the workplace and fairness to the world and the environment, to have the best life.
+
+• 	prioritize equality as a means to ensure long-term security and cleanliness in societies, thus preventing revolutions, Chaos and theft.
 
 • 	Defying global inequality due to the potential threat of nuclear attack.
-• 		uphold sustainable values, abstain from harmful substances and behaviors, and promote stable family units. This reduces dependency on imported labor, mitigates inequality, prevents social unrest and slows the emergence of psychopathic multiculturalism and parallel societies. 
- 
 
+• 	uphold sustainable values, abstain from harmful substances and behaviors, and promote stable family units. This reduces dependency on imported labor, mitigates inequality, prevents social unrest and slows the emergence of psychopathic multiculturalism and parallel societies. 
+ 
 17.	How to stop the Islamization of Europe?
+
 Mohammed was the most popular name for boys in Berlin in 2022 (225). Sweden could have a Muslim population of 31% by 2050, Germany could have 20% and in big cities like Berlin, Düsseldorf or Cologne this could rise to 60%. It is possible that the concept of Islamic Sharia could become more important as an expression of Berlin's growing Muslim population. This growth of Islam is not limited to Europe, as it is currently the fastest growing religion in India, the US, China and sub-Saharan Africa (127, 128, 129, 130).
+
 17.1	How have big states tried to stifle the growth of Islam?
  
 • 	China: hormone therapy on Muslims (genocide on the Chinese Uyghurs)
+
 • 	India: Anti-Muslim Laws. New Citizenship Act, Disturbed Areas Act. ghettoize Muslims.
+
 • 	USA: Muslim ban .
+
 • 	The European Court of Justice has allowed bans on religious dress in countries such as Austria, Belgium and France where hijab and niqab are banned (131,132,133,134,135).
  
 
 17.2	Why is Islam the fastest growing religion in the world?
+
 The growing number of Muslims is mainly due to higher birth rates in Muslim families, not new converts to Islam (136)
+
 17.3	What role do stable marriages and families play in combating the spread of Islam?
+
 The values and civilization of society depend on the fundamental role of the family (123,124)
+
 Some statistics on divorce rates:
  
 • 	Early sexual activity and multiple partners increase the risk of unstable marriages.
