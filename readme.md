@@ -71,21 +71,30 @@ Pablo Escobar, a Colombian drug lord and leader of the Medellín cartel, which c
 Opium has legitimate medicinal uses. (208)
  
 5.	Social media not completely harmful, users' own fault, convincing argument?
+
 5.1	Is it acceptable for influencers and pornography creators to claim that individuals are responsible for their addiction and should be aware of what they consume, despite the documented impact of social media such as mental health issues, cyberbullying, misinformation, negative behavior, impaired social interactions, decreased productivity, polarization, impact on self-image and exposure to inappropriate content, and privacy concerns? (207)
  
 5.2	Is it fair that a social media star earns up to 300 times more than a nursing assistant who earns around 1500 euros a month? (1,4,5)
+
 Activities on platforms like OnlyFans have been shown to have negative impacts such as societal harm, mental health impairments and rising divorce rates. Nonetheless, top earners can make enormous sums of money in a short period of time on these platforms, leading to significant income differentials compared to average workers, including caregivers who help people reach their physical, psychological and social potential. (2,3,4,5,6,7,28,29).
 
 5.3	Does drug trafficking offer self-empowerment, emancipation and financial independence to disadvantaged social groups?
+
 “The cultural scientist and feminist Madita Oeming sees OnlyFans as a new opportunity for self-empowerment. Women and men on OnlyFans are independent from studios or producers and have full control over their content and prices. There is also emancipatory potential in profit. "Earning that much money yourself can also save you from financial dependency and toxic relationships" (9).
 Porn addiction affects a significant percentage of adults, particularly young men and women who regularly consume pornography. Taking collective responsibility is crucial in tackling this societal problem. (35, 36).
  
 6.	Are all doner kebab sellers terrorists?
+
 Kebab Terror: Who can be held accountable when a person's family tragically lose their life in xxxistan at the hands of a military power? Should it be the bomb, the pilot, the plane, the semiconductor maker, the tool maker for that semiconductor, or even the kebab vendor who fed the workers at the tool company?
+
 6.1	Is it possible to act morally without having defined values?
+
 Morality: standards of behavior; principles of right and wrong. (190)
+
 The lack of clear values hampers moral action, enables corruption and undermines societal morality in psychopathic democracies. (122)
+
 6.2	Are the current rules enough to judge the morality of a trade?
+
 While some people rely on religious leaders for moral guidance, others follow Kant's Golden Rule, or consequentialist principles, which define the ethics of a
 Judge action based on favorable outcomes. However, religious and political psychopaths often justify their actions with claims of positive outcomes, revealing the lack of a universal definition of morality.
  
