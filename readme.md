@@ -503,13 +503,17 @@ By uniting Buddhist societies in Asia and South America under a common value sys
 10.	Cultural inspiration or multicultural fraud?
 
 Comparison is part of human cognition and can promote personal growth (185). When a society excels, its positive values can inspire and influence other societies. Cultural influences between Asia and the West were diverse, with notable contributions such as the mathematical zero and the binary code (226).
+
 10.1	How did cultural inspiration come about in the past?
+
 Western influences had a significant impact on Eastern culture, shaping aspects such as food, fashion, lifestyle, and governance (227). Ataturk, Tsar Peter I, Iranian Reza Shah, and Japan have all experienced varying degrees of Westernization and modernization (182, 181, 183, 184).
  
-11.	Multicult i: a tolerant and open-minded society or polarized parallel societies?
+11.	Multiculti: a tolerant and open-minded society or polarized parallel societies?
  
 • Multiculturalism is often seen as a means of promoting cultural exchange, tolerance, openness and new ideas. However, studies suggest that this leads to social tensions, cultural clashes, polarization, marginalization and language problems.
+
 • bcm (bounded confidence model) describes consensus-like opinion dynamics in which agents only interact if their opinions are sufficiently similar. (110, 111)
+
 • The free exchange of information, social media and debates can contribute to group polarization. (112,113)
  
 • People with similar views tend to follow, share and comment on each other's posts. Discussing racial attitudes with people who hold similar attitudes can significantly widen the gap between high and low prejudice groups. This interaction between extremists can further widen the divide and contribute to the formation of parallel societies. (114,115,116)
@@ -517,66 +521,97 @@ Western influences had a significant impact on Eastern culture, shaping aspects 
 11.1	Why does cultural dialogue often lead to tribalism?
  
 • The exchange of ideas and debates can lead to increased polarization.
+
 • The decline in the percentage of people befriending or marrying people with different political views reflects how social media has contributed to polarization.
  
 • Strong religious beliefs or the practice of religious customs are not necessarily indicative of extremism. However, studies suggest that support for terrorism in Muslim-majority countries is related to mosque attendance rather than frequency of individual prayers or compliance with food bans. Similar patterns can be seen among far-right Jewish extremists in Israel.
+
 • Nationalism and tolerance of autocratic leaders are increasing around the world, possibly in response to globalization. Research suggests that when the rich do not interact with the poor or when the poor have limited contact with the middle class, the well-being of all is adversely affected. (211,212,213)
  
 11.2	Can multiculturalism contribute to international inequality?
  
 • Multiculturalism is essential to the survival of psychopathic economies and brings tremendous economic benefits.
+
 • Germany is the biggest winner. According to Brücker in 2013, without immigration, the potential labor force in Germany would drop by around 40% by 2050. (117)
  
 11.3	Do the countries of origin of the migrants also benefit?
  
 • Immigration can lead to a drop in the average IQ in the countries of origin. Studies have shown that Scotland, for example, has the lowest average IQ in the UK and compares poorly to most European countries. (119)
+
 • Over 80% of intelligent third world students migrate to developed countries, research shows. (121)
+
 • A survey conducted by a Job Vision Center found that 77% of third world workers are willing to migrate. (120)
+
 • International organizations estimate that each young migrant of early working age costs his country of origin US$120,000. (118)
  
 11.4	Is multiculturalism a consequence of psychopathic economics?
  
 • Would individuals still seek refuge if the economic differences between the third world and the industrialized world were eliminated?
+
 • Despite its potential for polarization and inequality, psychopathic economies often benefit from multiculturalism.
  
 11.5	Has the integration of migrants failed?
+
 Sweden: "Integration of migrants has failed" (166)
+
 Integration: the act of unification into an integral whole (167)
+
 Combine: implies some amalgamation or mingling with consequent loss of identity of each entity (168)
+
 People from poor countries migrate to developed nations where their high-tech products are more likely to be used, particularly by the US Army, which often operates in the migrants' countries of origin. Although migrants resist accepting the values of people from psychopathic systems that have led to the erosion of their own population, culture and values, they are already fully integrated into the psychopathic system as they live and work in a system that perpetuates inequality (Psychopathegration). (179,180,186)
-11.6	Why does business favor psychopathically integrated populations over organic ones?
+
+11.6	Why does Economic favor psychopathically integrated populations over organic ones?
+
 Migrants' diminished affinity with their original values increases their susceptibility to psychopathic integration.
-Even psychopathically integrated populations, like sociopaths, have learned their behavior and are created through life experiences. they are able to feel emotions, but usually cannot control them. Psychopaths, on the other hand, are born and suffer from a genetic effect (50,51)
+
+Psychopathically integrated populations, like sociopaths, have learned their behavior and are created through life experiences. they are able to feel emotions, but usually cannot control them. Psychopaths, on the other hand, are born and suffer from a genetic effect (50,51)
+
 Indian, Pakistani and Asian populations in the UK surprised London by voting in favor of Brexit, suggesting greater Euroscepticism within these communities than previously thought. (197)
+
 Iranian migrants have organized protests outside of Iran, demanding tougher sanctions against their homeland. (221)
  
-12.	Why does democracy always end in nuclear war?	 
+12.	Why does democracy always end in nuclear war?
+
 • Although democracy is considered to be the best political system, it also has disadvantages: divisive debates, corruption, lack of protection for the common man, divide-and-conquer tactics, unfair business practices, craving for power, media abuse and rising inequality. Power dynamics in social hierarchies affect empathy, with higher-status individuals showing less accuracy in empathizing with lower-status individuals. (63, 138, 220, 65).
+
 • 	Psychopathy is a severe personality disorder characterized by antisocial behavior, insidiousness, irresponsibility, and a lack of empathy. In order not to turn democracy into a pathocracy, it is crucial to prevent psychopaths from gaining power, as there are no limits to their rise to the top. (64, 68, 79, 80, 172).
  
 • 	Political and economic systems provide an ideal environment for psychopaths to thrive. Approximately 1% of the general population, including 15% of prisoners, 21% of CEOs and many US Presidents, exhibit psychopathic traits. Aristotle warned over two millennia ago about the vulnerability of democracies to fostering psychopaths. In the last fifty years, psychopaths have gained significant control over every branch of government. (44, 45, 46, 47, 49, 173, 175)
+
 • 	Many successful psychopaths hold leadership positions in large corporations and in politics, allowing them to take advantage of democratic organizations. Late bill payments can have serious financial consequences for individuals, including late payment interest, credit damage and even imprisonment. On the contrary, companies that often find ways to avoid taxes have legal departments that deal with lawsuits. (73, 74, 75, 76, 77, 177).
  
 • 	If someone is unable to pay their rent, how would the modern executive, legislature and judiciary, responsible for creating billionaires and funded by taxpayers, deal with this situation?
+
 • 	The New York Times claimed Donald Trump was a millionaire by the age of eight. This has never happened in all of human history, as considerable wealth has always come with its own problems and insecurities. (210)
  
 • 	Suppose someone inherits 3,000 apartments. Current psychopathic system, helps her expand her housing stock to 6,000 units. Then she passes it on to her child, who increases it to 10,000 units.
+
 • 	Preventing psychopaths from gaining power is a challenge as there is no reliable test to identify a psychopath (82).
  
 13.	How do your Instagram likes lead to nuclear war?
+
 Why are psychopathic systems, consumer culture and social media leading to nuclear catastrophe?
  
 13.1	40% of the new generation would rather have an influencer than a doctor, why?
+
 Why should young people prefer lower-paid jobs like nursing assistants to jobs like influencers, YouTubers or gamers where you have the potential to make a lot of money? Today's young generation mostly aspires to become a social media influencer; 86% in the US and 40% in the UK choose this career path. Does this contribute to the shortage of almost two million workers in Germany? (37,38,39)
-13.2	What are the benefits of social media influencers worth millions to society?
+
+13.2	What are the benefits of social media millioner influencers to society?
+
 Cristiano Ronaldo (496M followers) Lionel Messi (373M followers) Kylie Jenner (372M followers) Selena Gomez (356M followers) Kim Kardashian (333M followers) Khloé Kardashian (279M followers) ( 40th ) or in Germany bibisbeautypalace, Julienco, Lisa and Lena Mantler, Montana Black, Pia Wurzbach, Pamela Reif, Dagibee, Youneszarou
+
 • Instagram sexualizes society.
+
 • Instagram is used by children.
+
 • Early sexual activity leads to unstable relationships and marriages in adulthood, leading to lower birth rates and an aging population. (10, 11, 12, 13, 14).
 
 13.3	How do an aging population and labor shortages contribute to international inequality and exploitation?
+
 Labor and skilled labor shortages in industrialized countries with an aging population can lead to economic collapse in third-world countries from which migrants originate. This situation leads to economic disadvantages, the loss of qualified professionals (especially in the health sector) and social problems for children who are left behind or do not grow up in large families. Remittances and money transfers can be blocked or subject to UN sanctions, while poor countries often have negative trade balances with developed countries. Negative trade balances contribute to unemployment and capital outflow. Exploitation, as defined by Marxist theories, involves the inappropriate use of labor and resources, particularly the appropriation of another's labor power, and contributes to greater international inequality (15,16,17,18,19,20,21,22).
+
 13.4	Why are violent convulsions the only solution to reduce international inequality?
+
 Studies of the global history of inequality suggest that peaceful means have never been effective in reducing it. Examples include the use of violent tactics such as carpet bombing, atomic bombs, slave rebellions and wars that have reduced social inequality. French colonization in Haiti ended after the Haitian slave rebellion, which led to the Haitian massacre. Likewise, the end of slavery in the United States was driven by slave rebellions and economic factors. The Second World War also contributed to a significant reduction in income and wealth inequality in many countries. (23,24,25 26).
 13.5	Can economic sanctions, brain drain, youth migration and inequality prompt a country to resort to violent measures?
 If everything becomes flat, how can the world and the environment be exploited on a large scale? Could Iran's uranium enrichment to build multiple nuclear weapons or North Korea's 100-kiloton nuclear bomb potentially lead to an end to sanctions and equality? (30,209)
