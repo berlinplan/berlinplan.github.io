@@ -65,7 +65,9 @@ In most societies, drug dealers are outlawed by law, as drug abuse can lead to a
 4.1	Is it moral to make money through drug trafficking for charity?
 
 Pablo Escobar, a Colombian drug lord and leader of the Medellín cartel, which controlled up to 80% of international cocaine, supported the community by building schools, sports fields, donating significant sums of money to charity, and constructing homes (187).
+
 4.2	Is it legitimate that some drug dealers claim that addiction is self-inflicted because the right medication and dosage can cure certain diseases?
+
 Opium has legitimate medicinal uses. (208)
  
 5.	Social media not completely harmful, users' own fault, convincing argument?
