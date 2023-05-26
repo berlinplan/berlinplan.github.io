@@ -805,110 +805,184 @@ The values and civilization of society depend on the fundamental role of the fam
 Some statistics on divorce rates:
  
 • 	Early sexual activity and multiple partners increase the risk of unstable marriages.
+
 • 	Women who lost their virginity in their teens are more than twice as likely to divorce within the first five years of marriage than women who have waited.
+
 • 	Women with six or more premarital sex partners are almost three times less likely to be in a stable marriage.
+
 • 	Women who live in multiple relationships are 40% more likely to divorce than women who don't.
+
 • 	When mothers work while husbands contribute minimally to household chores and childcare, the risk of divorce almost doubles.
+
 • 	Facebook contributes to one-third of divorce cases studied, while addiction to pornography is a factor in 56% of divorces.
+
 • 	Happily married parents reduce the risk of divorce by 14%, while divorced and remarried parents increase it by 91%.
+
 • 	Children of divorce are more likely to marry someone who has also been divorced.
+
 • 	Approximately 50% of marriages in the US end in divorce or separation. Currently, 15% of adult women in the US are divorced or living apart, compared to less than 1% in 1920.
+
 • 	The average length of a first marriage ending in divorce is 8 years and for second marriages 7 years.
+
 • 	If both partners have been married before, the likelihood of divorce is 90% higher.
+
 • 	A strong religious belief reduces the risk of divorce by 14%.
+
 • 	School dropouts have a 13% higher risk of divorce, while college dropouts have a 13% lower risk.
+
 • 	People with a “below average” IQ are 50% more likely to get divorced.
+
 • 	Meeting your spouse in high school, college or grad school reduces the likelihood of divorce by 41%, while meeting in bars increases it by 24%.
-• 	The divorce rate for couples with children is up to 40% lower than for couples without children. The birth
-Having a child before marriage increases the risk of divorce by 24%.
-• 	Couples where only one smoker is 76-95% more likely to divorce, and even couples where both smokers are 53% more likely to divorce than non-smoker couples.
+
+• 	The divorce rate for couples with children is up to 40% lower than for couples without children. 
+
+•   Having a child before marriage increases the risk of divorce by 24%.
+
+•   Couples where only one smoker is 76-95% more likely to divorce, and even couples where both smokers are 53% more likely to divorce than non-smoker couples.
+
 • 	Every liter of alcohol consumed increases the risk of divorce by 20%.
+
 • 	Video game addiction is cited as a major factor in nearly 15% of divorce filings.
+
 • 	Being a friend with someone who is divorcing increases the likelihood of divorce by 147% and having a divorced sibling increases the likelihood by 22%.
+
 • 	Working with someone who is in the process of divorcing increases a married person's likelihood of divorce by 75%.
+
 • 	Professions with the highest rates of divorce: celebrities (67%), dancers (43%), bartenders (39%), massage therapists (38%), gaming cage workers (35%), and gaming service workers (32%)
-• 		Professions with the lowest divorce rates: farmers, clergy, veterans and agricultural engineers. In these professions, the divorce rates are between 1% and 7%.
+
+• 	Professions with the lowest divorce rates: farmers, clergy, veterans and agricultural engineers. In these professions, the divorce rates are between 1% and 7%.
  
 17.4	Do stable family values align with religious values? (137)
+
 Could acceptance of Islamic/religious values be an effective means of countering the spread of Islam gaining influence around the world?
+
 Values are defined by individuals in the voting app, similar to religion but without institution and corruption.
 
-
 17.5	Does "religion" offer the most sustainable freedom?
+
 Studies show that respecting and defining certain factors leads to stable relationships, leading to sustainability and equality.
+
 Similar to religious values, monogamy is the most enduring and stable form of relationship for individuals and families.
+
 In the face of aging populations and problems with societal values, is promoting stable families the most effective way to promote global equality and resilience?
  
 18.	Sexual Freedom and Open Relationships: Freedom?
+
 If a freedom harms others, is it sustainable?
+
 18.1	Which criteria are decisive for starting a stable family? (red flags)
+
 Warning Signs of Stable Relationships: When someone
  
 • Had 	multiple partners before marriage or was sexually active in their teens.
-• 	Uses alcohol, drugs or tobacco.
-• 	Deals with pornography, social media and gambling addiction.
+
+• Uses alcohol, drugs or tobacco.
+
+• Deals with pornography, social media and gambling addiction.
+
 • Has 	many friends or family members who are divorced or not in a committed relationship.
-• 	Engages in jobs that involve the body, entertainment, and appearance.
+
+• Engages in jobs that involve the body, entertainment, and appearance.
+
 • Looking for 	partners in bars and clubs as well as dating apps . (~40%) (126)
-• 	Approaches strangers on the street with sexual intent . (missing inhibitions)
+
+• Approaches strangers on the street with sexual intent . (missing inhibitions)
  
 19.	Do women prefer polygynous societies?
+
 The argument for women's freedom of choice in polygyny assumes that in polygynous societies they would have autonomy to choose their mates. Furthermore, it is assumed that the rights, position and freedoms of women in traditions of monogamy are not restricted by the institution itself. (147)
+
 19.1	Do Dating Apps Empower or Disempower Women?
+
 Online dating apps claim to empower women and promote sexual equality. (150)
+
 19.2	How do psychopathic dating platforms contribute to international inequality?
+
 Online dating has been linked to an increase in sexual activity. Repetitive sexual activity leads to higher turnover rates in sexual partners, which can lower birth rates and lead to an aging population. (13,14,61,62)
+
 Psychopaths tend to thrive in online dating environments as they engage in promiscuous sexual behavior and short-term marital relationships. (59)
+
 19.3	How do dating apps contribute to open relationships and polygyny?
+
 Dating apps are growing in popularity, attracting millions of users. They allow the top 5% of men to connect with 95% of women, leading to more sexual activity and an increase in open relationships. This, in turn, often leads to polygyny, where men show renewed sexual interest as they meet new women. Unlike women, men are influenced by the Coolidge effect and seek variety in short-term partners. Research studies and experiments, including a Tinder-style study, have consistently shown that men have a higher preference for multiple sexual partners compared to women. (55,56,62,146,149,151,152)
+
 19.4	How does polygyny affect men, women and children in society?
+
 Polygynous societies result in lower status and freedom for women, more violence and abuse, and poorer mental and physical health. Children in polygynous families also have more problems and a higher mortality rate. Polygyny creates an imbalance in the number of unmarried men and women, leading to intense competition between men for mates and encouraging men's control over their female family members. Unmarried men are more likely to commit crime than married men, and polygynous husbands have more extramarital affairs than monogamous husbands. In addition, competition for wives is increasing in societies where women and children are important workers, leading to a larger number of unmarried men.
+
 19.5	Do competitions on psychopathic platforms add value and encourage improvement?
+
 Various platforms that encourage psychopathic behavior, such as cosmetic surgery, dating apps, pickup and alpha masculinity trainers, hook-up and ghost culture, style coaches, and online dating profile designers are growing in popularity. (58, 57, 60)
+
 19.6	How can man spend his free time without psychopathic entertainment?
-• 	Make time with family, enjoy outdoor activities, creative hobbies, play games, read, and volunteer. Avoid sexualized content on platforms like TikTok and Instagram.
+
+• Make time with family, enjoy outdoor activities, creative hobbies, play games, read, and volunteer. Avoid sexualized content on platforms like TikTok and Instagram.
+
 • Contribute 	to environmental sustainability by repairing past damage and supporting local food production rather than relying on distant imports.
  
 20.	What defined the pre-religious barbarian era?
+
 Common behaviors during this period included living in clans, following minor prophets and gods, showing pride and boasting, practicing polygyny, gambling and drinking alcohol, adopting superstitions, engaging in various sexual activities, the Seeking personal gain and practicing usury. Bloody fights were common, and physical characteristics such as muscles, height, and testosterone levels in males and physical characteristics such as breast and hip size in females played important roles in attraction. (188)
+
 21.	Modern Psychopathic Barbarism: Barbaropathy?
  
 • 	Berlin is home to different clans: Lebanese Shiites, Lebanese Sunnis, Turks, Afghans, hipsters, conservatives and Moroccans.
-• 		Attraction factors: muscles, bodybuilding, testosterone injections for men; Cosmetic procedures, big breasts, social media presence for women.
-• 		Online clans: Facebook groups, fan communities, YouTube algorithms that result in continuous recommendations on similar topics.
+
+• 	Attraction factors: muscles, bodybuilding, testosterone injections for men; Cosmetic procedures, big breasts, social media presence for women.
+
+• 	Online clans: Facebook groups, fan communities, YouTube algorithms that result in continuous recommendations on similar topics.
+
 • 	Influencers and Followers: New Age Prophets?
+
 • 	Pride and boasting: Reinforced on social media.
-• 	Marital dynamics: polygamy, polygyny, catch-up strategies, masculinity/femininity coaches, red/black/yellow pill ideologies.
+
+• 	Marital dynamics: polygamy, polygyny, pick up strategies, hookup culture, masculinity/femininity coaches, red/black/yellow pill ideologies.
+
 • 	Gambling: smartphone apps, online casinos, Coin Master.
-• 	Superstitions: Energy spirituality on social media.
+
+• 	Superstitions: Energy and spirituality on social media.
+
 • 	Sexual activity: Bumble, Hinge, Tinder lead to open relationships and hypergynia.
+
 • 	Greed and usury: crypto trading, forex, passive income, real estate investments. (189)
  
 22.	Would psychopathic solutions eliminate the inequality created by the psychopathic system?
  
 Under Boris Palmer's proposal, asylum seekers should be required to work, welfare benefits abolished and non-compliant individuals deported (196).
+
 Other psychopathic solutions could include erecting extensive walls beyond Germany/EU borders and imposing sanctions on marginalized societies to prevent atomic bomb production.
  
 23.	"Homo homini lupus" - One man is a wolf to another, but not always?
  
 There have been 70 generations in the last 2000 years, but 33,000 future generations will have to deal with nuclear waste. Is it moral to harm 33,000 generations at once?
+
 Due to high morale, concern after the Fukushima accident, or heightened awareness, Germany has shut down its nuclear power plants, although other countries continue to invest in this technology.
+
 The decision to shut down nuclear power plants in Germany has resulted in significant costs, power shortages and economic losses for the population. (201,202, 203, 204,205,206)
  
-24.	Wait for psychopaths to develop a nonprofit app, or take action themselves?
+24.	Wait for psychopaths to develop a nonprofit app, or take action ourself?
+
 An ownerless, non-profit group, free from hierarchies and sociopathic behavior, can develop development strategies for an ownerless voting app.
+
 -	You can send an email if you also think that:
+
 Bill Gates, Google or any government will not and should not create this platform; it's up to the people.
-For 150 volunteers, participation instructions will be emailed. Your contribution to the selection of the first group platform (e.g. WhatsApp, Telegram) is appreciated.
+
+-	Founding a group in which we jointly consider how to found such a platform?
+
+Email: jmehr88@gmail.com
+
+After 150 volunteers, participation instructions will be emailed. Your contribution to the selection of the first group platform (e.g. WhatsApp, Telegram) is appreciated.
  
 -	This content is free . If you wish to pay the paper, ink and time costs of the person who provided you with this copy:
--	Founding a group in which we jointly consider how to found such a platform?
-Email: jmehr88@gmail.com
- 
 
  
 Name: AJ Mehr
+
 IBAN: DE73500105175414887887
+
 Paypal: jmehr88@gmail.com
+
 Alternative payment methods via email. Jmehr88@gmail.com
+
 Compensation calculation: If working 8 hours a day, 1 in 48 people addressed pays and each interaction lasts 10 minutes, €124 per copy would be required, based on the €12.5 hourly minimum wage and printing costs. As this price is not affordable for most, any lower price even 5€ would be acceptable.
