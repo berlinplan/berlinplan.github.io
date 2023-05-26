@@ -43,6 +43,7 @@ Colonization had a profound impact on development in western countries (215).
 E-cars need ten times more chips than petrol or diesel vehicles. The Chips Act, passed by Joe Biden, limits US technology involvement in semiconductor production. As technology manufacturers prioritize profit, poorer countries depend on importing technology, perpetuating a cycle of wealth inequality that benefits the rich and leaves the poor behind. This contributes to growing inequality (139, 140).
  
 3.	Hashtag #woke #awareness #equality #stopasianhate, credible?
+
 Luxury brands like Louis Vuitton and Gucci support social justice movements on social media (#equality, #blacklivesmatter), but also sell luxury goods to signal status. (218, 219, 222).
 
 3.1	Fighting against skin color discrimination, but making products for high-class society - a contradiction in terms?
