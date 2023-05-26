@@ -453,42 +453,55 @@ Effect (141)</th>
 </table>
 
 7.	Why do ideological groups like IRGC Quds, ISIS and Al-Qaeda superior to modern armies?
+
 Determination and ideological motivation, strong values and flexible structures define such groups and contrast with the contradictory morals of hierarchical modern armies.
 
 8.	Are residents of modern societies like Germany a "society"?
  
 • Society is the coexistence of people in organized communities with common laws, traditions and values. Collaboration is vital to human survival as it allows us to thrive in large groups, work together effectively and distribute tasks based on individual strengths, resulting in improved efficiency and productivity. (83)
+
 • In modern societies, LGBTQIA2S+ rights are considered non-negotiable, yet symbolic unity is disregarded, as evidenced by the departure from the One Love gang. they impose severe sanctions on human rights violators, but maintain close ties with the most prominent abusers. In addition, they wage wars under the pretense of promoting democracy, despite their commitment to world peace. (106, 107,108,153)
  
 8.1	In a war, would humans defend a psychopathic system and make sacrifices?
+
 Around 30,000 fighters from 85 countries joined ISIS, an organization with strong religious values. About 10 million Syrians, Iraqis and individuals from neighboring countries, mostly young Muslim men, fled the region. Islamic teachings consider flight from jihad (war) to be a major sin, classified as the twenty-seventh sin. The Prophet of Islam also expressed his disapproval of Muslims settling among Christians and Jews. (85, 86, 87, 88, 89, 90, 91)
+
 8.2	Is a society valid if its members lack common values?
+
 Over a million young Afghans fled Afghanistan after the fall of the Afghan Republic. Despite spending $145 billion on security forces and civilian government institutions over 20 years, the US and the West could not prevent the fall of the Afghan republic once US troops withdrew. President Ashraf Ghani, who had promised to stay and protect his people, fled the capital by helicopter to Uzbekistan, contrary to his earlier promises. (93, 95)
  
 8.3	Despite martial law, 8.2 million people fled Ukraine. What would the numbers be without the ban?
+
 Ukraine was ranked among the most corrupt nations, with The Guardian calling it “the most corrupt nation in Europe” (97). The level of corruption in Ukraine is comparable to countries in sub-Saharan Africa such as Uganda (99). Along with monopoly and lack of transparency, moral collapse is a major factor contributing to corruption in Ukraine (104). Despite these challenges, the beauty industry in Ukraine is thriving as Ukrainians devote a significant portion of their income to cosmetic products (100). The main industries in Ukraine include banks, cafes, grocery stores, beauty and clothing stores (101). The Russian army is made up of contract personnel and volunteers, while Ukrainian male citizens aged 18–60 face restrictions on leaving the country (102). Nevertheless, there are over 8 million Ukrainian refugees in Europe.
+
 #### How does a voting app build the first human society?
+
 People of similar values such as Buddhists, Hindus, Christians, Muslims, atheists and Westerners can come together and form a group.
-9.	What is "Übergesellschaft" aka "Oversociety"?
+
+9.	What is an oversociety"?
  
-All societies are part of a larger super-society.
+All societies are part of a larger over-society.
+
 • If Society 1, 2, 3, Christian, Hindu, Chinese, Islamic and Atheist societies all share the common value of banning nuclear weapons, then all societies must adhere to it.
-• If society owns and maintains 3 nuclear bombs, the super society must decide how to react, be it by punishment, isolation or even attack. American, Western, Muslim, or African values are not prioritized when making decisions about supersociety.
+
+• If one society owns and maintains 3 nuclear bombs, the over society must decide how to react, be it by punishment, isolation or even attack. American, Western, Muslim, or African values are not prioritized when making decisions about oversociety.
  
 9.1	Can international inequality be resolved within supersociety?
  
 Without corrupt politicians, each individual has the power to take action against a society that harms others.
  
 • For example, if society 6 introduces a psychopathic economy that leads to inequality, an aging population, migration, a loss of workforce, family problems, increased intercontinental flights and growing polarization, the supersociety must decide how to deal with this behavior as it is detrimental to everyone involved.
+
 • Society 1: 60% adhere to Islamic values, which include wearing a headscarf, abstaining from alcohol, avoiding premarital sex and not having open relationships.
  
- 
 • Society 2: 70% adhere to xxx values, which allow alcohol consumption and premarital sex, but not open relationships.
+
 • Society 11: 75% adhere to Western values, including freedom of clothing, food and agency. Societies merge when they share the same values.
  
 By uniting Buddhist societies in Asia and South America under a common value system, it becomes possible to create a unified nation.
  
 10.	Cultural inspiration or multicultural fraud?
+
 Comparison is part of human cognition and can promote personal growth (185). When a society excels, its positive values can inspire and influence other societies. Cultural influences between Asia and the West were diverse, with notable contributions such as the mathematical zero and the binary code (226).
 10.1	How did cultural inspiration come about in the past?
 Western influences had a significant impact on Eastern culture, shaping aspects such as food, fashion, lifestyle, and governance (227). Ataturk, Tsar Peter I, Iranian Reza Shah, and Japan have all experienced varying degrees of Westernization and modernization (182, 181, 183, 184).
