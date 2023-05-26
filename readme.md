@@ -63,6 +63,7 @@ Social Media Activism: Get maximum exposure for your Instagram activism with the
 In most societies, drug dealers are outlawed by law, as drug abuse can lead to addiction, mental health problems, violence, and the breakdown of society. This has high social health, economic and family costs. However, drug users should not be treated as criminals as they are suffering under circumstances beyond their control. However, it is known that drug dealers nonetheless make significant sums of money, amounting to hundreds of thousands of euros per year. (8,169,170,171).
  
 4.1	Is it moral to make money through drug trafficking for charity?
+
 Pablo Escobar, a Colombian drug lord and leader of the Medellín cartel, which controlled up to 80% of international cocaine, supported the community by building schools, sports fields, donating significant sums of money to charity, and constructing homes (187).
 4.2	Is it legitimate that some drug dealers claim that addiction is self-inflicted because the right medication and dosage can cure certain diseases?
 Opium has legitimate medicinal uses. (208)
