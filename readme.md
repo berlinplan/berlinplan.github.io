@@ -970,7 +970,6 @@ Bill Gates, Google or any government will not and should not create this platfor
 
 -	Founding a group in which we jointly consider how to found such a platform?
 
-Email: jmehr88@gmail.com
 
 After 150 volunteers, participation instructions will be emailed. Your contribution to the selection of the first group platform (e.g. WhatsApp, Telegram) is appreciated.
  
@@ -983,6 +982,3 @@ After 150 volunteers, participation instructions will be emailed. Your contribut
 
 paypal.me/volkswahl
 
-Alternative payment methods via email. Jmehr88@gmail.com
-
-Compensation calculation: If working 8 hours a day, 1 in 48 people addressed pays and each interaction lasts 10 minutes, €124 per copy would be required, based on the €12.5 hourly minimum wage and printing costs. As this price is not affordable for most, any lower price even 5€ would be acceptable.
