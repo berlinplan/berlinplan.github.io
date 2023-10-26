@@ -977,11 +977,11 @@ After 150 volunteers, participation instructions will be emailed. Your contribut
 -	This content is free . If you wish to pay the paper, ink and time costs of the person who provided you with this copy:
 
  
-Name: AJ Mehr
 
-IBAN: DE73500105175414887887
 
-Paypal: jmehr88@gmail.com
+
+
+paypal.me/volkswahl
 
 Alternative payment methods via email. Jmehr88@gmail.com
 
